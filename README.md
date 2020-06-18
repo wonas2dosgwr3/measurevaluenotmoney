@@ -1,4 +1,4 @@
-measurevaluenotmoney
+<span style="color: blue">measurevaluenotmoney
 
 Measure length, not inches. Measure weight, not ounces.
 
