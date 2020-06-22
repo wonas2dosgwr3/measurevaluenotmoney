@@ -1,8 +1,9 @@
+  
 # **measurevaluenotmoney**
 
-        Measure length, not inches. Measure weight, not ounces.
+###### Measure length, not inches. Measure weight, not ounces.
 
-* *The primitive condition of mankind is FINANCIAL COMPLEXITY (otherwise known as a BARTER ECONOMY!).*
+* *The primitive condition of mankind is FINANCIAL COMPLEXITY (BARTER ECONOMY).*
 
 * *By definition, no one ever changed the amount of money in the world, people decide what a standard of value is worth, not how much there is.*
 
