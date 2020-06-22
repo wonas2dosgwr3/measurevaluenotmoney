@@ -1,6 +1,8 @@
 gem install jekyll-admin
 
 
+default
+
 
 _layouts/default.html
 
