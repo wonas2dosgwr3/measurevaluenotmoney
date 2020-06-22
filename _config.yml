@@ -1,1 +1,17 @@
 gem install jekyll-admin
+
+
+
+_layouts/default.html
+
+
+<!doctype html>
+<html>
+  <head>
+    <meta charset="utf-8">
+    <title>{{ page.title }}</title>
+  </head>
+  <body>
+    {{ content }}
+  </body>
+</html>
