@@ -17,5 +17,3 @@ _layouts/default.html
     {{ content }}
   </body>
 </html>
-
-theme: jekyll-theme-cayman
