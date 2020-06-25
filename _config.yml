@@ -1,5 +1,5 @@
 gem install jekyll-admin
-
+gem "github-pages", group   jekyll_plugins
     
 default
 
