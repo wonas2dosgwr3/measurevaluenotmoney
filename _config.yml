@@ -1,6 +1,6 @@
 gem install jekyll-admin
 
-
+    
 default
 
 
@@ -18,3 +18,4 @@ _layouts/default.html
   </body>
 </html>
 
+theme: jekyll-theme-cayman
