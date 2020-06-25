@@ -21,3 +21,5 @@ _layouts/default.html
 theme  jekyll-theme-cayman
 
 theme  jekyll-theme-cayman
+
+theme: jekyll-theme-cayman
