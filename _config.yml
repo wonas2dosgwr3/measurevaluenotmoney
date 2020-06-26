@@ -1,5 +1,5 @@
 gem install jekyll-admin
-gem "github-pages", group   jekyll_plugins
+
     
 default
 
@@ -28,4 +28,4 @@ theme  jekyll-theme-cayman
 
 theme  jekyll-theme-cayman
 
-theme jekyll-theme-cayman
+gem "github-pages", group   jekyll_plugins
