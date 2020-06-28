@@ -12,8 +12,8 @@ Evict measured money, NOT TENANTS (not VALUE!).
 Foreclose against measured money, NOT AGAINST PEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
 
 
-   ***Real stimulus***
-======================
+#  ***Real stimulus***
+
  is measuring length and weight, not inches, ounces, or dollars. ***Measuring DEFINED inches, ounces, or dollars is impossible,*** they invariably serve their default purpose of measurement. ***Announcing UNDEFINED inches, ounces, and dollars would immediately fail.*** So, ***UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED.***
 
 
