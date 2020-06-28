@@ -1,21 +1,5 @@
-default
 
-
-_layouts/default.html/<!doctype html>
-<html>
-  <head>
-    <meta charset="utf-8"> 
-    <title>{{ page.title }}</title>  
-  </head> 
-  <body>
-    {{ content }} 
-
-
-
-
-  </body>
-</html>
-theme jekyll-theme-cayman
+theme: jekyll-theme-cayman
 gem install jekyll-admin
 gem "github-pages", group   jekyll_plugins
 
