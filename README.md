@@ -32,3 +32,6 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
 
 ***Real stimulus is the whole idea of a money economy,*** it's great advantage over the primitive condition of financial complexity (barter economy), ***MEASURING VALUE, NOT THE HOAX (FINANCIAL COMPLEXITY) OF MEASURING A STANDARD OF MEASUREMENT.***
 
+
+
+> Life, liberty, and the pursuit of happiness means no access to standards of measurement? 
