@@ -39,3 +39,5 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
 > ***GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!*** 
 
 > ***Life, liberty, and the pursuit of happiness*** means disrupt housing?
+
+* *By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
