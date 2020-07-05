@@ -41,3 +41,8 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
 > ***Life, liberty, and the pursuit of happiness*** means disrupt housing?
 
 * *By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
+
+
+# ***THE HOMELESS DOLLAR***
+
+***Without an ID, the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!***
