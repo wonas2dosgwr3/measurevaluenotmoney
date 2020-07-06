@@ -49,3 +49,5 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
  HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
 
 ***Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
+
+[people's space]
