@@ -45,7 +45,7 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
 
 # ***THE HOMELESS DOLLAR***
 
-***Without an ID, the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!, houses and their occupants are NO LONGER SAFE.
+***Without an ID, the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!, houses and their occupants are NO LONGER SAFE!
  HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
 
 ***Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
