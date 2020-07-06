@@ -34,10 +34,18 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
 
 
 
-> ***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? A photo ID to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)?*** A photo ID to make measurements?  ***Gold dollars attract a zillion times more private property (value) to market, a zillion times more value to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!***
+> ***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? A photo ID to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)?*** A photo ID to make measurements?  ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***
 
 > ***GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!*** 
 
 > ***Life, liberty, and the pursuit of happiness*** means disrupt housing?
 
 * *By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
+
+
+# ***THE HOMELESS DOLLAR***
+
+***Without an ID, the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!, houses and their occupants are NO LONGER SAFE!
+ HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
+
+***Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
