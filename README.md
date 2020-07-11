@@ -49,3 +49,9 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
  HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
 
 ***Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
+
+* *Real stimulus is life, liberty, and the pursuit of happiness.*
+
+# ***THE HOMELESS DOLLAR. Part 2***
+
+Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. ***Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***
