@@ -62,7 +62,7 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
 # ***THE HOMELESS DOLLAR. Part 3***
 
-Without an ID, the dollar is <ins>***homeless, no one will take personal responsibility for it as such.</ins> Nor as measured money either. The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***
+Without an ID, the dollar is <ins>***homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***
 
 
 ## Measuring value is ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>*** 
