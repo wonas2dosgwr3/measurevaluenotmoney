@@ -58,7 +58,7 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
 # ***LA MONEDA NUEVA***
 
-***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once had something like this to say about it: "When the "Moneda Nueva" comes out, they change the number of zeroes and move the decimal point around."***
+***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so: "When the "Moneda Nueva" comes out, they change the number of zeroes and move the decimal point around."***
 
 # ***THE HOMELESS DOLLAR. Part 3***
 
