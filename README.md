@@ -70,3 +70,7 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 > ***Gold in their pockets, paper on their walls***
 
    > "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***       *- Rafael Sabatini, <ins>Scaramouche</ins>, Book Three, Chapter 4. At Meudon. 1921*
+
+ > ***Money was never so hard to be come at ...***
+
+   > ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now."    *- Oliver Goldsmith, <ins>The Vicar of Wakefield</ins>, 1766. Chapter 14.*
