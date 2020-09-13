@@ -78,3 +78,9 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 # ***The environmental movement explained***
 
 ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***
+
+# ***Saving the earth (THE HOMELESS EARTH)***
+
+***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!***
+
+***Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet completely neglected, HOMELESS, the earth taking it on the chin, HOMELESS, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***
