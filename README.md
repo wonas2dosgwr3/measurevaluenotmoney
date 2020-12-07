@@ -92,3 +92,9 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 # ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
 
 ***No one will take personal responsibility for challenging the dictionary, so the money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!***
+
+# ***THE HOMELESS (PHOTO ID-POWERED) DOLLAR. Part 6. No substitute for PERSONAL RESPONSIBILITY-POWERED dollars.***
+
+***All the money measurers have photo IDs, none will take personal responsibility 
+for what they do, issuing dollars without an ID. Only 
+PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measure personal responsibility (VALUE!!!, HOUSE SAFETY!!!), not money.***
