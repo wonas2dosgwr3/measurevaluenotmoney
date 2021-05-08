@@ -56,22 +56,21 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
 
 Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. ***Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***
 
-# ***LA MONEDA NUEVA***
+># ***LA MONEDA NUEVA***
 
-***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so: "When the "Moneda Nueva" comes out, they change the number of zeroes and move the decimal point around."***
+> ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so: "When the "Moneda Nueva" comes out, they change the number of zeroes and move the decimal point around."***
 
 # ***THE HOMELESS DOLLAR. Part 3***
 
 ***Without an ID, the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***
 
+>*Measuring value is ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>****
 
-## Measuring value is ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>*** 
-
-> ***Gold in their pockets, paper on their walls***
+ ># ***Gold in their pockets, paper on their walls***
 
    > "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***       *- Rafael Sabatini, <ins>Scaramouche</ins>, Book Three, Chapter 4. At Meudon. 1921*
 
- > ***Money was never so hard to be come at ...***
+ ># ***Money was never so hard to be come at ...***
 
    > ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now."    *- Oliver Goldsmith, <ins>The Vicar of Wakefield</ins>, 1766. Chapter 14.*
 
@@ -110,7 +109,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 # ***THE HOMELESS DOLLAR. Part 8. Not what children are taught. Forced circulation of play money.***
 
-***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF SENT AND TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
+***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
 
 ># ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***
 
