@@ -112,7 +112,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF SENT AND TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
 
-> ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***
+># ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***
 
   > "una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que atraen el oro y la plata de las provincias más distantes. *- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII*
 
