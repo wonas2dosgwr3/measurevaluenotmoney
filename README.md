@@ -119,3 +119,17 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ***If all the people distracted with earning their dollars realized those dollars originate unearned, it would be the end of the money measurers, the certainty of what children are taught would prevail, human needs (real investment) would no longer be ignored.***
 
+# ***THE HOMELESS DOLLAR. Part 10. Real estate speculation is currency speculation. NEGLECTING YOURSELF!!!***
+
+***ADDING VALUE!!! doesn't require money, but it ATTRACTS MONEY!!!, ATTRACTS MEASURING VALUE. THE LAST THING ANY VALUE ADDER (INDUSTRIOUS PERSON) WANTS IS INTERFERENCE WITH MEASURING VALUE, CURRENCY SPECULATION!!!!!***
+
+***"Todo se puede hacer sin dinero, menos jugar." ("You can do anything without money, except waste it.") - José Joaquín Fernández de Lizardi, <ins>El Periquillo Sarniento</ins>, 1816***
+
+***Everyone has land under their feet, INTERFERENCE WITH IT (REAL ESTATE SPECULATION!!!, RAISING THE MONEY PRICE) can only discourage industrious people, LOWER VALUE, never be an investment. THE ONLY INVESTMENT IS INDUSTRIOUS PEOPLE, NEVER THE LAND UNDER OTHER PEOPLE'S FEET!!!***
+
+***THE ONLY LAND INVESTMENT IS THE LAND UNDER YOUR OWN FEET!!!, MINDING YOUR OWN BUSINESS, SPECIALIZING, CULTIVATING WHAT IS YOUR OWN, INVESTING IN YOURSELF!!!***
+
+***Minimizing interference with the land under other people's feet means MINIMIZING THE MONEY PRICE OF LAND!!!, is all that can minimize interference and the money price of the land under your own feet - THE GOLDEN RULE!!!***
+
+***HIGH LAND VALUE is YOU ABSOLUTELY OWN IT!!!, MINIMIZED, NOT HIGH, MONEY PRICES OF LAND!!!,  a nation of ABSOLUTE LAND OWNERS!!!***
+
