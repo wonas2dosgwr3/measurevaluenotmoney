@@ -9,7 +9,7 @@
 
 ***Evict*** measured money, NOT TENANTS (not VALUE!).
 
-***Foreclose*** against measured money, NOT AGAINST PEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
+***Foreclose*** against measured money, NOT AGAINST PqqEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
 
 
 #  ***Real stimulus***
@@ -165,6 +165,11 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ***NICARCHUS. Bear witness!***
 
      ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
+
+# ***"master of his own establishment"***
+
+***"My own complete happiness, and the home-centred interests which rise up around the man who first finds himself master of his own establishment, we're sufficient to absorb all my attention."***
+***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
 
 # ***"the old home town ... "***
 
