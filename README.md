@@ -146,4 +146,43 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
      ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post</ins>***
 # ***THE HOMELESS (CAN OF WORMS) DOLLAR. Part 12.***
 
-***A can of worms. The inch or the ounce should be A CAN OF WORMS??? Money was invented to be A CAN OF WORMS??? A CAN OF WORMS is - A BARTER ECONOMY??? Money was invented to REPLACE A CAN OF WORMS WITH A CAN OF WORMS??? MOVE UP FROM A CAN OF WORMS TO A CAN OF WORMS????***
+***A can of worms. The inch or the ounce should be A CAN OF WORMS??? Money was invented to be A CAN OF WORMS??? A CAN OF WORMS is - A BARTER ECONOMY??? Money was invented to REPLACE A CAN OF WORMS WITH A CAN OF WORMS??? MOVE UP FROM A CAN OF WORMS TO A CAN OF WORMS?????***
+
+# ***"that lantern wick will fire the docks."***
+
+***NICARCHUS. ... A lantern wick you are bringing from the foe.*** 
+
+***DICAEOPOLIS. Show him up, would you, for a lantern wick?***
+
+***NICARCHUS. Aye, for that lantern wick will fire the docks.***
+
+***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***
+
+***NICARCHUS. If a Boeotian stuck it in a beetle, And sent it, lighted, down a watercourse Straight to the docks, watching when Boreas blew His stiffest breeze, then if the ships caught fire, They'd blaze up in an instant.***
+
+***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***
+
+***NICARCHUS. Bear witness!***
+
+     ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
+
+# ***"the old home town ... "***
+
+***EUELPIDES. ... A splendid city, Athens, rich and free, 
+Denying none the right to ... pay a fine!***
+
+***Indeed, while crickets chirp a month or two***
+***Upon a bush, that stubborn folk will sit***
+
+***And chirp on legal twigs till kingdom come!***
+
+***That's why we started out to hit the trail;***
+
+***And why, with basket, jug, and myrtle boughs,***
+
+***We wander on in search of a quiet spot***
+
+***Where we can settle down and live our lives. ...***
+
+     ***- Aristophanes, <ins>Birds</ins>, 414 BC***
+
