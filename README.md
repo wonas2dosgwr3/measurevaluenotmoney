@@ -195,3 +195,11 @@ Denying none the right to ... pay a fine!***
 > # ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***
 
 > ***"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years. Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"*** ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
+
+# ***"make themselves to home"***
+
+***"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to "make themselves to home." "*** ***- <ins>Captives Of The Desert</ins>, Chap. 2, Zane Grey, 1925-6***
+
+> # ***"the highest percentage of landowners"***
+
+> ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."*** ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
