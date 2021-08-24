@@ -107,6 +107,26 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***
 
+> # ***"the old home town ... "***
+
+> ***EUELPIDES. ... A splendid city, Athens, rich and free, 
+     Denying none the right to ... pay a fine!***
+
+> ***Indeed, while crickets chirp a month or two***
+> ***Upon a bush, that stubborn folk will sit***
+
+> ***And chirp on legal twigs till kingdom come!***
+
+> ***That's why we started out to hit the trail;***
+
+> ***And why, with basket, jug, and myrtle boughs,***
+
+> ***We wander on in search of a quiet spot***
+
+> ***Where we can settle down and live our lives. ...***
+
+     ***- Aristophanes, <ins>Birds</ins>, 414 BC***
+
 # ***THE HOMELESS DOLLAR. Part 8. Not what children are taught. Forced circulation of play money.***
 
 ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
@@ -171,26 +191,6 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ***"My own complete happiness, and the home-centred interests which rise up around the man who first finds himself master of his own establishment, were sufficient to absorb all my attention."***
 ***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
 
-# ***"the old home town ... "***
-
-***EUELPIDES. ... A splendid city, Athens, rich and free, 
-Denying none the right to ... pay a fine!***
-
-***Indeed, while crickets chirp a month or two***
-***Upon a bush, that stubborn folk will sit***
-
-***And chirp on legal twigs till kingdom come!***
-
-***That's why we started out to hit the trail;***
-
-***And why, with basket, jug, and myrtle boughs,***
-
-***We wander on in search of a quiet spot***
-
-***Where we can settle down and live our lives. ...***
-
-     ***- Aristophanes, <ins>Birds</ins>, 414 BC***
-
 > # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
 > # ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***
 
@@ -203,3 +203,9 @@ Denying none the right to ... pay a fine!***
 > # ***"the highest percentage of landowners"***
 
 > ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."*** ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
+
+# ***THE HOMELESS DOLLAR. Part 13. Nothin' to trade on. Only speculate.***
+
+# ***No truth.***
+
+***" "A feller gets news from Indians and cowboys without knowin' who handed it on to who, an' you take the main idee for truth. All I'd want to make a trade on is that right now Newton's somewhere back toward the border." "*** ***- <ins>Captives Of The Desert</ins>, Chap. 15, Zane Grey, 1925-6***
