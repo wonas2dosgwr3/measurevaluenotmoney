@@ -86,7 +86,7 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
 > ***"Sure he has it?"***
 
-> ***"Did you ever know an Indian to throw away anything useful?" John asked tersely."*** ***<ins>- Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
+> ***"Did you ever know an Indian to throw away anything useful?" John asked tersely."*** ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
 
 # ***Saving the earth (THE HOMELESS EARTH)***
 
