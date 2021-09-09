@@ -78,6 +78,16 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
 ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***
 
+> # ***The original recyclers***
+
+> ## ***Long before Earth Day***
+
+> ***" "Pete has Hanley's gun. ... "***
+
+> ***"Sure he has it?"***
+
+> ***"Did you ever know an Indian to throw away anything useful?" John asked tersely."*** ***<ins>- Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
+
 # ***Saving the earth (THE HOMELESS EARTH)***
 
 ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!***
@@ -209,3 +219,10 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 # ***No truth.***
 
 ***" "A feller gets news from Indians and cowboys without knowin' who handed it on to who, an' you take the main idee for truth. All I'd want to make a trade on is that right now Newton's somewhere back toward the border." "*** ***- <ins>Captives Of The Desert</ins>, Chap. 15, Zane Grey, 1925-6***
+
+# ***Currency speculators for war. Copernicus for measuring value.***
+
+## **"Nations have had to face this danger of what is called "inflation" following the recent war. The same thing happened in sixteenth-century Prussia, following the long series of wars between Poland and the Order [of Teutonic Knights]. ...**
+## **The trouble in Prussia was that the coinage had become very debased, the various authorities seeking a temporary financial advantage by putting less and less gold and silver into the coins that they issued. This drove up prices and made foreign trade almost impossible, as foreigners would not take the worthless coins ... Common action was called for to  put things right; but each state - the Poles, the Prussians, the Order, and even each big city, such as Torun and Danzig - clung jealously to its own right to coin it's own money. Attempts to get agreement had always broken down.**
+## Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ... .
+## **Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."** ***- <ins>The World of Copernicus (Sun, Stand Thou Still)</ins>, Angus Armitage, 1947, Chap. 24. The Diseases of Money***
