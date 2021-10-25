@@ -9,7 +9,7 @@
 
 ***Evict*** measured money, NOT TENANTS (not VALUE!).
 
-***Foreclose*** against measured money, NOT AGAINST PqqEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
+***Foreclose*** against measured money, NOT AGAINST PEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
 
 
 #  ***Real stimulus***
@@ -68,11 +68,11 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
  ># ***Gold in their pockets, paper on their walls***
 
-   > "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***       *- Rafael Sabatini, <ins>Scaramouche</ins>, Book Three, Chapter 4. At Meudon. 1921*
+   > "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."*** [formatting added]     *- Rafael Sabatini, <ins>Scaramouche</ins>, Book Three, Chapter 4. At Meudon. 1921*
 
- ># ***Money was never so hard to be come at ...***
+ ># ***"money was never so hard to be come at ..."***
 
-   > ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now."    *- Oliver Goldsmith, <ins>The Vicar of Wakefield</ins>, 1766. Chapter 14.*
+   > ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   *- Oliver Goldsmith, <ins>The Vicar of Wakefield</ins>, 1766. Chapter 14.*
 
 # ***The environmental movement explained***
 
@@ -97,10 +97,9 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 # ***THE HOMELESS DOLLAR. Part 4***
 
 ***No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is.***
+> # ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.*** 
 
-# ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
-
-***No one will take personal responsibility for challenging the dictionary, so the money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!***
+> ## No one will take personal responsibility for challenging the dictionary, so the money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!
 
 # ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***
 
@@ -119,7 +118,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 > # ***"the old home town ... "***
 
-> ***EUELPIDES. ... A splendid city, Athens, rich and free, 
+> ***"EUELPIDES. ... A splendid city, Athens, rich and free, 
      Denying none the right to ... pay a fine!***
 
 > ***Indeed, while crickets chirp a month or two***
@@ -133,7 +132,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 > ***We wander on in search of a quiet spot***
 
-> ***Where we can settle down and live our lives. ...***
+> ***Where we can settle down and live our lives. ..."***
 
      ***- Aristophanes, <ins>Birds</ins>, 414 BC***
 
@@ -141,9 +140,9 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
 
-># ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***
+> # ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***
 
-  > "una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que atraen el oro y la plata de las provincias más distantes. *- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII*
+  > ## ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que atraen el oro y la plata de las provincias más distantes."***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII*
 
 # ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***
 
@@ -235,4 +234,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ## ***ELASTIC CURRENCY SPECULATORS INVEST IN THE WAR TO END ALL WARS, COMMUNISM, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS ...***
 
-### ***"Debt in the present order of mtagnitude began with the [First] World War. Without credit [elastic currency speculators], the war [to end all wars] could not have continued above four months; with benefit of credit [elastic currency speculators] it went more than four years. Victory followed the credit [elastic currency speculators]. The price [besides wholesale tragic destruction of human and other resources] was appalling debt." - <ins>A Bubble That Broke The World</ins>, Garet Garrett, 1931-2, p3, "Cosmology Of The Bubble".*** "Most of the matter in this book has appeared in the ***Saturday Evening Post*** during the last twelve months, though not exactly in the same form;"
+### ***"Debt in the present order of magnitude began with the [First] World War. Without credit [elastic currency speculators], the war [to end all wars] could not have continued above four months; with benefit of credit [elastic currency speculators] it went more than four years. Victory followed the credit [elastic currency speculators]. The price [besides wholesale tragic destruction of human and other resources] was appalling debt." - <ins>A Bubble That Broke The World</ins>, Garet Garrett, 1931-2, p3, "Cosmology Of The Bubble".*** "Most of the matter in this book has appeared in the ***Saturday Evening Post*** during the last twelve months, though not exactly in the same form;"
+
+> # ***"the gentry pushing their cravings ..."***
+> ## ***"The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."***  ***- <ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1***
