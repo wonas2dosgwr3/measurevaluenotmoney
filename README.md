@@ -266,6 +266,11 @@ B
 > [formatting added] 
 > ### ***- <ins>Cuentos De La Alhambra</ins>, Washington Irving, 1832***
 
+
+> ## ***" ... The Founder Of The Alhambra
+
+> ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, 
+
 # ***'There's no place like home'***
 
 # ***"HOW THE TORTOISE GOT ITS SHELL***
