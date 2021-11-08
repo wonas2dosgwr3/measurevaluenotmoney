@@ -253,7 +253,7 @@ B
 
 ## ***- <ins>Queen Of Populists: The Story Of Mary Elizabeth Lease</ins>, Richard Stiller, 1970, p224-5.***
 
-> # ***la magia y la alquimia ????? ... (magic and alchemy ?????)***
+> #were open to commerce and industr  o ***la magia y la alquimia ????? ... (magic and alchemy ?????)***
 
 > ## ***"la política ... que hacía que su tesoro estuviese siempre nadando en la abundancia." ("the politics ... that made that his treasury was always swimming in abundance.")***
 
@@ -265,11 +265,11 @@ of the Moslems of Spain
 > ### ***Aunque tan espléndido en sus obras y grande en sus empresas, era modesto en su persona y moderado en sus diversiones. Sus vestidos no eran fastuosos, sino tan sencillos que no se distingían de los de sus vasallos. ...*** **... Pasaba la mayor parte del día en sus jardines, y especialmente en los de la Alhambra, que había enriquecido con las plantas más raras y las flores más hermosas y aromáticas, y allí se deleitaba en leer historias o haciendo que se las leyesen ...** ***... Los que fijen su atención en la política de este monarca que he consignado aquí se explicarán fácilmente la magia natural y la sencilla alquimia que hacía que su tesoro estuviese siempre nadando en la abundancia."*** 
 > [formatting added] 
 > ### ***- <ins>Cuentos De La Alhambra</ins>, Washington Irving, 1832***
-...
+...t
 C
 > ## ***" ... The Founder Of The Alhambra joy, and soon became chief of the Moslems in Spain ...
 
-> ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, amidst the enthusiastic shouts of the inhabitants; he was proclaimed king with great demonstations of joy, and soon became chief of the Moslems of Spain ... his reign was**  ***a long series of prosperous events for his subjects. ... In this fashion reigned abundance and prosperity in their beautiful city.
+> ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, amidst the enthusiastic shouts of the inhabitants; he was proclaimed king with great demonstations of joy, and soon became chief of the Moslems of Spain ... his reign was**  ***a long series of prosperous events for his subjects. ... In this fashion reigned abundance and prosperity in their beautiful city; its doors were open to commerce and industry, it's warehouses were full of the merchandise of all countries.
 
 # ***'There's no place like home'***
 
