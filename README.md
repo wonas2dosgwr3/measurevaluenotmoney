@@ -253,7 +253,7 @@ B
 
 ## ***- <ins>Queen Of Populists: The Story Of Mary Elizabeth Lease</ins>, Richard Stiller, 1970, p224-5.***
 
-> #were open to ***la magia y la alquimia ????? ... (magic and alchemy ?????)***
+> # ***la magia y la alquimia ????? ... (magic and alchemy ?????)***
 
 > ## ***"la política ... que hacía que su tesoro estuviese siempre nadando en la abundancia." ("the politics ... that made that his treasury was always swimming in abundance.")***
 
@@ -269,7 +269,7 @@ B
 > ## ***("Mohamed Abu Alhamar, The Founder Of The Alhambra***
 
 > ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, amidst the enthusiastic shouts of the inhabitants; he was proclaimed king with great demonstrations of joy, and soon became chief of the Moslems of Spain ... his reign was** ***a long series of prosperous events for his subjects. ... In this fashion reigned abundance and prosperity in their beautiful city; its doors were open to commerce and industry, it's warehouses were full of the merchandise of all countries.***
-> ### ***In this manner Mohamed Abu Alhamar ruled his dominions and with as much wisdom as prosperity ... ...*** **he took advantage of the interval of tranquility ... to fortify his dominions and stock up his arsenals.** ***protecting at the same time the useful arts, which give nations riches and power ... ...he was the first king of Granada to coin money of gold and silver with his name, putting great diligence that the dies were well engraved.***
+> ### ***In this manner Mohamed Abu Alhamar ruled his dominions and with as much wisdom as prosperity ... ...*** **he took advantage of the interval of tranquility ... to fortify his dominions and stock up his arsenals.** ***protecting at the same time the useful arts, which give nations riches and power ... ... <ins>he was the first king of Granada to coin money of gold and silver with his name, putting great diligence that the dies were well engraved.</ins>***
 > ### ***Around this time, toward the middle of the 13th century ... he started the magnificent palace of the Alhambra ...***
 > ### ***Although so splendid in his works and great in his enterprises, he was modest in his person and moderate in his diversions. His clothes weren't fastidious but so simple that they couldn't be distinguished from those of his subjects. ...*** **...He spent most of the day in his gardens, and especially those of the Alhambra, which he had enriched with the rarest plants and the most beautiful and aromatic flowers, and there he delighted to read stories or have them read ...** ***... Those who fix their attention in the politics of this monarch that I've put down here will easily explain to themselves the natural magic and simple alchemy that made that his treasury was always swimming in abundance."***
 > [formatting added]
