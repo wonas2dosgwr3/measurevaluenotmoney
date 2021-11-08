@@ -265,3 +265,10 @@ B
 > ### ***Aunque tan espléndido en sus obras y grande en sus empresas, era modesto en su persona y moderado en sus diversiones. Sus vestidos no eran fastuosos, sino tan sencillos que no se distingían de los de sus vasallos. ...*** **... Pasaba la mayor parte del día en sus jardines, y especialmente en los de la Alhambra, que había enriquecido con las plantas más raras y las flores más hermosas y aromáticas, y allí se deleitaba en leer historias o haciendo que se las leyesen ...** ***... Los que fijen su atención en la política de este monarca que he consignado aquí se explicarán fácilmente la magia natural y la sencilla alquimia que hacía que su tesoro estuviese siempre nadando en la abundancia."*** 
 > [formatting added] 
 > ### ***- <ins>Cuentos De La Alhambra</ins>, Washington Irving, 1832***
+
+# ***'There's no place like home'***
+
+# ***"HOW THE TORTOISE GOT ITS SHELL***
+
+## ***Zeus was entertaining all the animals at his wedding feast. Only the tortoise stayed away, and Zeus could not think why. So next day he asked it why it did not come with the others. 'There's no place like home,' it replied - an answer which angered Zeus so much that he made it carry its own   house about on its back.***
+## ***Many men would rather have plain fare at home than live on the fat of the land in other people's houses."***  ***- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954***
