@@ -253,7 +253,7 @@ B
 
 ## ***- <ins>Queen Of Populists: The Story Of Mary Elizabeth Lease</ins>, Richard Stiller, 1970, p224-5.***
 
-> # ***la magia y la alquimia ????? ... (magic and alchemy ?????)***
+> # ***la magia y la alquimia ????? ... ... midiendo valor y ... (magic and alchemy ????? ... ... measuring value and ... )***
 
 > ## ***"la política ... que hacía que su tesoro estuviese siempre nadando en la abundancia." ("the politics ... that made that his treasury was always swimming in abundance.")***
 
