@@ -279,5 +279,7 @@ B
 
 # ***"HOW THE TORTOISE GOT ITS SHELL***
 
-## ***Zeus was entertaining all the animals at his wedding feast. Only the tortoise stayed away, and Zeus could not think why. So next day he asked it why it did not come with the others. 'There's no place like home,' it replied - an answer which angered Zeus so much that he made it carry its own   house about on its back.***
-## ***Many men would rather have plain fare at home than live on the fat of the land in other people's houses."***  ***- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954***
+## ***Zeus was entertaining all the animals at his wedding feast. Only the tortoise stayed away, and Zeus could not think why. So next day he asked it why it did not come with the others. <ins>'There's no place like home,'</ins> it replied - an answer which angered Zeus so much that he made it carry its own   house about on its back.***
+## ***Many men would rather have plain fare at home than live on the fat of the land in other people's houses."***
+[formatting added]
+## ***- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954***
