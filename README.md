@@ -266,10 +266,10 @@ B
 > [formatting added] 
 > ### ***- <ins>Cuentos De La Alhambra</ins>, Washington Irving, 1832***
 
+C
+> ## ***" ... The Founder Of The Alhambra joy, and soon became chief of the Moslems in Spain ...
 
-> ## ***" ... The Founder Of The Alhambra
-
-> ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, 
+> ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, amidst the enthusiastic shouts of the inhabitants; he was proclaimed King with great demonstations of
 
 # ***'There's no place like home'***
 
