@@ -267,10 +267,10 @@ of the Moslems of Spain
 > ### ***- <ins>Cuentos De La Alhambra</ins>, Washington Irving, 1832***
 ...t
 C
-> ## ***" ... The Founder Of The Alhambra joy, and soon became chief of the Moslems in Spain ...
+> ## ***" ... The Founder Of The Alhambra 
 
 > ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, amidst the enthusiastic shouts of the inhabitants; he was proclaimed king with great demonstations of joy, and soon became chief of the Moslems of Spain ... his reign was**  ***a long series of prosperous events for his subjects. ... In this fashion reigned abundance and prosperity in their beautiful city; its doors were open to commerce and industry, it's warehouses were full of the merchandise of all countries.
-
+> ### ***In this manner Mohamed Abu Alhamar ruled his dominions and with as much wisdom as prosperity ...*** **he took advantage of the interval of peace
 # ***'There's no place like home'***
 
 # ***"HOW THE TORTOISE GOT ITS SHELL***
