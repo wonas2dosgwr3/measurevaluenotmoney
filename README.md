@@ -265,13 +265,14 @@ of the Moslems of Spain
 > ### ***Aunque tan espléndido en sus obras y grande en sus empresas, era modesto en su persona y moderado en sus diversiones. Sus vestidos no eran fastuosos, sino tan sencillos que no se distingían de los de sus vasallos. ...*** **... Pasaba la mayor parte del día en sus jardines, y especialmente en los de la Alhambra, que había enriquecido con las plantas más raras y las flores más hermosas y aromáticas, y allí se deleitaba en leer historias o haciendo que se las leyesen ...** ***... Los que fijen su atención en la política de este monarca que he consignado aquí se explicarán fácilmente la magia natural y la sencilla alquimia que hacía que su tesoro estuviese siempre nadando en la abundancia."*** 
 > [formatting added] 
 > ### ***- <ins>Cuentos De La Alhambra</ins>, Washington Irving, 1832***
-...t
-C
+
 > ## ***" ... The Founder Of The Alhambra 
 
 > ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, amidst the enthusiastic shouts of the inhabitants; he was proclaimed king with great demonstations of joy, and soon became chief of the Moslems of Spain ... his reign was**  ***a long series of prosperous events for his subjects. ... In this fashion reigned abundance and prosperity in their beautiful city; its doors were open to commerce and industry, it's warehouses were full of the merchandise of all countries.
-> ### ***In this manner Mohamed Abu Alhamar ruled his dominions and with as much wisdom as prosperity ...*** **he took advantage of the interval of tranquility ... to fortify his dominions and stock up his arsenals.** ***protecting at the same time the useful arts, which give nations riches and power ... ...he was the first king of Granada to coin money of gold and silver with his name, putting great diligence that the dies
-
+> ### ***In this manner Mohamed Abu Alhamar ruled his dominions and with as much wisdom as prosperity ... ...*** **he took advantage of the interval of tranquility ... to fortify his dominions and stock up his arsenals.** ***protecting at the same time the useful arts, which give nations riches and power ... ...he was the first king of Granada to coin money of gold and silver with his name, putting great diligence that the dies were well engraved.***
+> ### ***Around this time, toward the middle of the 13th century ... he started the magnificent palace of the Alhambra ...***
+> ### ***Although so splendid in his works and great in his enterprises, he was modest in his person and moderate in his diversions. His clothes weren't fastidious but so simple that they couldn't be distinguished from those of his subjects. ...*** **...He spent most of the day in his gardens, and especially those of the Alhambra, which he had enriched with the rarest plants and 
+ 
 .
 # ***'There's no place like home'***
 
