@@ -258,7 +258,7 @@ B
 > ## ***"la política ... que hacía que su tesoro estuviese siempre nadando en la abundancia." ("the politics ... that made that his treasury was always swimming in abundance.")***
 
 > ## ***"Mohamed Abu Alhamar, El Fundador De La Alhambra***
-
+of the Moslems of Spain
 > ### **... cuando llegó a la edad viril, fue nombrado alcaide de Arjona y Jaén, alcanzando** ***gran popularidad por su bondad y justicia***. ... **En el año 1238 entró en Granada, en medio de los entusiastas vítores de los habitantes; fue proclamado rey con grandes demostraciones de regocijo, y pronto se hizo el jefe de los musalmanes en España ... Su reinado fue** ***una larga serie de sucesos prósperos para sus súbditos. ... De este modo reinaban la abundancia y la prosperidad en su hermosa ciudad; sus puertas se vieron abiertas al comercio y a la industria, y sus almacenes estaban llenos de mercancías de todos los países.***
 > ### ***De tal manera iba Mohamed Abu Alhamar rigiendo sus dominions y con tanta sabiduría como prosperidad ...*** **... aprovechó el intervalo de tranquilidad ... para fortificar sus dominios y pertrechar sus arsenales,** ***protegiendo al mismo tiempo las artes útiles, que dan a las naciones riqueza y poderío. ... ... fue el primer rey de Granada que acuñó monedas de oro y plata con su nombre, poniendo gran diligencia en que los cuños estuviesen hábilmente grabados.***
 > ### ***Por este tiempo, hacia la mitad del siglo XIII ... comenzó el magnífico Palacio de la Alhambra ...***
@@ -269,7 +269,7 @@ B
 C
 > ## ***" ... The Founder Of The Alhambra joy, and soon became chief of the Moslems in Spain ...
 
-> ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, amidst the enthusiastic shouts of the inhabitants; he was proclaimed King with great demonstations of
+> ### **... when he reached a manly age, he was named administrator of Arjona and Jaén, reaching** ***great popularity for his goodness and justice***. ... **In the year 1238 he entered in Granada, amidst the enthusiastic shouts of the inhabitants; he was proclaimed king with great demonstations of joy, and soon became chief of the Moslems of Spain ... his reign was a long series of prosperous events for his subjects
 
 # ***'There's no place like home'***
 
