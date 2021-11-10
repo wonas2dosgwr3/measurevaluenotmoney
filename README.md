@@ -283,10 +283,13 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 [formatting added]
 ## ***- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954***
 
-measure value (fruits of toil) because ... ... every inch ...
+> # ***measure value (fruits of toil) because ... ... every INCH ...***
 
-"TREASURE TROVE
+> ## **"TREASURE TROVE**
 
-A farmer who was dying wanted his sons to become good agriculturists. He summoned them and said: ' ... You must search for what I have hidden in the vineyard. You will find there all I have to give you.'  They thought there was a treasure buried somewhere in the vineyard, and after their father was dead they dug every inch of the soil. There was no hidden treasure to be found; but the vines were so well dug that they yielded a bumper crop.
-     This story teaches us that the fruits of toil are man's best treasure."  - FABLES OF AESOP. 620 - 564 BC? S. A. Handford translation, 1954 
-- FABLES OF AESOP. 620 - 564 BC? S. A. Handford translation, 1954 
+> A farmer who was dying wanted his sons to become good agriculturists. He summoned them and said: ' ... You must search for what I have hidden in the vineyard. You will find there all I have to give you.'  They thought there was a treasure buried somewhere in the vineyard, and after their father was dead they dug ***every INCH*** of the soil. There was no hidden treasure to be found; but the vines were so well dug that they yielded a bumper crop.
+> This story teaches us that ***the fruits of toil are man's best treasure."***
+
+> [formatting added]
+
+> **<ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**
