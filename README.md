@@ -145,7 +145,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
   > ## ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que atraen el oro y la plata de las provincias más distantes."***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII*
 
-# ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***
+# ***THE HOMELESS DOLLAR. Part 9. Cultivating 0 UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***
 
 ***If all the people distracted with earning their dollars realized those dollars originate unearned, it would be the end of the money measurers, the certainty of what children are taught would prevail, human needs (real investment) would no longer be ignored.***
 
@@ -238,8 +238,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 "Debt in the present order of magnitude began with the [First] World War. ***Without credit [elastic currency speculators], the war [to end all wars] <ins>could not have continued above four months</ins>;*** with benefit of credit [elastic currency speculators] it went more than four years. Victory followed the credit [elastic currency speculators]. The price [besides wholesale tragic destruction of human and other resources] was appalling debt." [formatting added] *- <ins>A Bubble That Broke The World</ins>, Garet Garrett, 1931-2, p3, "Cosmology Of The Bubble".* "Most of the matter in this book has appeared in the ***Saturday Evening Post*** during the last twelve months, though not exactly in the same form;"
 
 > # ***"the gentry pushing their cravings ..."***
-> "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."*** [formatting added] *- <ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1*
-B
+> "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."*** [formatting added] *- <ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1*look nbb
 # ***1933. The Farm Holiday movement***
 
 ### **1933. " ... out in the prairie states, in the hungry,  depression-scarred acres of the West and Northwest, the farmers were once more in revolt. They'd been hit by hard times, their answer was the** ***Farm Holiday movement.***
@@ -272,7 +271,7 @@ B
 > ### ***In this manner Mohamed Abu Alhamar ruled his dominions and with as much wisdom as prosperity ... ...*** **he took advantage of the interval of tranquility ... to fortify his dominions and stock up his arsenals,** ***protecting at the same time the useful arts, which give nations riches and power ... ... <ins>he was the first king of Granada to coin money of gold and silver with his name, putting great diligence that the dies were well engraved.</ins>***
 > ### ***Around this time, toward the middle of the 13th century ... he started the magnificent palace of the Alhambra ...***
 > ### ***Although so splendid in his works and great in his enterprises, he was modest in his person and moderate in his diversions. His clothes weren't fastidious but so simple that they couldn't be distinguished from those of his subjects. ...*** **...He spent most of the day in his gardens, and especially those of the Alhambra, which he had enriched with the rarest plants and the most beautiful and aromatic flowers, and there he delighted to read stories or have them read ...** ***... <ins>Those who fix their attention in the politics of this monarch that I've put down here will easily explain to themselves the natural magic and simple alchemy that made that his treasury was always swimming in abundance</ins>."***
-> [formatting added]
+> [Formatting added. Wonas2ds3sp translation from Spanish.]
 > ### ***- <ins>Tales Of The Alhambra</ins>, Washington Irving, 1832)***
 
 # ***'There's no place like home'***
@@ -283,3 +282,11 @@ B
 ## ***Many men would rather have plain fare at home than live on the fat of the land in other people's houses."***
 [formatting added]
 ## ***- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954***
+
+measure value (fruits of toil) because ... ... every inch ...
+
+"TREASURE TROVE
+
+A farmer who was dying wanted his sons to become good agriculturists. He summoned them and said: ' ... You must search for what I have hidden in the vineyard. You will find there all I have to give you.'  They thought there was a treasure buried somewhere in the vineyard, and after their father was dead they dug every inch of the soil. There was no hidden treasure to be found; but the vines were so well dug that they yielded a bumper crop.
+     This story teaches us that the fruits of toil are man's best treasure."  - FABLES OF AESOP. 620 - 564 BC? S. A. Handford translation, 1954 
+- FABLES OF AESOP. 620 - 564 BC? S. A. Handford translation, 1954 
