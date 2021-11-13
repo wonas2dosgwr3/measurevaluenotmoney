@@ -231,6 +231,28 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 > ## ***"the Spanish milled dollar, or piece of eight*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857. One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."**  ***- <ins>A Guide Book Of United States Coins</ins>, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
 
+# ***two bits a hide, two bits a day***
+
+# ***making money (measuring value), jovial hospitality***
+
+"They appeared to be merry fellows, ... They were ***making money [measuring value] which no doubt accounted for their jovial hospitality.***
+
+"Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***
+
+"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.
+
+"Did ye ever skin a buff?" asked another.
+
+"No."
+
+"Wal, if you haven't, you'd make about ***two bits a day*** for a month."
+
+They all laughed at the joke."
+
+[formatting added]
+
+### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
+
 # ***THE HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***
 
 ## ***ELASTIC CURRENCY SPECULATORS INVEST IN THE WAR TO END ALL WARS, COMMUNISM, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS ...***
