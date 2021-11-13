@@ -229,7 +229,9 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 > # ***two bits***
 
-> ## ***"the Spanish milled dollar, or piece of eight*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857. One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."**  ***- <ins>A Guide Book Of United States Coins</ins>, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
+> ## ***"the Spanish milled dollar, or piece of eight*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857.** ***One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."***
+> [formatting added]
+> ## ***- <ins>A Guide Book Of United States Coins</ins>, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
 
 # ***two bits a hide, two bits a day***
 
