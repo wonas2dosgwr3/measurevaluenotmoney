@@ -257,6 +257,27 @@ They all laughed at the joke."
 
 ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
 
+> # ***two-bit poker, and ...***
+
+> "He'll play ***two-bit poker*** but nothin' higher"
+
+> "stealin' cattle but in ***a two-bit way"***
+
+> "Rustle, you ***two-bit brand blotters!"***
+
+> "He and his ***two-bit outfit"***
+
+> "Then that'll be the end of your ***two-bit rustling."***
+
+> "Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***
+
+> [formatting added]
+
+> ## **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chaps. 7, 11, 12, 14**
+
+
+
+
 # ***THE HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***
 
 ## ***ELASTIC CURRENCY SPECULATORS INVEST IN THE WAR TO END ALL WARS, COMMUNISM, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS ...***
