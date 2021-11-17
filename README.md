@@ -344,3 +344,13 @@ They all laughed at the joke."
 > [formatting added]
 
 > **<ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**
+
+# ***THE HOMELESS DOLLAR. Part 15. Less-productive gold mines beginning to be worked, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>. As the wolves in sheep's clothing claiming to measure money are STOPPED FROM WASTING THE RESOURCES THEY NEVER COULD HAVE EARNED, THUS NEVER COULD KNOW THE VALUE OF, have stolen; stopped from <ins>THEIR RELENTLESS LOWERING</ins> of the dollar's value.***
+
+## ***What children are taught <ins>AT HOME!!!</ins>***
+
+## ***Money circulates <ins>BETWEEN HOMES!!!</ins>***
+
+## ***Human nature (exchanging things) <ins>COULD NEVER BE INTERFERENCE WITH HOMES!!!</ins>***
+
+## ***Money is backed by a standard , THE STANDARD IS BACKED BY A HOME - BY EVERY PERSON'S HOME, BY EVERY PERSON, BY THE HOME THAT NATURALLY GOES WITH EVERY PERSON. IT'S EVERY PERSON'S PRICETAG ON THEIR PRIVATE PROPERTY. <ins>MONEY CIRCULATES BETWEEN HOMES, IS BACKED BY HOMES.</ins>***
