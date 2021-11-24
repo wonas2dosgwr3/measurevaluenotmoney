@@ -355,27 +355,20 @@ They all laughed at the joke."
 
 ## ***Money is backed by a standard , THE STANDARD IS BACKED BY A HOME - BY EVERY PERSON'S HOME, BY EVERY PERSON, BY THE HOME THAT NATURALLY GOES WITH EVERY PERSON. IT'S EVERY PERSON'S PRICETAG ON THEIR PRIVATE PROPERTY. <ins>MONEY CIRCULATES BETWEEN HOMES, IS BACKED BY HOMES.</ins>***
 
-# **Better than gold: All the things money buys - AND!!!!! ... ; HOME!!!!!**
+> # ***Better than gold: <ins>All the things money buys</ins> - AND!!!!! ... ; HOME!!!!!***
 
-## **All the things money buys are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And all the things money buys are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.**
+> ## ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***
 
-## **Gold = money:**
-### "Better than gold is a peaceful home
+> ## ***Gold = money:***
+> ### ***"Better than gold is a peaceful home***
+> ### ***Where all the fireside characters come,***
+> ### ***The shrine of love, the heaven of life,***
+> ### ***Hallowed by mother, or sister, or wife.***
+> ### ***However humble the home may be,***
+> ### ***Or tried with sorrow by heaven's decree,***
+> ### ***The blessings <ins>that never were bought or sold</ins>***
+> ### ***And center there, are better than gold."***
 
-Where all the fireside characters come, 
+> [formatting added]
 
-The shrine of love, the heaven of life,
-
-Hallowed by mother, or sister, or wife.
-
-However humble the home may be,
-
-Or tried with sorrow by heaven's decree,
-
-The blessings ***that never were bought or sold,***
-
-And center there, are better than gold." 
-
-[formatting added]
-
- ## ***- "Better than Gold" (partial), Abram J. Ryan***
+> ## ***- "Better than Gold" (partial), Abram J. Ryan***
