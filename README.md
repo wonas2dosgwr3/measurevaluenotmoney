@@ -394,4 +394,4 @@ They all laughed at the joke."
 
 [formatting added]
 
-## ***- Sir Walter Scott***
+## ***- <ins>The Lay of the Last Minstrel</ins>, Sir Walter Scott, 1805***
