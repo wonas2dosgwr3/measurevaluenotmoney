@@ -185,19 +185,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 # ***"that lantern wick will fire the docks."***
 
-***NICARCHUS. ... A lantern wick you are bringing from the foe.*** 
-
-***DICAEOPOLIS. Show him up, would you, for a lantern wick?***
-
-***NICARCHUS. Aye, for that lantern wick will fire the docks.***
-
-***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***
-
-***NICARCHUS. If a Boeotian stuck it in a beetle, And sent it, lighted, down a watercourse Straight to the docks, watching when Boreas blew His stiffest breeze, then if the ships caught fire, They'd blaze up in an instant.***
-
-***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***
-
-***NICARCHUS. Bear witness!***
+***NICARCHUS. ... A lantern wick you are bringing from the foe.***<br>***DICAEOPOLIS. Show him up, would you, for a lantern wick?***<br>***NICARCHUS. Aye, for that lantern wick will fire the docks.***<br>***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***<br>***NICARCHUS. If a Boeotian stuck it in a beetle,<br>And sent it, lighted, down a watercourse<br>Straight to the docks, watching when Boreas blew<br>His stiffest breeze, then if the ships caught fire, <br>They'd blaze up in an instant.***<br>***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***<br>***NICARCHUS. Bear witness!***
 
      ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
 
@@ -363,37 +351,15 @@ They all laughed at the joke."
 > ## ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***
 
 > ## ***Gold = money:***
-> ### ***"Better than gold is a peaceful home***
-> ### ***Where all the fireside characters come,***
-> ### ***The shrine of love, the heaven of life,***
-> ### ***Hallowed by mother, or sister, or wife.***
-> ### ***However humble the home may be,***
-> ### ***Or tried with sorrow by heaven's decree,***
-> ### ***The blessings <ins>that never were bought or sold</ins>***
-> ### ***And center there, are better than gold."***
+> ### ***"Better than gold is a peaceful home  Where all the fireside characters come,<br>The shrine of love, the heaven of life,<br>Hallowed by mother, or sister, or wife.<br>However humble the home may be,<br>Or tried with sorrow by heaven's decree,<br>The blessings <ins>that never were bought or sold</ins><br>And center there, are better than gold."***
 
 > [formatting added]
 
 > ## ***- "Better than Gold" (partial), Abram J. Ryan***
 
-# ***"Native Land***
+# ***"Native Land<br>***
 
-### ***Breathes there the man with soul so dead,***  
-### ***Who never to himself hath said,***
-### ***'This is my own, my native land!'***
-### ***Whose heart hath ne'er within him burn'd***
-### ***As <ins>home</ins> his footsteps he hath turn'd***
-### ***From wandering on a foreign strand?***
-### ***If such there breathe, go, mark him well;***
-### ***For him no minstrel raptures swell;***
-### ***High though his titles, proud his name,***
-### ***Boundless his wealth as wish can claim;***
-### ***Despite those titles, power, and pelf,***
-### ***The wretch, concentrated all in self,***
-### ***Living, shall forfeit fair renown,***
-### ***And, doubly dying, shall go down***
-### ***To the vile dust from whence he sprung,***
-### ***Unwept, unhonour'd, and unsung."***
+### ***Breathes there the man with soul so dead,<br>Who never to himself hath said,<br>'This is my own, my native land!'<br>Whose heart hath ne'er within him burn'd<br>As <ins>home</ins> his footsteps he hath turn'd<br>From wandering on a foreign strand?<br>If such there breathe, go, mark him well;<br>For him no minstrel raptures swell;<br>High though his titles, proud his name,<br>Boundless his wealth as wish can claim;<br>Despite those titles, power, and pelf,<br>The wretch, concentrated all in self,<br>Living, shall forfeit fair renown,<br>And, doubly dying, shall go down<br>To the vile dust from whence he sprung,<br>Unwept, unhonour'd, and unsung."***
 
 [formatting added]
 
