@@ -219,35 +219,34 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ## **The trouble in Prussia was that the coinage had become very debased, the various authorities seeking a temporary financial advantage by putting less and less gold and silver into the coins that they issued. This drove up prices and made foreign trade almost impossible, as foreigners would not take the worthless coins ... Common action was called for to  put things right; but each state - the Poles, the Prussians, the Order, and even each big city, such as Torun and Danzig - clung jealously to its own right to coin it's own money. Attempts to get agreement had always broken down.**
 ## **Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ...**
 ## **(Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."** ***- <ins>The World of Copernicus (Sun, Stand Thou Still)</ins>, Angus Armitage, 1947, Chap. 24. The Diseases of Money***
-_
-\fbox
-{# ***two bits***}
+___
+# ***two bits***
 ## ***"<ins>the Spanish milled dollar, or piece of eight</ins>*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857.** ***<ins>One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."</ins>***
 [formatting added]
-## ***- <ins>A Guide Book Of United States Coins</ins>}, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***}
-_
-# ***two bits a hide, two bits a day***
+## ***- <ins>A Guide Book Of United States Coins</ins>}, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
+___
+> # ***two bits a hide, two bits a day***
 
-# ***making money (measuring value), jovial hospitality***
+> # ***making money (measuring value), jovial hospitality***
 
-"They appeared to be merry fellows, ... They were ***making money [measuring value] which no doubt accounted for their jovial hospitality.***
+> "They appeared to be merry fellows, ... They were ***making money [measuring value] which no doubt accounted for their jovial hospitality.***
 
-"Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***
+> "Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***
 
-"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.
+> "Thanks. I don't believe I do," replied Wade, resisting a desire to accept.
 
-"Did ye ever skin a buff?" asked another.
+> "Did ye ever skin a buff?" asked another.
 
-"No."
+> "No."
 
-"Wal, if you haven't, you'd make about ***two bits a day*** for a month."
+> "Wal, if you haven't, you'd make about ***two bits a day*** for a month."
 
-They all laughed at the joke."
+> They all laughed at the joke."
 
-[formatting added]
+> [formatting added]
 
-### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
-
+> ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
+___
 > # ***two-bit poker, and ...***
 
 > "He'll play ***two-bit poker*** but nothin' higher"
@@ -265,9 +264,7 @@ They all laughed at the joke."
 > [formatting added]
 
 > ## **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chaps. 7, 11, 12, 14**
-
-
-
+___
 
 # ***THE HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***
 
