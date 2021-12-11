@@ -86,7 +86,7 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 >> ## ***Long before Earth Day***
 >> " "Pete has Hanley's gun. ... "<br>
 >> <br>"Sure he has it?"<br>   
->> ***"Did you ever know an Indian to <ins>throw away anything useful?</ins>" John asked tersely."***<br>
+>> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
 >>***<br>- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
 
 # ***Saving the earth (THE HOMELESS EARTH)***
