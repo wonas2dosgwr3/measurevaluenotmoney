@@ -220,31 +220,18 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ## **Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ...**
 ## **(Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."** ***- <ins>The World of Copernicus (Sun, Stand Thou Still)</ins>, Angus Armitage, 1947, Chap. 24. The Diseases of Money***
 ___
-# ***two bits***
-## ***"<ins>the Spanish milled dollar, or piece of eight</ins>*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857.** ***<ins>One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."</ins>***
-[formatting added]
-## ***- <ins>A Guide Book Of United States Coins</ins>}, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
+>>> # ***two bits***
+> ## ***"<ins>the Spanish milled dollar, or piece of eight</ins>*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857.** ***<ins>One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."</ins>***
+> [formatting added]
+> ## ***- <ins>A Guide Book Of United States Coins</ins>}, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
 ___
 >>> # ***two bits a hide, two bits a day***
-
 >>> # ***making money (measuring value), jovial hospitality***
-
 > "They appeared to be merry fellows, ... They were ***making money [measuring value] which no doubt accounted for their jovial hospitality.***
 
-> "Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***
-
-> "Thanks. I don't believe I do," replied Wade, resisting a desire to accept.
-
-> "Did ye ever skin a buff?" asked another.
-
-> "No."
-
-> "Wal, if you haven't, you'd make about ***two bits a day*** for a month."
-
-> They all laughed at the joke."
+> "Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***<br>"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.<br>"Did ye ever skin a buff?" asked another.<br>"No."<br>"Wal, if you haven't, you'd make about ***two bits a day*** for a month."<br>They all laughed at the joke."
 
 > [formatting added]
-
 > ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
 ___
 >>> # ***two-bit poker, and ...***
@@ -262,13 +249,14 @@ ___
 > "Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***
 
 > [formatting added]
-
 > ## **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chaps. 7, 11, 12, 14**
 ___
 
 # ***THE HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***
 
-## ***ELASTIC CURRENCY SPECULATORS INVEST IN THE WAR TO END ALL WARS, COMMUNISM, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS ...***
+## ***ELASTIC CURRENCY SPECULATORS INVEST IN THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - ANY BANKRUPT MISERY-PRODUCER UNWILLING TO DO WHAT CHILDREN ARE TAUGHT (EARN MONEY) ...***
+
+> ### ***`*` <ins>The Creature From Jekyll Island: A Second Look At The Federal Reserve</ins>, 3rd Ed., G. Edward Griffin, 1994, 1995, 1998. Chap. 13 "Masquerade in Moscow," Chap. 14 "The Best Enemy Money Can Buy"***
 
 "Debt in the present order of magnitude began with the [First] World War. ***Without credit [elastic currency speculators], the war [to end all wars] <ins>could not have continued above four months</ins>;*** with benefit of credit [elastic currency speculators] it went more than four years. Victory followed the credit [elastic currency speculators]. The price [besides wholesale tragic destruction of human and other resources] was appalling debt." [formatting added] *- <ins>A Bubble That Broke The World</ins>, Garet Garrett, 1931-2, p3, "Cosmology Of The Bubble".* "Most of the matter in this book has appeared in the ***Saturday Evening Post*** during the last twelve months, though not exactly in the same form;"
 
