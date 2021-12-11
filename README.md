@@ -225,9 +225,9 @@ ___
 [formatting added]
 ## ***- <ins>A Guide Book Of United States Coins</ins>}, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
 ___
-> # ***two bits a hide, two bits a day***
+>>> # ***two bits a hide, two bits a day***
 
-> # ***making money (measuring value), jovial hospitality***
+>>> # ***making money (measuring value), jovial hospitality***
 
 > "They appeared to be merry fellows, ... They were ***making money [measuring value] which no doubt accounted for their jovial hospitality.***
 
@@ -247,7 +247,7 @@ ___
 
 > ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
 ___
-> # ***two-bit poker, and ...***
+>>> # ***two-bit poker, and ...***
 
 > "He'll play ***two-bit poker*** but nothin' higher"
 
