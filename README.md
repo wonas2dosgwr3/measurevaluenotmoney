@@ -82,15 +82,12 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
 ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***
 
-> # ***The original recyclers***
-
-> ## ***Long before Earth Day***
-
-> ***" "Pete has Hanley's gun. ... "***
-
-> ***"Sure he has it?"***
-
-> ***"Did you ever know an Indian to throw away anything useful?" John asked tersely."*** ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
+>> # ***The original recyclers***
+>> ## ***Long before Earth Day***
+>> " "Pete has Hanley's gun. ... "<br>
+>> <br>"Sure he has it?"<br>   
+>> ***"Did you ever know an Indian to <ins>throw away anything useful?</ins>" John asked tersely."***<br>
+>>***<br>- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
 
 # ***Saving the earth (THE HOMELESS EARTH)***
 
