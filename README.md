@@ -59,7 +59,7 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
 >>> # ***LA MONEDA NUEVA*** <br>
 >>> ## ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
->>> [formatting added]
+>>>[formatting added]
 
 # ***THE HOMELESS DOLLAR. Part 3***
 
@@ -67,24 +67,22 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
 >*Measuring value is ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>****
 
- ># ***Gold in their pockets, paper on their walls***
+>>># ***Gold in their pockets, paper on their walls***
+>>> "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br><br> *- Rafael Sabatini, <ins>Scaramouche</ins>, Book Three, Chapter 4. At Meudon. 1921*
 
-   > "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."*** [formatting added]     *- Rafael Sabatini, <ins>Scaramouche</ins>, Book Three, Chapter 4. At Meudon. 1921*
-
- ># ***"money was never so hard to be come at ..."***
-
-   > ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   *- Oliver Goldsmith, <ins>The Vicar of Wakefield</ins>, 1766. Chapter 14.*
+>>># ***"money was never so hard to be come at ..."***
+>>> ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   <br><br>*- Oliver Goldsmith, <ins>The Vicar of Wakefield</ins>, 1766. Chapter 14.*
 
 # ***The environmental movement explained***
 
 ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***
 
->> # ***The original recyclers***
->> ## ***Long before Earth Day***
->> " "Pete has Hanley's gun. ... "<br>
->> <br>"Sure he has it?"<br>   
->> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
->>***<br>- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
+>>> # ***The original recyclers***
+>>> ## ***Long before Earth Day***
+>>> " "Pete has Hanley's gun. ... "<br>
+>>> <br>"Sure he has it?"<br>   
+>>> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
+>>>***<br>- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
 
 # ***Saving the earth (THE HOMELESS EARTH)***
 
@@ -114,35 +112,27 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***
 
-> # ***"the old home town ... "***
-
-> ***"EUELPIDES. ... A splendid city, Athens, rich and free, 
-     Denying none the right to ... pay a fine!***
-
-> ***Indeed, while crickets chirp a month or two***
-> ***Upon a bush, that stubborn folk will sit***
-
-> ***And chirp on legal twigs till kingdom come!***
-
-> ***That's why we started out to hit the trail;***
-
-> ***And why, with basket, jug, and myrtle boughs,***
-
-> ***We wander on in search of a quiet spot***
-
-> ***Where we can settle down and live our lives. ..."***
-
-     ***- Aristophanes, <ins>Birds</ins>, 414 BC***
+>>> # ***"the old home town ... "***
+>>> ***"EUELPIDES. ... A splendid city, Athens, rich and free,<br>
+  >>>Denying none the right to ... pay a fine!***<br>
+>>> ***Indeed, while crickets chirp a month or two***<br>
+>>> ***Upon a bush, that stubborn folk will sit***<br>
+>>> ***And chirp on legal twigs till kingdom come!***<br>
+>>> ***That's why we started out to hit the trail;***<br>
+>>> ***And why, with basket, jug, and myrtle boughs,***<br>
+>>> ***We wander on in search of a quiet spot***<br>
+>>> ***Where we can settle down and live our lives. ..."***<br><br>
+>>> ***- Aristophanes, <ins>Birds</ins>, 414 BC***
 
 # ***THE HOMELESS DOLLAR. Part 8. Not what children are taught. Forced circulation of play money.***
 
 ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
 
-> # ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***
+>> # ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***
 
-  > ## ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que atraen el oro y la plata de las provincias más distantes."***
-
-  > ## - <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII
+  >> ## ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que atraen el oro y la plata de las provincias más distantes."***
+>
+  >> ## - <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII
 
 # ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***
 
