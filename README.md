@@ -171,9 +171,9 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
      ***- "Guest's Gold", Stewart Edward White, <ins>The Saturday Evening Post</ins>***
 
 >> # ***"one thing that's always made me tired"***
->> **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an' <ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."</ins>**<br>
+>> ### **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an'** ***<ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."***</ins>
 >>[formatting added]<br><br>
-     ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post</ins>***
+>> ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post</ins>***
 
 # ***THE HOMELESS (CAN OF WORMS) DOLLAR. Part 12.***
 
