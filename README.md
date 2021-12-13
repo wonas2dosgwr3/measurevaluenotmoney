@@ -82,7 +82,8 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 >>> " "Pete has Hanley's gun. ... "<br>
 >>> <br>"Sure he has it?"<br>   
 >>> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
->>>***<br>- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
+>>>[formatting added]<br>
+>>>> ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***
 
 # ***Saving the earth (THE HOMELESS EARTH)***
 
@@ -90,10 +91,8 @@ Without an ID, the dollar is homeless, no one will take personal responsibility 
 
 ***Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***
 
-# ***THE HOMELESS DOLLAR. Part 4***<br>
-***No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is.***<br>
-# ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***<br>
-## No one will take personal responsibility for challenging the dictionary, so the money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!
+# ***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is. The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
+## *No one will take personal responsibility for challenging the dictionary, so the money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
 
 # ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***
 
@@ -109,16 +108,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***
 
 >>> # ***"the old home town ... "***
->>> ***"EUELPIDES. ... A splendid city, Athens, rich and free,<br>
-  >>>Denying none the right to ... pay a fine!***<br>
->>> ***Indeed, while crickets chirp a month or two***<br>
->>> ***Upon a bush, that stubborn folk will sit***<br>
->>> ***And chirp on legal twigs till kingdom come!***<br>
->>> ***That's why we started out to hit the trail;***<br>
->>> ***And why, with basket, jug, and myrtle boughs,***<br>
->>> ***We wander on in search of a quiet spot***<br>
->>> ***Where we can settle down and live our lives. ..."***<br><br>
->>> ***- Aristophanes, <ins>Birds</ins>, 414 BC***
+>>> ### ***"EUELPIDES. ... A splendid city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while crickets chirp a month or two<br>Upon a bush, that stubborn folk will sit<br>And chirp on legal twigs till kingdom come!<br>That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."<br><br>     - Aristophanes, <ins>Birds</ins>, 414 BC***
 
 # ***THE HOMELESS DOLLAR. Part 8. Not what children are taught. Forced circulation of play money.***
 
@@ -129,6 +119,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >>>> ## *- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII*
 
 # ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
+
 ### ***If all the people distracted with earning their dollars realized those dollars originate unearned, it would be the end of the money measurers, the certainty of what children are taught would prevail, human needs (real investment) would no longer be ignored.***
 
 # ***THE HOMELESS DOLLAR. Part 10. Real estate speculation is currency speculation. NEGLECTING YOURSELF!!!***
@@ -139,9 +130,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ***Land is no product of human labor, everyone has it under their feet, INTERFERENCE WITH IT (REAL ESTATE SPECULATION!!!, RAISING THE MONEY PRICE) can only discourage industrious people, LOWER VALUE, never be an investment. THE ONLY INVESTMENT IS INDUSTRIOUS PEOPLE, NEVER THE LAND UNDER OTHER PEOPLE'S FEET!!!***
 
-***THE ONLY LAND INVESTMENT IS THE LAND UNDER YOUR OWN FEET!!!, MINDING YOUR OWN BUSINESS, SPECIALIZING, CULTIVATING WHAT IS YOUR OWN, INVESTING IN YOURSELF!!!***
-
-***Minimizing interference with the land under other people's feet means MINIMIZING THE MONEY PRICE OF LAND!!!, is all that can minimize interference and the money price of the land under your own feet - THE GOLDEN RULE!!!***
+***THE ONLY LAND INVESTMENT IS THE LAND UNDER YOUR OWN FEET!!!, MINDING YOUR OWN BUSINESS, SPECIALIZING, CULTIVATING WHAT IS YOUR OWN, INVESTING IN YOURSELF!!!°<br><br>Minimizing interference with the land under other people's feet means MINIMIZING THE MONEY PRICE OF LAND!!!, is all that can minimize interference and the money price of the land under your own feet - THE GOLDEN RULE!!!***
 
 ***HIGH LAND VALUE is <ins>YOU ABSOLUTELY OWN IT!!!, MINIMIZED, NOT HIGH, MONEY PRICES OF LAND!!!</ins>,  a nation of ABSOLUTE LAND OWNERS!!!***
 
@@ -162,29 +151,29 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ***A can of worms. The inch or the ounce should be A CAN OF WORMS??? Money was invented to be A CAN OF WORMS??? A CAN OF WORMS is - A BARTER ECONOMY??? Money was invented to REPLACE A CAN OF WORMS WITH A CAN OF WORMS??? MOVE UP FROM A CAN OF WORMS TO A CAN OF WORMS?????***
 
-# ***"that lantern wick will fire the docks."***
+>>> # ***"that lantern wick will fire the docks."***
 
-***NICARCHUS. ... A lantern wick you are bringing from the foe.***<br>***DICAEOPOLIS. Show him up, would you, for a lantern wick?***<br>***NICARCHUS. Aye, for that lantern wick will fire the docks.***<br>***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***<br>***NICARCHUS. If a Boeotian stuck it in a beetle,<br>And sent it, lighted, down a watercourse<br>Straight to the docks, watching when Boreas blew<br>His stiffest breeze, then if the ships caught fire, <br>They'd blaze up in an instant.***<br>***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***<br>***NICARCHUS. Bear witness!***
+>>> ***NICARCHUS. ... A lantern wick you are bringing from the foe.***<br>***DICAEOPOLIS. Show him up, would you, for a lantern wick?***<br>***NICARCHUS. Aye, for that lantern wick will fire the docks.***<br>***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***<br>***NICARCHUS. If a Boeotian stuck it in a beetle,<br>And sent it, lighted, down a watercourse<br>Straight to the docks, watching when Boreas blew<br>His stiffest breeze, then if the ships caught fire, <br>They'd blaze up in an instant.***<br>***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***<br>***NICARCHUS. Bear witness!***
 
-     ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
+>>>     ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
 
-# ***"master of his own establishment"***
+>>> # ***"master of his own establishment"***
 
-***"My own complete happiness, and the home-centred interests which rise up around the man who first finds himself master of his own establishment, were sufficient to absorb all my attention."***
-***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
+>>>***"My own complete happiness, and the home-centred interests which rise up around the man who first finds himself master of his own establishment, were sufficient to absorb all my attention."***
+>>>***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
 
-> # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
-> # ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***
+>>> # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
+>>> # ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***
 
-> ***"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years. Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"*** ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
+>>> ***"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years. Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"*** ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
 
-# ***"make themselves to home"***
+>>> # ***"make themselves to home"***
 
-***"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to "make themselves to home." "*** ***- <ins>Captives Of The Desert</ins>, Chap. 2, Zane Grey, 1925-6***
+>>> ***"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to "make themselves to home." "*** ***- <ins>Captives Of The Desert</ins>, Chap. 2, Zane Grey, 1925-6***
 
-> # ***"the highest percentage of landowners"***
+>>> # ***"the highest percentage of landowners"***
 
-> ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."*** ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
+>>> ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."*** ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
 
 # ***THE HOMELESS DOLLAR. Part 13. Nothin' to trade on. Only speculate.***
 
