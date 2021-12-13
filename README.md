@@ -179,25 +179,29 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >>> ## "Nations have had to face this danger of what is called "inflation" following the recent war. The same thing happened in sixteenth-century Prussia, following the long series of wars between Poland and the Order [of Teutonic Knights]. ...<br><br>The trouble in Prussia was that the coinage had become very debased, the various authorities seeking a temporary financial advantage by putting less and less gold and silver into the coins that they issued. This drove up prices and made foreign trade almost impossible, as foreigners would not take the worthless coins ... Common action was called for to  put things right; but each state - the Poles, the Prussians, the Order, and even each big city, such as Torun and Danzig - clung jealously to its own right to coin it's own money. Attempts to get agreement had always broken down.<br><br>Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ...<br>(Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."<br><br>
 >>>> ### ***- <ins>The World of Copernicus (Sun, Stand Thou Still)</ins>, Angus Armitage, 1947, Chap. 24. The Diseases of Money***
 ___
+___
+___
 >>> # ***two bits***
 >>> ## ***"<ins>the Spanish milled dollar, or piece of eight</ins>*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857.** ***<ins>One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."</ins>***
 >>>[formatting added]
 >>> ## ***- <ins>A Guide Book Of United States Coins</ins>}, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
-___
+>>>---
+>>>___
 >>> # ***two bits a hide, two bits a day***<br>
 >>> ## ***making money (measuring value), jovial hospitality***<br>
 >>> #### **"They appeared to be merry fellows, ... They were** ***making money [measuring value] which no doubt accounted for their jovial hospitality.***<br><br>"Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***<br><br>"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.<br><br>"Did ye ever skin a buff?" asked another.<br><br>"No."<br><br>"Wal, if you haven't, you'd make about ***two bits a day*** for a month."<br><br>They all laughed at the joke."<br><br>
 >>> [formatting added]
 >>>>  ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
-___
+>>>---
+>>>___
 >>> # ***two-bit poker, and ...***<br>
 >>> "He'll play ***two-bit poker*** but nothin' higher"<br><br>"stealin' cattle but in ***a two-bit way"***<br><br>"Rustle, you ***two-bit brand blotters!"***<br><br>"He and his ***two-bit outfit"***<br><br>"Then that'll be the end of your ***two-bit rustlinxg."***<br><br>"Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***<br><br>[formatting added]
 >>>> ## **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chaps. 7, 11, 12, 14**
 ___
-___
-
+---
+--- 7
 # ***HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***<br>
-## ***ELASTIC CURRENCY SPECULATORS INVEST IN LOW VALUE, AGAINST WHAT CHILDREN ARE TAUGHT, GETTING THEIR HANDS ON RESOURCES THEY COULD NEVER HAVE EARNED, COULD NEVER KNOW THE VALUE OF - THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - ANY BANKRUPT MISERY-PRODUCER WHO WANTS TO KEEP IT UP ...***
+## ***ELASTIC CURRENCY SPECULATORS <ins>INVEST IN LOW VALUE AND CALL IT THE MONEY SUPPLY INSTEAD.</ins><br><br>NOBODY KNOWS BETTER IT'S LOW VALUE, NOT WHAT CHILDREN ARE TAUGHT. <br><br>GETTING THEIR HANDS ON RESOURCES THEY NEVER COULD HAVE EARNED, CAN'T KNOW THE VALUE OF, THE RESOURCES GO FOR THE WAR TO END ALL WARS, FOR COMMUNISM (Bolsheviks), FOR ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, FOR PROHIBITION, FOR THE GREAT DEPRESSION, FOR AN EVEN BIGGER WAR, FOR MORE WARS - FOR ANY BANKRUPT MISERY-PRODUCER WHO WANTS TO KEEP DOING IT ...***
 
 >> ### ***`*` <ins>The Creature From Jekyll Island: A Second Look At The Federal Reserve</ins>, 3rd Ed., G. Edward Griffin, 1994, 1995, 1998. Chap. 13 "Masquerade in Moscow," Chap. 14 "The Best Enemy Money Can Buy"***
 
@@ -206,7 +210,7 @@ ___
 >>>`*`"Most of the matter in this book has appeared in the ***Saturday Evening Post*** during the last twelve months, though not exactly in the same form;"
 ___
 ___
-
+---
 > # ***"the gentry pushing their cravings ..."***
 > "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."*** 
 > [formatting added] 
