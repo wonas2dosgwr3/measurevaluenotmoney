@@ -199,9 +199,9 @@ ___
 >>>> ## **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chaps. 7, 11, 12, 14**
 ___
 ---
---- 7
-# ***HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***<br>
-## ***ELASTIC CURRENCY SPECULATORS <ins>INVEST IN LOW VALUE AND CALL IT THE MONEY SUPPLY INSTEAD.</ins><br><br>NOBODY KNOWS BETTER IT'S LOW VALUE, NOTHING TO TAKE CREDIT FOR, NOT WHAT CHILDREN ARE TAUGHT. <br><br>GETTING THEIR HANDS ON RESOURCES THEY NEVER COULD HAVE EARNED, CAN'T KNOW THE VALUE OF, THE RESOURCES VANISH INTO THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - FOR ANY BANKRUPT MISERY-PRODUCER WHO WANTS TO KEEP DOING IT ...***,
+--- 
+# ***THE HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***<br>
+## ***ELASTIC CURRENCY SPECULATORS <ins>INVEST IN LOW VALUE AND CALL IT THE MONEY SUPPLY INSTEAD.</ins><br><br>NOBODY KNOWS BETTER IT'S LOW VALUE, NOTHING TO TAKE CREDIT OR PERSONAL RESPONSIBILITY FOR, NOT WHAT CHILDREN ARE TAUGHT. <br><br>GETTING THEIR HANDS ON RESOURCES THEY NEVER COULD HAVE EARNED, CAN'T KNOW THE VALUE OF, THE RESOURCES VANISH INTO THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - ANY BANKRUPT MISERY-PRODUCER WHO DOESN'T WANT TO CHANGE ...***,
 
 >> ### ***`*` <ins>The Creature From Jekyll Island: A Second Look At The Federal Reserve</ins>, 3rd Ed., G. Edward Griffin, 1994, 1995, 1998. Chap. 13 "Masquerade in Moscow," Chap. 14 "The Best Enemy Money Can Buy"***
 
@@ -214,7 +214,7 @@ ___
 > # ***"the gentry pushing their cravings ..."***
 > "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."*** 
 > [formatting added] 
-> *- <ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1*
+>> *- <ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1*
 
 # ***1933. The Farm Holiday movement***
 
@@ -227,7 +227,7 @@ ___
 ### **The year 1933 was a bad one for banks and mortgage companies that tried to drive farmers off the land out in the prairie states."** 
 [formatting added]
 
-## ***- <ins>Queen Of Populists: The Story Of Mary Elizabeth Lease</ins>, Richard Stiller, 1970, p224-5.***
+>> ## ***- <ins>Queen Of Populists: The Story Of Mary Elizabeth Lease</ins>, Richard Stiller, 1970, p224-5.***
 
 > # ***la magia y la alquimia ????? ... ... midiendo valor y ... (magic and alchemy ????? ... ... measuring value and ... )***
 
@@ -240,7 +240,7 @@ ___
 > ### ***Por este tiempo, hacia la mitad del siglo XIII ... comenzó el magnífico Palacio de la Alhambra ...***
 > ### ***Aunque tan espléndido en sus obras y grande en sus empresas, era modesto en su persona y moderado en sus diversiones. Sus vestidos no eran fastuosos, sino tan sencillos que no se distingían de los de sus vasallos. ...*** **... Pasaba la mayor parte del día en sus jardines, y especialmente en los de la Alhambra, que había enriquecido con las plantas más raras y las flores más hermosas y aromáticas, y allí se deleitaba en leer historias o haciendo que se las leyesen ...** ***... <ins>Los que fijen su atención en la política de este monarca que he consignado aquí se explicarán fácilmente la magia natural y la sencilla alquimia que hacía que su tesoro estuviese siempre nadando en la abundancia</ins>."*** 
 > [formatting added] 
-> ### ***- <ins>Cuentos De La Alhambra</ins>, Washington Irving, 1832***
+>> ### ***- <ins>Cuentos De La Alhambra</ins>, Washington Irving, 1832***
 
 > ## ***("Mohamed Abu Alhamar, The Founder Of The Alhambra***
 
@@ -249,7 +249,7 @@ ___
 > ### ***Around this time, toward the middle of the 13th century ... he started the magnificent palace of the Alhambra ...***
 > ### ***Although so splendid in his works and great in his enterprises, he was modest in his person and moderate in his diversions. His clothes weren't fastidious but so simple that they couldn't be distinguished from those of his subjects. ...*** **...He spent most of the day in his gardens, and especially those of the Alhambra, which he had enriched with the rarest plants and the most beautiful and aromatic flowers, and there he delighted to read stories or have them read ...** ***... <ins>Those who fix their attention in the politics of this monarch that I've put down here will easily explain to themselves the natural magic and simple alchemy that made that his treasury was always swimming in abundance</ins>."***
 > [Formatting added. Wonas2ds3sp translation from Spanish.]
-> ### ***- <ins>Tales Of The Alhambra</ins>, Washington Irving, 1832)***
+>> ### ***- <ins>Tales Of The Alhambra</ins>, Washington Irving, 1832)***
 
 # ***'There's no place like home'***
 
@@ -258,19 +258,16 @@ ___
 ## ***Zeus was entertaining all the animals at his wedding feast. Only the tortoise stayed away, and Zeus could not think why. So next day he asked it why it did not come with the others. <ins>'There's no place like home,'</ins> it replied - an answer which angered Zeus so much that he made it carry its own   house about on its back.***
 ## ***Many men would rather have plain fare at home than live on the fat of the land in other people's houses."***
 [formatting added]
-## ***- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954***
+>>## ***- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954***
 
 > # ***measure value (fruits of toil) because ... ... every INCH ...***
 
-> ## **"TREASURE TROVE**
-
-> A farmer who was dying wanted his sons to become good agriculturists. He summoned them and said: ' ... You must search for what I have hidden in the vineyard. You will find there all I have to give you.'  They thought there was a treasure buried somewhere in the vineyard, and after their father was dead they dug ***every INCH*** of the soil. There was no hidden treasure to be found; but the vines were so well dug that they yielded a bumper crop.
-
-> This story teaches us that ***the fruits of toil are man's best treasure."***
+> ## **"TREASURE TROVE**<br>
+> ### A farmer who was dying wanted his sons to become good agriculturists. He summoned them and said: ' ... You must search for what I have hidden in the vineyard. You will find there all I have to give you.'  They thought there was a treasure buried somewhere in the vineyard, and after their father was dead they dug ***every INCH*** of the soil. There was no hidden treasure to be found; but the vines were so well dug that they yielded a bumper crop.This story teaches us that ***the fruits of toil are man's best treasure."***
 
 > [formatting added]
 
-> **<ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**
+>> **<ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**
 
 # ***THE HOMELESS DOLLAR. Part 15. Less-productive gold mines beginning to be worked, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>. As the wolves in sheep's clothing claiming to measure money are STOPPED FROM WASTING THE RESOURCES THEY NEVER COULD HAVE EARNED, THUS NEVER COULD KNOW THE VALUE OF, have stolen; stopped from <ins>THEIR RELENTLESS LOWERING</ins> of the dollar's value.***
 
