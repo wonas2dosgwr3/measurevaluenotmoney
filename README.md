@@ -194,11 +194,11 @@ ___
 >>> ## ***making money (measuring value), jovial hospitality***<br>
 >>> #### **"They appeared to be merry fellows, ... They were** ***making money [measuring value] which no doubt accounted for their jovial hospitality.***<br><br>"Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***<br><br>"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.<br><br>"Did ye ever skin a buff?" asked another.<br><br>"No."<br><br>"Wal, if you haven't, you'd make about ***two bits a day*** for a month."<br><br>They all laughed at the joke."<br><br>
 >>> [formatting added]
->>>>  ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
+>>>> ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
 >>>---
 >>>___
 >>> # ***two-bit poker, and ...***<br>
->>> "He'll play ***two-bit poker*** but nothin' higher"<br><br>"stealin' cattle but in ***a two-bit way"***<br><br>"Rustle, you ***two-bit brand blotters!"***<br><br>"He and his ***two-bit outfit"***<br><br>"Then that'll be the end of your ***two-bit rustlinxg."***<br><br>"Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***<br><br>[formatting added]
+>>> "He'll play ***two-bit poker*** but nothin' higher"<br><br>"stealin' cattle but in ***a two-bit way"***<br><br>"Rustle, you ***two-bit brand blotters!"***<br><br>"He and his ***two-bit outfit"***<br><br>"Then that'll be the end of your ***two-bit rustlin0g."***<br><br>"Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***<br><br>[formatting added]
 >>>> ## **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chaps. 7, 11, 12, 14**
 ___
 ---
