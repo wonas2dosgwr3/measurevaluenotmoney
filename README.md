@@ -164,7 +164,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >>> # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
 >>> # ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***<br>
 >>> ## ***"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years. Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***<br>
->>>> ###     ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
+>>>> ### ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
 
 >>> # ***"make themselves to home"***<br>
 >>> ***"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to "make themselves to home." "***<br>
