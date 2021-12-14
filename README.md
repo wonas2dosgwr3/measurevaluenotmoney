@@ -241,7 +241,8 @@ ___
 >> ### ***Although so splendid in his works and great in his enterprises, he was modest in his person and moderate in his diversions. His clothes weren't fastidious but so simple that they couldn't be distinguished from those of his subjects. ...*** **...He spent most of the day in his gardens, and especially those of the Alhambra, which he had enriched with the rarest plants and the most beautiful and aromatic flowers, and there he delighted to read stories or have them read ...** ***... <ins>Those who fix their attention in the politics of this monarch that I've put down here will easily explain to themselves the natural magic and simple alchemy that made that his treasury was always swimming in abundance</ins>."***
 >> [Formatting added. Wonas2ds3sp translation from Spanish.]
 >>> ### ***- <ins>Tales Of The Alhambra</ins>, Washington Irving, 1832)***<br>
-
+___
+___-
 > # **<br><br>'There's no place like home'**<br>
 > ## **"HOW THE TORTOISE GOT ITS SHELL**<br>
 > ### **Zeus was entertaining all the animals at his wedding feast. Only the tortoise stayed away, and Zeus could not think why. So next day he asked it why it did not come with the others. <ins>'There's no place like home,'</ins> it replied - an answer which angered Zeus so much that he made it carry its own   house about on its back.<br><br>Many men would rather have plain fare at home than live on the fat of the land in other people's houses."**<br>
@@ -252,15 +253,18 @@ ___
 > ### A farmer who was dying wanted his sons to become good agriculturists. He summoned them and said: ' ... You must search for what I have hidden in the vineyard. You will find there all I have to give you.'  They thought there was a treasure buried somewhere in the vineyard, and after their father was dead they dug ***every INCH*** of the soil. There was no hidden treasure to be found; but the vines were so well dug that they yielded a bumper crop.<br><br>This story teaches us that ***the fruits of toil are man's best treasure."***<br>
 > [formatting added]<br>
 >> **<ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**
-
-# ***THE HOMELESS DOLLAR. Part 15. Less-productive gold mines beginning to be worked, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>.***<br>
+___
+## z***THE HOMELESS DOLLAR. Part 15. Less-productive gold mines beginning to be worked, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>.***<br>
 ### ***As the wolves in sheep's clothing claiming to measure money are STOPPED FROM WASTING THE RESOURCES THEY NEVER COULD HAVE EARNED, THUS NEVER COULD KNOW THE VALUE OF, have stolen; stopped from <ins>THEIR RELENTLESS LOWERING</ins> of the dollar's value.<br><br>What children are taught <ins>AT HOME!!!</ins><br><br>Money circulates <ins>BETWEEN HOMES!!!</ins><br><br>Human nature (exchanging things) <ins>COULD NEVER BE INTERFERENCE WITH HOMES!!!</ins><br><br>Money is backed by a standard , THE STANDARD IS BACKED BY A HOME - BY EVERY PERSON'S HOME, BY EVERY PERSON, BY THE HOME THAT NATURALLY GOES WITH EVERY PERSON. IT'S EVERY PERSON'S PRICETAG ON THEIR PRIVATE PROPERTY. <ins>MONEY CIRCULATES BETWEEN HOMES, IS BACKED BY HOMES.</ins>***<br>
+
+___
 >> # ***<br><br>Better than gold: <ins>All the things money buys</ins> - AND!!!!! - never bought. HOME!!!!!***<br>
->> ## ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>x
+>> ## ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>
 >> ## ***Gold = money:***<br>
 >>> ### ***"Better than gold is a peaceful home  Where all the fireside characters come,<br>The shrine of love, the heaven of life,<br>Hallowed by mother, or sister, or wife.<br>However humble the home may be,<br>Or tried with sorrow by heaven's decree,<br>The blessings <ins>that never were bought or sold</ins><br>And center there, are better than gold."***
 >>> [formatting added]<br>
 >>>>> ### ***- "Better than Gold" (partial), Abram J. Ryan***
+>>>>>___
 
 # ***"Native Land<br>***
 
