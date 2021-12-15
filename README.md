@@ -16,9 +16,7 @@
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***
 ___
 ___
->>> # ***High house value is LIVING IN ONE!!!!! - ASK ANY HOMELESS PERSON.***
-___
-__
+>>> # ***High house value is <ins>LIVING IN ONE</ins>!!!!! - ASK ANY HOMELESS PERSON.***
 #  ***Real stimulus***
 
  is measuring length and weight, not inches, ounces, or dollars. ***Measuring DEFINED inches, ounces, or dollars is impossible,*** they invariably serve their default purpose of measurement. ***Announcing UNDEFINED inches, ounces, and dollars would immediately fail.*** So, ***UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED.***
@@ -44,8 +42,9 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
 >>> ***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? A photo ID to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)?*** A photo ID to make measurements?  ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***<br>
 >>> ***<br>GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!***<br>
 >>> ***<br>Life, liberty, and the pursuit of happiness*** means disrupt housing?<br>
-
-  * ## *By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
+___
+___
+>>>> ## *By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
 ___
 ___
 # ***THE HOMELESS DOLLAR***
@@ -65,7 +64,7 @@ ___
 >>>>[Formatting added. Wonas2ds3sp personal encounter.]
 ___
 ___
-
+>>> # ***High house value is LIVING IN ONE WITHOUT INTERFERENCE!!!!! - ask anyone who's been foreclosed against!!!!!***
 # ***THE HOMELESS DOLLAR. Part 3***
 
 ***Without an ID, the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***\.
