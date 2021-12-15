@@ -94,9 +94,11 @@ ___
 ___
 ___
 ## ***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is. The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
-### *No one will take personal responsibility for challenging the dictionary, so the money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
+### *No one will take personal responsibility for challenging the dictionary, so theA MAN" money measurers TAKE IT the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
 ---
-## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***
+---
+>>> # ***High house value is <ins>YOU ABSOLUTELY OWN IT</ins>, NO PAYMENTS ABOUT IT. No being too busy making payments to have much time to LIVE in "your" house, to believe A MAN'S HOUSE IS HIS CASTLE.***
+## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
 ### ***Gold and silver are never homeless, everyone will take personal responsibility for them, never change the amount of money in the world or otherwise change the subject or defy the dictionary, always measure THE SAFETY OF HOUSES, the safer the house the more SPECIALIZATION (VALUE) takes place, the more private property (VALUE) comes to market. A STANDARD OF VALUE is a STANDARD OF THE SAFETY OF HOUSES.***
 ---
