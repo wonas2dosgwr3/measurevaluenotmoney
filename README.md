@@ -14,6 +14,11 @@
 * # ***Land ownership***
 
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***
+___
+___
+>>> # ***High house value is LIVING IN ONE!!!!! - ASK ANY HOMELESS PERSON.***
+___
+__
 #  ***Real stimulus***
 
  is measuring length and weight, not inches, ounces, or dollars. ***Measuring DEFINED inches, ounces, or dollars is impossible,*** they invariably serve their default purpose of measurement. ***Announcing UNDEFINED inches, ounces, and dollars would immediately fail.*** So, ***UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED.***
