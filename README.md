@@ -73,14 +73,14 @@ ___
 ___
 ___
 >># ***Gold in their pockets, paper on their walls***
->> "Never, indeed, was there a time in whiozch so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br>
+>> "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br>
 >>>> *- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.*<br><br>
 >> # ***"money was never so hard to be come at ..."***
 >> ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   <br>
 >>>>    *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*
 ___
 ___
->>>>>> # ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT "MEASURED" (UNEARNED!!! LOW VALUE) "MONEY"***
+>>>>>> # ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT "MEASURED (UNEARNED!!! LOW VALUE!!!) MONEY"***
 > # ***The environmental movement explained***<br>
 > ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
 >> # ***The original recyclers***<br>
