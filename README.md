@@ -81,6 +81,8 @@ ___
 ___
 ___
 >>>>>> # ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT "MEASURED (UNEARNED!!! LOW VALUE!!!) MONEY"***
+___
+___
 > # ***The environmental movement explained***<br>
 > ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
 >> # ***The original recyclers***<br>
