@@ -16,7 +16,7 @@
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***
 ___
 ___
->>> # ***High house value is <ins>LIVING IN ONE</ins>!!!!! - ASK ANY HOMELESS PERSON.***
+>>> # ***<ins>High house value</ins> is <ins>LIVING IN ONE</ins>!!!!! - ASK ANY HOMELESS PERSON.***
 #  ***Real stimulus***
 
  is measuring length and weight, not inches, ounces, or dollars. ***Measuring DEFINED inches, ounces, or dollars is impossible,*** they invariably serve their default purpose of measurement. ***Announcing UNDEFINED inches, ounces, and dollars would immediately fail.*** So, ***UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED.***
@@ -44,7 +44,7 @@ The gold standard is ***no issue of the amount of money, it's the issue of ENDIN
 >>> ***<br>Life, liberty, and the pursuit of happiness*** means disrupt housing?<br>
 ___
 ___
->>>> ## *By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
+>>>>> ## *By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
 ___
 ___
 # ***THE HOMELESS DOLLAR***
@@ -52,7 +52,7 @@ ___
 
 ***Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
 
-* *Real stimulus is life, liberty, and the pursuit of happiness.*
+>>>>>* *Real stimulus is life, liberty, and the pursuit of happiness.*
 
 # ***THE HOMELESS DOLLAR. Part 2***
 
@@ -64,7 +64,7 @@ ___
 >>>>[Formatting added. Wonas2ds3sp personal encounter.]
 ___
 ___
->>> # ***High house value is LIVING IN ONE <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***
+>>> # ***<ins>High house value</ins> is LIVING IN ONE <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***
 # ***THE HOMELESS DOLLAR. Part 3***
 
 ***Without an ID, the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***\.
@@ -97,7 +97,7 @@ ___
 ### *No one will take personal responsibility for challenging the dictionary, so theA MAN" money measurers TAKE IT the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
 ---
 ---
->>> # ***High house value is <ins>YOU ABSOLUTELY OWN IT</ins>, NO PAYMENTS ABOUT IT. No being too busy making payments to have much time to LIVE in "your" house, to believe A MAN'S HOUSE IS HIS CASTLE.***
+>>> # ***High house value is <ins>YOU ABSOLUTELY OWN IT</ins>, NO PAYMENTS ABOUT IT. No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE</ins>.***
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
 ### ***Gold and silver are never homeless, everyone will take personal responsibility for them, never change the amount of money in the world or otherwise change the subject or defy the dictionary, always measure THE SAFETY OF HOUSES, the safer the house the more SPECIALIZATION (VALUE) takes place, the more private property (VALUE) comes to market. A STANDARD OF VALUE is a STANDARD OF THE SAFETY OF HOUSES.***
