@@ -101,6 +101,8 @@ ___
 ---
 ---
 >>> # ***<ins>High house value</ins> is <ins>YOU ABSOLUTELY OWN IT</ins>, NO PAYMENTS ABOUT IT. No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE</ins>.***
+___
+___
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
 ### ***Gold and silver are never homeless, everyone will take personal responsibility for them, never change the amount of money in the world or otherwise change the subject or defy the dictionary, always measure THE SAFETY OF HOUSES, the safer the house the more SPECIALIZATION (VALUE) takes place, the more private property (VALUE) comes to market. A STANDARD OF VALUE is a STANDARD OF THE SAFETY OF HOUSES.***
