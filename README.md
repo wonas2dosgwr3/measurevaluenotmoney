@@ -8,7 +8,7 @@
 
 ***Evict*** measured money, NOT TENANTS (not VALUE!).
 ***Foreclose*** against measured money, NOT AGAINST PEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
-
++
 * ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in and destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contrast, vanished civilizations are monuments to interference with housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
 
 * # ***Land ownership***
@@ -44,10 +44,10 @@ ___
 >>> # ***<ins>High house value</ins> is LIVING IN ONE <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br><br>
 ___
 ___
-# ***THE HOMELESS DOLLAR. Part 3***<br>
+#s***THE HOMELESS DOLLAR. Part 3***<br>
 ## ***Without an ID, the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***.
 
-> *0Measuring value is* ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>****
+> Measuring value is ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>****
 ___
 ___
 >># ***Gold in their pockets, paper on their walls***
@@ -55,7 +55,7 @@ ___
 >>>> *- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.*<br><br>
 >> # ***"money was never so hard to be come at ..."***
 >> ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   <br>
->>>>    *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*
+>>>>    *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.
 ___
 ___
 >>>>>> # ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT MEASURED (UNEARNED!!! LOW VALUE!!!) "MONEY"***
@@ -67,7 +67,7 @@ ___
 >> ## ***Long before Earth Day***<br>
 >> " "Pete has Hanley's gun. ... "<br>
 >> <br>"Sure he has it?"<br>   
->> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
+>> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***8<br>
 >>[formatting added]<br>
 >>>>    ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***<br><br>
 >>>> # ***Saving the earth (THE HOMELESS EARTH)***<br>
