@@ -14,9 +14,8 @@
 * # ***Land ownership***
 
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***
-___
-___
->>>>> # ***<ins>High house value</ins> is <ins>LIVING IN ONE</ins>!!!!! - ASK ANY HOMELESS PERSON.***<br>
+>>> ### ***High house value is***<br>
+>>>><ins>***LIVING IN ONE</ins>!!!!! - ASK ANY HOMELESS PERSON.***<br>
 
 >>> ## ***Real stimulus***<br> 
 >>> is measuring length and weight, not inches, ounces, or dollars. Measuring DEFINED inches, ounces, or dollars is impossible, they invariably serve their default purpose of measurement. Announcing UNDEFINED inches, ounces, and dollars would immediately fail. So, UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED. Distorting value, conferring undeserved value, is all that measured money (dollars with no ID) does. Without measured money, the distorted value of housing would end, EVICTIONS, FORECLOSURES, AND HOMELESS PEOPLE COULD NEVER BE ISSUES. The gold standard is no issue of the amount of money, it's the issue of ENDING DISTORTED VALUES.
@@ -39,29 +38,25 @@ ___
 >>>> ## ***LA MONEDA NUEVA***<br>
 >>>>### ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
 >>>>[Formatting added. Wonas2ds3sp personal encounter]<br>
----
----
 
->>> # ***<ins>High house value</ins> is LIVING IN ONE <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br>
+>>> ### ***High house value is***<br>
+>>>> #### ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br>
 
 # ***THE HOMELESS DOLLAR. Part 3***
 
 ***Without an ID, the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***.
 
 >*Measuring value is ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>****
-___
-___
+
 >># ***Gold in their pockets, paper on their walls***
 >> "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br>
 >>>> *- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.*<br><br>
 >> # ***"money was never so hard to be come at ..."***
 >> ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   <br>
 >>>>    *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*
-___
-___
+
 >>>>>> # ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT MEASURED (UNEARNED!!! LOW VALUE!!!) "MONEY"***
-___
-___
+
 > # ***The environmental movement explained***<br>
 > ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
 >> # ***The original recyclers***<br>
@@ -72,8 +67,7 @@ ___
 >>[formatting added]<brUU>>>>    ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***<br><br>
 >>>> # ***Saving the earth (THE HOMELESS EARTH)***<br>
 >>>> ## ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
-___
-___
+
 ## ***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is. The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
 ### *No one will take personal responsibility for challenging the dictionary, so theA MAN" money measurers TAKE IT the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
 
@@ -92,28 +86,24 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ## ***THE HOMELESS (WITHOUT NATURAL LAW) DOLLAR. Part 7. LAWS AND THE JUDICIAL BRANCH OF GOVERNMENT WITHOUT A HOME*** 
 
 ### ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***
-___
-___
+
 >>> # ***"the old home town ... "***
 >>> ### ***"EUELPIDES. ... A splendid city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while crickets chirp a month or two<br>Upon a bush, that stubborn folk will sit<br>And chirp on legal twigs till kingdom come!<br>That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."***<br>    
 >>>>> ###     ***- Aristophanes, <ins>Birds</ins>, 414 BC***
----
----
+
 ## ***THE HOMELESS DOLLAR. Part 8. Not what children are taught. Forced circulation of play money.***
 
 ### ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
-___
-___
+
 >>> # ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***<br>
 >>> ## ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que <ins>atraen el oro y la plata de las provincias más distantes."</ins>***<br> 
 >>>[formatting added]<br>
 >>>>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
----
----
+
 ## ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
 
 ### ***If all the people distracted with earning their dollars realized those dollars originate unearned, it would be the end of the money measurers, the certainty of what children are taught would prevail, human needs (real investment) would no longer be ignored.***
---- 
+
 ## ***THE HOMELESS DOLLAR. Part 10. Real estate speculation is currency speculation. NEGLECTING YOURSELF!!!***
 
 ### ***ADDING VALUE!!! doesn't require money, but it ATTRACTS MONEY!!!, ATTRACTS MEASURING VALUE. THE LAST THING ANY VALUE ADDER (INDUSTRIOUS PERSON) WANTS IS INTERFERENCE WITH MEASURING VALUE, CURRENCY SPECULATION!!!!!***
@@ -124,13 +114,11 @@ ___
 > ### ***THE ONLY LAND INVESTMENT IS THE LAND UNDER YOUR OWN FEET!!!, MINDING YOUR OWN BUSINESS, SPECIALIZING, CULTIVATING WHAT IS YOUR OWN, INVESTING IN YOURSELF!!!<br><br>Minimizing interference with the land under other people's feet means MINIMIZING THE MONEY PRICE OF LAND!!!, is all that can minimize interference and the money price of the land under your own feet - THE GOLDEN RULE!!!***
 
 ## ***HIGH LAND VALUE is <ins>YOU ABSOLUTELY OWN IT!!!, MINIMIZED, NOT HIGH, MONEY PRICES OF LAND!!!</ins>,  a nation of ABSOLUTE LAND OWNERS!!!***
----
----
+
 ## ***THE HOMELESS (NON-CIRCULATING, DEBT-POWERED, MISERY-POWERED, HUMAN NEEDS-AVOIDING) DOLLAR. Part 11. Changing HANDS is not enough.***
 
 ### ***Dollars that change HANDS BUT NOT HOUSES are NOT CIRCULATING!!! Debt is NON-CIRCULATING!!! money, does not make borrowers owners of houses or anything else, no matter how loudly the money measurers say it does. NO OWNERSHIP, NO TRANSACTION, NO CIRCULATION!!! Money needed for housing cost can't circulate, will only leave home after house cost has been paid, WHEN HOUSING IS AFFORDABLE!!! The homeless dollar doesn't move, stagnates building up debt instead of ownership, bogus instead of affordable prices, avoiding instead of addressing human needs.***
----
----
+
 >>> # ***"This California ... ... these peoples mus' have things."***
 >>> **"This California," Marco was telling him ... Once he belong Spain; now Mexico. ... Mexico ver' bad for California. She tell California that she shall buy onlee from her, and then she forget to send things to buy! That's funnee! ... But these peoples mus' have things. They cannot grow them on the trees. So we bring them ... Onlee we mus' not let Mexico catch us! She's against the law. It's bad to go against the law ... but the good *padres*, they come buy. Pret' soon, when she come night, you see a fire on the beach. They light heem. Then we go in wid the boat."**<br>
 >>>>> ***- "Guest's Gold", Stewart Edward White, <ins>The Saturday Evening Post</ins>***<br><br>
@@ -138,8 +126,7 @@ ___
   >>> ### **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an'** ***<ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."***</ins><br>
 >>>[formatting added]
 >>>>> ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post</ins>***
----
----
+
 # ***THE HOMELESS (CAN OF WORMS) DOLLAR. Part 12.***
 
 ***A can of worms. The inch or the ounce should be A CAN OF WORMS??? Money was invented to be A CAN OF WORMS??? A CAN OF WORMS is - A BARTER ECONOMY??? Money was invented to REPLACE A CAN OF WORMS WITH A CAN OF WORMS??? MOVE UP FROM A CAN OF WORMS TO A CAN OF WORMS?????***
@@ -172,28 +159,22 @@ ___
 >>> # ***Currency speculators for war. Copernicus for measuring value.***<br>
 >>> ## "Nations have had to face this danger of what is called "inflation" following the recent war. The same thing happened in sixteenth-century Prussia, following the long series of wars between Poland and the Order [of Teutonic Knights]. ...<br><br>The trouble in Prussia was that the coinage had become very debased, the various authorities seeking a temporary financial advantage by putting less and less gold and silver into the coins that they issued. This drove up prices and made foreign trade almost impossible, as foreigners would not take the worthless coins ... Common action was called for to  put things right; but each state - the Poles, the Prussians, the Order, and even each big city, such as Torun and Danzig - clung jealously to its own right to coin it's own money. Attempts to get agreement had always broken down.<br><br>Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ...<br>(Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."<br>
 >>>> ### ***- <ins>The World of Copernicus (Sun, Stand Thou Still)</ins>, Angus Armitage, 1947, Chap. 24. The Diseases of Money***
-___
-___
-___
+
 >> # ***two bits***
 >> ## ***"<ins>the Spanish milled dollar, or piece of eight</ins>*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857.** ***<ins>One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."</ins>***
 >>[formatting added]
 >> ## ***- <ins>A Guide Book Of United States Coins</ins>}, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
->>---
->>___
+
 >> # ***two bits a hide, two bits a day***<br>
 >> ## ***making money (measuring value), jovial hospitality***<br>
 >> #### **"They appeared to be merry fellows, ... They were** ***making money [measuring value] which no doubt accounted for their jovial hospitality.***<br><br>"Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***<br><br>"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.<br><br>"Did ye ever skin a buff?" asked another.<br><br>"No."<br><br>"Wal, if you haven't, you'd make about ***two bits a day*** for a month."<br><br>They all laughed at the joke."<br><br>
 >> [formatting added]
 >>> ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
->>>---
->>>___
+
 >>> # ***two-bit poker, and ...***<br>
 >>> "He'll play ***two-bit poker*** but nothin' higher"<br><br>"stealin' cattle but in ***a two-bit way"***<br><br>"Rustle, you ***two-bit brand blotters!"***<br><br>"He and his ***two-bit outfit"***<br><br>"Then that'll be the end of your ***two-bit rustling."***<br><br>"Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***<br><br>"you dirty, low-down, ***two-bit of a bluff!"***<br><br>[formatting added]
 >>>>> ## **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chaps. 7, 11, 12, 14<br>- <ins>The Man of the Forest</ins>, Zane Grey, 1919, Chap. 20**<br>
-___
----
---- 
+
 # ***THE HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***<br>
 ## ***ELASTIC CURRENCY SPECULATORS <ins>INVEST IN LOW VALUE AND CALL IT THE MONEY SUPPLY INSTEAD.</ins><br><br>NOBODY KNOWS BETTER IT'S LOW VALUE, NOTHING TO TAKE CREDIT OR PERSONAL RESPONSIBILITY FOR, NOT WHAT CHILDREN ARE TAUGHT. <br><br>TO THE EXTENT SUCH DISTRACTIONS AS THE FICTION OF THE MONEY SUPPLY (MEASURING MONEY) DIVERT THE SUBJECT FROM MONEY (MEASURING VALUE) AND LOW VALUE, LOW VALUE CAN BE IMPLEMENTED, THE ELASTIC CURRENCY SPECULATORS GET THEIR HANDS ON RESOURCES THEY COULD NEVER HAVE EARNED, CAN'T KNOW THE VALUE OF, THE RESOURCES VANISH INTO THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - ANY BANKRUPT MISERY-PRODUCER WHO DOESN'T WANT TO CHANGE ...***
 
@@ -202,9 +183,7 @@ ___
 ### "Debt in the present order of magnitude began with the [First] World War. ***Without credit [elastic currency speculators], the war [to end all wars] <ins>could not have continued above four months</ins>;*** with benefit of credit [elastic currency speculators] it went more than four years. Victory followed the credit [elastic currency speculators]. The price [besides wholesale tragic destruction of human and other resources] was appalling debt."<br><br>[formatting added]<br><br>
 >>> ### ***- <ins>A Bubble That Broke The World</ins>, Garet Garrett, 1931-2, p3, "Cosmology Of The Bubble".***<br>
 >>>`*`"Most of the matter in this book has appeared in the ***Saturday Evening Post*** during the last twelve months, though not exactly in the same form;"
-___
-___
----
+
 > # ***"the gentry pushing their cravings ..."***
 > "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."*** 
 > [formatting added] 
@@ -232,8 +211,7 @@ ___
 >> ### ***Although so splendid in his works and great in his enterprises, he was modest in his person and moderate in his diversions. His clothes weren't fastidious but so simple that they couldn't be distinguished from those of his subjects. ...*** **...He spent most of the day in his gardens, and especially those of the Alhambra, which he had enriched with the rarest plants and the most beautiful and aromatic flowers, and there he delighted to read stories or have them read ...** ***... <ins>Those who fix their attention in the politics of this monarch that I've put down here will easily explain to themselves the natural magic and simple alchemy that made that his treasury was always swimming in abundance</ins>."***
 >> [Formatting added. Wonas2ds3sp translation from Spanish.]
 >>> ### ***- <ins>Tales Of The Alhambra</ins>, Washington Irving, 1832)***<br>
-___
-___
+
 > ## ***'There's no place like home'***<br>
 > ### **"HOW THE TORTOISE GOT ITS SHELL**<br>
 > ### **Zeus was entertaining all the animals at his wedding feast. Only the tortoise stayed away, and Zeus could not think why. So next day he asked it why it did not come with the others. <ins>'There's no place like home,'</ins> it replied - an answer which angered Zeus so much that he made it carry its own   house about on its back.<br><br>Many men would rather have plain fare at home than live on the fat of the land in other people's houses."**<br>
@@ -244,19 +222,17 @@ ___
 > ### A farmer who was dying wanted his sons to become good agriculturists. He summoned them and said: ' ... You must search for what I have hidden in the vineyard. You will find there all I have to give you.'  They thought there was a treasure buried somewhere in the vineyard, and after their father was dead they dug ***every INCH*** of the soil. There was no hidden treasure to be found; but the vines were so well dug that they yielded a bumper crop.<br><br>This story teaches us that ***the fruits of toil are man's best treasure."***<br>
 > [formatting added]<br>
 >>> **<ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**
-___
-___
+
 ## ***THE HOMELESS DOLLAR. Part 15. Less-productive gold mines beginning to be worked, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>.***<br>
 ### ***As the wolves in sheep's clothing claiming to measure money are STOPPED FROM WASTING THE RESOURCES THEY NEVER COULD HAVE EARNED, THUS NEVER COULD KNOW THE VALUE OF, have stolen; stopped from <ins>THEIR RELENTLESS LOWERING</ins> of the dollar's value.<br><br>What children are taught <ins>AT HOME!!!</ins><br><br>Money circulates <ins>BETWEEN HOMES!!!</ins><br><br>Human nature (exchanging things) <ins>COULD NEVER BE INTERFERENCE WITH HOMES!!!</ins><br><br>Money is backed by a standard , THE STANDARD IS BACKED BY A HOME - BY EVERY PERSON'S HOME, BY EVERY PERSON, BY THE HOME THAT NATURALLY GOES WITH EVERY PERSON. IT'S EVERY PERSON'S PRICETAG ON THEIR PRIVATE PROPERTY. <ins>MONEY CIRCULATES BETWEEN HOMES, IS BACKED BY HOMES.</ins>***<br>
-___
-___
+
 >> ## ***Better than gold: <ins>All the things money buys</ins> - AND!!!!! - never bought. HOME!!!!!***<br>
 >> ### ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>
 >> ### ***Gold = money:***<br>
 >>> #### ***"Better than gold is a peaceful home  Where all the fireside characters come,<br>The shrine of love, the heaven of life,<br>Hallowed by mother, or sister, or wife.<br>However humble the home may be,<br>Or tried with sorrow by heaven's decree,<br>The blessings <ins>that never were bought or sold</ins><br>And center there, are better than gold."***
 >>> [formatting added]<br>
 >>>>> ### ***- "Better than Gold" (partial), Abram J. Ryan***
->>>>>___
+
 
 # ***"Native Land<br>***
 
