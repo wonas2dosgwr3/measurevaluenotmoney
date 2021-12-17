@@ -41,7 +41,7 @@ ___
 >>>>[Formatting added. Wonas2ds3sp personal encounter.]
 ___
 ___
->>> # ***<ins>High house value</ins> is LIVING IN ONE <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***
+>>> # ***<ins>High house value</ins> is LIVING IN ONE <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br>
 # ***THE HOMELESS DOLLAR. Part 3***
 
 ***Without an ID, the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***\.
