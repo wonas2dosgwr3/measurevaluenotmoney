@@ -46,25 +46,24 @@
 
 >*Measuring value is ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>****
 
->># ***Gold in their pockets, paper on their walls***
->> "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br>
->> *- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.*<br><br>
->> # ***"money was never so hard to be come at ..."***
->> ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   <br>
->>  *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*
+># ***Gold in their pockets, paper on their walls***
+> "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br>
+> *- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.*<br><br>
+> # ***"money was never so hard to be come at ..."***
+> ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   <br>
+> *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*
 
 > # ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT MEASURED (UNEARNED!!! LOW VALUE!!!) "MONEY"***
 
 > # ***The environmental movement explained***<br>
 > ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
->> # ***The original recyclers***<br>
->> ## ***Long before Earth Day***<br>
->> " "Pete has Hanley's gun. ... "<br>
->> <br>"Sure he has it?"<br>   
->> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
->>[formatting added]<br>   ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***<br><br>
->>>> # ***Saving the earth (THE HOMELESS EARTH)***<br>
->>>> ## ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
+> # ***The original recyclers***<br>
+> ## ***Long before Earth Day***<br>
+> " "Pete has Hanley's gun. ... "<br>
+> <br>"Sure he has it?"<br>   
+> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
+>[formatting added]<br>   ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***<br><br>
+> # ***Saving the earth (THE HOMELESS EARTH)***<br>> ## ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
 
 ## ***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is. The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
 ### *No one will take personal responsibility for challenging the dictionary, so theA MAN" money measurers TAKE IT the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
@@ -85,9 +84,9 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ### ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***
 
->>> # ***"the old home town ... "***
->>> ### ***"EUELPIDES. ... A splendid city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while crickets chirp a month or two<br>Upon a bush, that stubborn folk will sit<br>And chirp on legal twigs till kingdom come!<br>That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."***<br>    
->>>>> ###     ***- Aristophanes, <ins>Birds</ins>, 414 BC***
+> # ***"the old home town ... "***<br>
+> ### ***"EUELPIDES. ... A splendid city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while crickets chirp a month or two<br>Upon a bush, that stubborn folk will sit<br>And chirp on legal twigs till kingdom come!<br>That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."***<br>    
+>###     ***- Aristophanes, <ins>Birds</ins>, 414 BC***
 
 ## ***THE HOMELESS DOLLAR. Part 8. Not what children are taught. Forced circulation of play money.***
 
