@@ -22,8 +22,7 @@
 
 >>> ## ***Real stimulus***<br> 
 >>> **is the whole idea of a money economy,** its great advantage over the primitive condition of financial complexity (barter economy), MEASURING VALUE, NOT THE HOAX (FINANCIAL COMPLEXITY) OF MEASURING A STANDARD OF MEASUREMENT.<br><br>***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? ***A photo ID*** to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)? A photo ID*** to make measurements? ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***<br><br>GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!***<br><br>Life, liberty, and the pursuit of happiness means disrupt housing?<br>
-___
-___
+
 >>>>> ## *By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
 
 # ***THE HOMELESS DOLLAR***
@@ -33,11 +32,10 @@ ___
 
 # ***THE HOMELESS DOLLAR. Part 2***<br>
 ## ***Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***
-___
-___
->>>> ## ***LA MONEDA NUEVA***<br>
->>>>### ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
->>>>[Formatting added. Wonas2ds3sp personal encounter]<br>
+
+>## ***LA MONEDA NUEVA***<br>
+>## ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
+>>[Formatting added. Wonas2ds3sp personal encounter]<br>
 
 >>> ### ***High house value is***<br>
 >>>> #### ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br>
@@ -50,12 +48,12 @@ ___
 
 >># ***Gold in their pockets, paper on their walls***
 >> "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br>
->>>> *- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.*<br><br>
+>> *- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.*<br><br>
 >> # ***"money was never so hard to be come at ..."***
 >> ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]   <br>
->>>>    *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*
+>>  *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*
 
->>>>>> # ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT MEASURED (UNEARNED!!! LOW VALUE!!!) "MONEY"***
+> # ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT MEASURED (UNEARNED!!! LOW VALUE!!!) "MONEY"***
 
 > # ***The environmental movement explained***<br>
 > ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
