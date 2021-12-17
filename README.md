@@ -62,7 +62,7 @@
 >> " "Pete has Hanley's gun. ... "<br>
 >> <br>"Sure he has it?"<br>   
 >> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
->>[formatting added]<brUU>>>>    ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***<br><br>
+>>[formatting added]<br>   ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***<br><br>
 >>>> # ***Saving the earth (THE HOMELESS EARTH)***<br>
 >>>> ## ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
 
@@ -76,11 +76,11 @@
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
 ### ***Gold and silver are never homeless, everyone will take personal responsibility for them, never change the amount of money in the world or otherwise change the subject or defy the dictionary, always measure THE SAFETY OF HOUSES, the safer the house the more SPECIALIZATION (VALUE) takes place, the more private property (VALUE) comes to market. A STANDARD OF VALUE is a STANDARD OF THE SAFETY OF HOUSES.***
----
+
 ## ***THE HOMELESS (PHOTO ID-POWERED) DOLLAR. Part 6. No substitute for PERSONAL RESPONSIBILITY-POWERED dollars.***<br>
 ***All the money measurers have photo IDs, none will take personal responsibility for what they do, issuing ID-less dollars. Only 
 PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measure personal responsibility (VALUE!!!, HOUSE SAFETY!!!), not money.***
----
+
 ## ***THE HOMELESS (WITHOUT NATURAL LAW) DOLLAR. Part 7. LAWS AND THE JUDICIAL BRANCH OF GOVERNMENT WITHOUT A HOME*** 
 
 ### ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***
