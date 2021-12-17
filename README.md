@@ -69,8 +69,7 @@ ___
 >> " "Pete has Hanley's gun. ... "<br>
 >> <br>"Sure he has it?"<br>   
 >> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
->>[formatting added]<br>
->>>>    ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***<br><br>
+>>[formatting added]<brUU>>>>    ***- <ins>Captives Of The Desert</ins>, Chap. 20, Zane Grey, 1925-68***<br><br>
 >>>> # ***Saving the earth (THE HOMELESS EARTH)***<br>
 >>>> ## ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
 ___
@@ -79,7 +78,9 @@ ___
 ### *No one will take personal responsibility for challenging the dictionary, so theA MAN" money measurers TAKE IT the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
 ---
 ---
->>> # ***<ins>High house value</ins> is <ins>YOU ABSOLUTELY OWN IT</ins>, NO PAYMENTS ABOUT IT. No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE</ins>.***
+>>> ### ***High house value is***<br>
+>>>> <ins>YOU ABSOLUTELY OWN IT, NO PAYMENTS ABOUT IT.</ins> No being too busy making payments to have much time to <ins>***LIVE***</ins> in "your"????? house, to believe <ins>***A MAN'S HOUSE IS HIS CASTLE***</ins>.<br>
+>>>>>>> ***WHO COULD ASK FOR MORE, WANT <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????***</ins>
 
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
