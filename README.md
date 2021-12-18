@@ -38,10 +38,10 @@
 >## ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
 >>[Formatting added. Wonas2ds3sp personal encounter]<br>
 
->> ### ***High house value is***<br>
->>> #### ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br>
+### <br>***High house value is***<br>
+#### ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br>
 
-# ***THE HOMELESS DOLLAR. Part 3***
+# <br>***THE HOMELESS DOLLAR. Part 3***
 
 ***Without an ID, the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as a <ins>CONSPIRACY!!!</ins>***.
 
