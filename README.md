@@ -56,7 +56,7 @@
 > *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*<br><br>
 
 ## ***Real investors***
-> invest MEASURED (earned!!!, high value!!!) VALUE, NOT MEASURED (unearned!!! low value!!!) "MONEY"***<br><br>
+> ***invest MEASURED (earned!!!, high value!!!) VALUE, NOT MEASURED (unearned!!! low value!!!) "MONEY"***<br><br>
 
 > # ***The environmental movement explained***<br>
 >> ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
