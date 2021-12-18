@@ -48,7 +48,7 @@
 
 >*Measuring value is ***<ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>****
 
-<br> > # ***Gold in their pockets, paper on their walls***
+> # ***Gold in their pockets, paper on their walls***
 > "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br>
 > *- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.*<br><br>
 > # ***"money was never so hard to be come at ..."***
