@@ -58,10 +58,13 @@
 ## ***Real investors***
 > ***invest MEASURED (earned!!!, high value!!!) VALUE, NOT MEASURED (unearned!!! low value!!!) "MONEY"***<br><br>
 
-> # ***The environmental movement explained***<br>
->> ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
-> # ***The original recyclers***<br>
->> ## ***Long before Earth Day***<br>
+# ***The environmental movement explained***
+
+> ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
+> # ***The original recyclers***
+
+>> ## ***Long before Earth Day***
+
 >> " "Pete has Hanley's gun. ... "<br>
 >> <br>"Sure he has it?"<br>   
 >> ***"Did you ever know <ins>an Indian to throw away anything useful?</ins>" John asked tersely."***<br>
@@ -71,9 +74,9 @@
 ## ***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is. The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
 ### *No one will take personal responsibility for challenging the dictionary, so theA MAN" money measurers TAKE IT the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
 
-> ### ***High house value is***<br>
->> <ins>YOU ABSOLUTELY OWN IT, NO PAYMENTS ABOUT IT.</ins> No being too busy making payments to have much time to <ins>***LIVE***</ins> in "your"????? house, to believe <ins>***A MAN'S HOUSE IS HIS CASTLE***</ins>.<br>
->>>>> ***WHO COULD ASK FOR MORE, WANT <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????***</ins>
+### ***High house value is***<br>
+> <ins>YOU ABSOLUTELY OWN IT, NO PAYMENTS ABOUT IT.</ins> No being too busy making payments to have much time to <ins>***LIVE***</ins> in "your"????? house, to believe <ins>***A MAN'S HOUSE IS HIS CASTLE***</ins>.<br>
+>> ***WHO COULD ASK FOR MORE, WANT <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????***</ins>
 
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
