@@ -55,7 +55,8 @@
 > ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now." [formatting added]
 > *- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.*<br><br>
 
-## ***REAL INVESTORS INVEST MEASURED (EARNED!!! HIGH VALUE!!!) VALUE, NOT MEASURED (UNEARNED!!! LOW VALUE!!!) "MONEY"***<br><br>
+## ***Real investors***
+> invest MEASURED (earned!!!, high value!!!) VALUE, NOT MEASURED (unearned!!! low value!!!) "MONEY"***<br><br>
 
 > # ***The environmental movement explained***<br>
 >> ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
