@@ -15,10 +15,10 @@
 
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***<br>
 
-***High house value is***<br>
+***<br>High house value is***<br>
 ***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
 
-## ***Real stimulus***<br> 
+## ***<br>Real stimulus***<br> 
  **is measuring length and weight, not inches, ounces, or dollars. Measuring DEFINED inches, ounces, or dollars is impossible, they invariably serve their default purpose of measurement. Announcing UNDEFINED inches, ounces, and dollars would immediately fail. So, UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED. Distorting value, conferring undeserved value, is all that measured money (dollars with no ID) does. Without measured money, the distorted value of housing would end, EVICTIONS, FORECLOSURES, AND HOMELESS PEOPLE COULD NEVER BE ISSUES. The gold standard is no issue of the amount of money, it's the issue of ENDING DISTORTED VALUES.**
 
 ## ***Real stimulus***<br> 
@@ -29,9 +29,9 @@
 # ***THE HOMELESS DOLLAR***
 ***Without an ID, the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!, houses and their occupants are NO LONGER SAFE! HOMELESS HOUSES AND HOMELESS PEOPLE!!! Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
 
->>>* *Real stimulus is life, liberty, and the pursuit of happiness.*
+>>>* *<br>Real stimulus is life, liberty, and the pursuit of happiness.*
 
-# ***THE HOMELESS DOLLAR. Part 2***<br>
+# ***<br>THE HOMELESS DOLLAR. Part 2***<br>
 ## ***Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***
 
 >## ***LA MONEDA NUEVA***<br>
