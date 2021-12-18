@@ -78,7 +78,7 @@
 
 ### ***High house value is***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!, NO PAYMENTS ABOUT IT.</ins> No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE***</ins>.<br>
->> ***WHO COULD ASK FOR MORE, WANT <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????***</ins>
+>> ***WHO COULD ASK FOR MORE????? Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE????? Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people to LIVING BY EXCHANGING THINGS (commerce, specialization)?????***</ins>
 
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
