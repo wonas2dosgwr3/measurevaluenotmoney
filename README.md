@@ -107,7 +107,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >[formatting added]<br>
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
-***<br>High house value is***<br><br>
+***<br>High house value is***<br>
 > ***LOW HOUSING COST!!!!!***<br><br>
 > ***Nothing to worry about but LEGITIMATE HOUSING COST, same as all other prices determined by measuring VALUE!!!***<br><br>
 
