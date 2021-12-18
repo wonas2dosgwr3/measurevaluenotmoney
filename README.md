@@ -80,7 +80,7 @@
 > <ins>NO PAYMENTS ABOUT IT.</ins><br><br>
 > No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE***</ins>.<br><br>
 > ***WHO COULD ASK FOR MORE????? Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins><br><br>
-> Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF A HOME WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***
+> Fail to realize absolute home ownership is only by the CONSENT AND GOODWILL of other people to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF A HOME WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***
 
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
