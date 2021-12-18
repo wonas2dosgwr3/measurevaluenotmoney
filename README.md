@@ -15,8 +15,8 @@
 
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***
 
- <br>High house value is<br>
-> <ins>***LIVING IN ONE</ins>!!!!! - ASK ANY HOMELESS PERSON.***<br>
+ <br>***High house value is***<br>
+***<ins>LIVING IN ONE</ins>!!!!! - ASK ANY HOMELESS PERSON.***<br>
 
 
 > ## ***<br>Real stimulus***<br> 
