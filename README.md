@@ -34,7 +34,7 @@
 # ***<br>THE HOMELESS DOLLAR. Part 2***<br>
 ## ***Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***
 
-> <br>***LA MONEDA NUEVA***<br>
+<br><br> > ***LA MONEDA NUEVA***<br>
 > ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
 >>[Formatting added. Wonas2ds3sp personal encounter]<br>
 
