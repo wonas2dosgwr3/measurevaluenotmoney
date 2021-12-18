@@ -16,7 +16,7 @@
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***<br>
 
 ***<br>High house value is***<br>
-***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
+> ***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
 
 ## ***Real stimulus***<br> 
  **is measuring length and weight, not inches, ounces, or dollars. Measuring DEFINED inches, ounces, or dollars is impossible, they invariably serve their default purpose of measurement. Announcing UNDEFINED inches, ounces, and dollars would immediately fail. So, UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED. Distorting value, conferring undeserved value, is all that measured money (dollars with no ID) does. Without measured money, the distorted value of housing would end, EVICTIONS, FORECLOSURES, AND HOMELESS PEOPLE COULD NEVER BE ISSUES. The gold standard is no issue of the amount of money, it's the issue of ENDING DISTORTED VALUES.**
@@ -38,8 +38,8 @@
 >## ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
 >>[Formatting added. Wonas2ds3sp personal encounter]<br>
 
-### <br>***High house value is***<br>
-#### ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br>
+<br>***High house value is***<br>
+> ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! - ask anyone who's been foreclosed against!!!!!***<br>
 
 # <br>***THE HOMELESS DOLLAR. Part 3***
 
