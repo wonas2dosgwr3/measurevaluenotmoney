@@ -77,7 +77,7 @@
 ### *No one will take personal responsibility for challenging the dictionary, so theA MAN" money measurers TAKE IT the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
 
 ### ***High house value is***<br>
-> <ins>YOU ABSOLUTELY OWN IT, NO PAYMENTS ABOUT IT.</ins> No being too busy making payments to have much time to <ins>***LIVE***</ins> in "your"????? house, to believe <ins>***A MAN'S HOUSE IS HIS CASTLE***</ins>.<br>
+> <ins>***YOU ABSOLUTELY OWN IT!!!!!, NO PAYMENTS ABOUT IT.</ins> No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE***</ins>.<br>
 >> ***WHO COULD ASK FOR MORE, WANT <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????***</ins>
 
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
