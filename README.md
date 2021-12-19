@@ -108,11 +108,11 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >[formatting added]<br>
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
-<br***High house value is***<br>
-> ***LOW HOUSING COST!!!!!***<br><br>
-> ***Nothing to worry about but LEGITIMATE HOUSING COST, same as all other prices determined by measuring VALUE!!!***<br><br>
+<br>***High house value is***<br>
+> <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
+> ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
 > ***ACCURATE MEASUREMENTS are of very high value, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!***</ins><br><br>
-> ***MEASURED "MONEY" CAN'T STAND FOR HUMAN LABOR!!!, NEITHER CAN LAND!!! - so the money measurers make their <ins>MEASURED "MONEY" STAND FOR LAND!!!!! A HUGE PRICE DISTORTION!!!!!</ins> because without measured "money" land must be affordable, because housing must be affordable, because exchanging things (commerse) can only happen between homeowners.***<br><br>
+> <ins>***MEASURED "MONEY" CAN'T STAND FOR HUMAN LABOR!!!, NEITHER CAN LAND!!!</ins>< - so the money measurers make their <ins>MEASURED "MONEY" STAND FOR LAND!!!!! A HUGE PRICE DISTORTION!!!!!</ins> because without measured "money" land must be affordable, because housing must be affordable, because exchanging things (commerse) can only happen between homeowners.***<br><br>
 
 ##  ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
 
