@@ -188,7 +188,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >>> ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
 
 >>> # ***two-bit poker, and ...***<br>
->>> "He'll play ***two-bit poker*** but nothin' higher"<br><br>"stealin' cattle but in ***a two-bit way"***<br><br>"Rustle, you ***two-bit brand blotters!"***<br><br>"He and his ***two-bit outfit"***<br><br>"Then that'll be the end of your ***two-bit rustling."***<br><br>"Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***<br><br>"you dirty, low-down, ***two-bit of a bluff!"***<br><br>"If I ain't hoodooed I'm <ins>a two-bit of a gambler!</ins>"[formatting added]
+>>> "He'll play ***two-bit poker*** but nothin' higher"<br><br>"stealin' cattle but in ***a two-bit way"***<br><br>"Rustle, you ***two-bit brand blotters!"***<br><br>"He and his ***two-bit outfit"***<br><br>"Then that'll be the end of your ***two-bit rustling."***<br><br>"Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***<br><br>"you dirty, low-down, ***two-bit of a bluff!"***<br><br>"If I ain't hoodooed I'm ***a two-bit of a gambler!"***[formatting added]
 >>>>> ## **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chaps. 7, 11, 12, 14<br>- <ins>The Man of the Forest</ins>, Zane Grey, 1919, Chaps. 20, 22**<br>
 
 # ***THE HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***<br>
