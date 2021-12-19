@@ -111,7 +111,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 <br>***High house value is***<br>
 > <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
-> ***ACCURATE MEASUREMENTS are of very high value, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!***</ins><br><br>
+> ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!***</ins><br><br>
 > <ins>***MEASURED "MONEY" CAN'T STAND FOR HUMAN LABOR!!!, NEITHER CAN LAND!!!</ins> - so the money measurers, seeking cover, make their <ins>MEASURED "MONEY" STAND FOR LAND!!!!! A HUGE PRICE DISTORTION!!!!!</ins> because without measured "money" <ins>land must be affordable</ins>, because <ins>housing must be affordable</ins>, because <ins>exchanging things (commerse) can only happen between homeowners.***</ins><br><br>
 
 ##  ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
