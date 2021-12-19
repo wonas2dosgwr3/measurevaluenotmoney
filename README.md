@@ -73,7 +73,7 @@
 
 >>***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
 
-## ***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is. The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
+## ***THE HOMELESS DOLLAR. Part 4. No one wiSl take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is. The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
 ### No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (their
 <br>***High house value is***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br>
@@ -81,7 +81,7 @@
 > ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!***</ins>.<br><br>
 > ***<ins>WHO COULD ASK FOR MORE?????</ins>***<br><br>
 > ***Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????***</ins><br><br>
-> ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF A HOME WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br>
+> ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br>
 
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
