@@ -101,7 +101,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ## ***THE HOMELESS DOLLAR. Part 8. Not what children are taught. Forced circulation of play money.***
 
-### ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
+### ***Children are taught that E VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But without homes, there can be no circulation, nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
 
 > # ***"atraen el oro y la plata de las provincias más distantes." ("attract gold and silver from the most distant provinces.")***<br>
 > ## ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que <ins>atraen el oro y la plata de las provincias más distantes."</ins>***<br> 
@@ -113,6 +113,9 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
 > ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!***</ins><br><br>
 > <ins>***MEASURED "MONEY" CAN'T STAND FOR HUMAN LABOR!!!, NEITHER CAN LAND!!!</ins> - so the money measurers, seeking cover, make their <ins>MEASURED "MONEY" STAND FOR LAND!!!!! A HUGE PRICE DISTORTION!!!!!</ins> because without measured "money" <ins>land must be affordable</ins>, because <ins>housing must be affordable</ins>, because <ins>exchanging things (commerse) can only happen between homeowners.***</ins><br><br>
+> ***THE PRICE DISTORTION INVITES THE CURRENCY SPECULATION THE MONEY MEASURERS LIVE FOR, HOUSES ARE FOR SPORTING WITH FOR THEM, NOT FOR LIVING IN MUCH, NOT FOR FAMILIES OR ANYONE'S CASTLE.***<br><br>
+>> ***The real estate speculators (thanks to the land-house price distortion) said repeatedly most people, when they buy a house, only keep it for 5 years, then move to another one.`* ***<br><br>
+>> `* ***wonas2ds3sp personal encounter.***<br><br
 
 ##  ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
 
