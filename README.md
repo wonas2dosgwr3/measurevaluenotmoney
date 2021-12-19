@@ -76,11 +76,11 @@
 ## ***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is. The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
 ### No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (their
 ***<br>High house value is***<br>
-> <ins>***YOU ABSOLUTELY OWN IT!!!!!</ins><br>
-> <ins>NO PAYMENTS ABOUT IT!!!!!</ins><br><br>
-> No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!***</ins>.<br><br>
-> ***WHO COULD ASK FOR MORE?????***<br><br>Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins><br><br>
-> Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF A HOME WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***
+> <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br>
+> <ins>***NO PAYMENTS ABOUT IT!!!!!***</ins><br><br>
+> ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!***</ins>.<br><br>
+> ***WHO COULD ASK FOR MORE?????***<br><br>Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????***</ins><br><br>
+> ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF A HOME WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br>
 
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
@@ -110,7 +110,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ***<br>High house value is***<br>
 > ***LOW HOUSING COST!!!!!***<br><br>
 > ***Nothing to worry about but LEGITIMATE HOUSING COST, same as all other prices determined by measuring VALUE!!!***<br><br>
-> ***ACCURATE MEASUREMENTS are of very high value, invite competition, better use of resources, LOWER <ins>}COSTS, RISING STANDARD OF LIVING!!!***</ins><br><br>
+> ***ACCURATE MEASUREMENTS are of very high value, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!***</ins><br><br>
 
 ##  ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
 
