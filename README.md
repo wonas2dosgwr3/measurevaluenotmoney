@@ -77,9 +77,7 @@
 ### No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (their
 <br>***High house value is***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br>
-> <ins>***NO PAYMENTS ABOUT IT!!!!!***</ins><br><br>
-> ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!</ins>.***<br><br>
-> ***<ins>WHO COULD ASK FOR MORE?????</ins><br><br>Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins><br><br>Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br>
+> <ins>***NO PAYMENTS ABOUT IT!!!!!</ins><br><br>No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!</ins>.<br><br><ins>WHO COULD ASK FOR MORE?????</ins><br><br>Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins><br><br>Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br>
 
 ## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
