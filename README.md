@@ -78,7 +78,7 @@
 <br>***High house value is***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br>
 > <ins>***NO PAYMENTS ABOUT IT!!!!!***</ins><br><br>
-> ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!***</ins>.<br><br>
+> ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!</ins>.***<br><br>
 > ***<ins>WHO COULD ASK FOR MORE?????</ins>***<br><br>
 > ***Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????***</ins><br><br>
 > ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br>
@@ -114,7 +114,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!</ins>***<br><br>
 > ***<ins>MEASURED "MONEY" CAN'T STAND FOR HUMAN LABOR!!!, NEITHER CAN LAND!!!</ins> - so the money measurers, seeking cover, make their <ins>MEASURED "MONEY" STAND FOR LAND!!!!! A HUGE PRICE DISTORTION!!!!!</ins> Because without measured "money" LAND (NO <ins>PRODUCT</ins> OF HUMAN LABOR) MUST <ins>SERVE</ins> HUMAN LABOR, <ins>must be affordable</ins>, because <ins>housing must be affordable</ins>, because <ins>exchanging things (commerse) can only happen between homeowners.</ins>***<br><br>
 > THE PRICE DISTORTION INVITES THE CURRENCY SPECULATION THE MONEY MEASURERS LIVE FOR, HOUSES ARE FOR SPORTING WITH FOR THEM, NOT MAINLY FOR LIVING IN, NOT FOR GETTING ATTACHED TO, NOT FOR FAMILIES OR ANYONE'S CASTLE.<br>
->> ***The real estate speculators (currency speculators labeled according to the price distortion which attracts them) said repeatedly most people, when they buy a hous0e, only keep it for 5 years, then move to another one.***`*`<br><br>`*` wonas2ds3sp personal encounter.<br><br>
+>> ***The real estate speculators (currency speculators labeled according to the price distortion which attracts them) said repeatedly most people, when they buy a house, only keep it for 5 years, then move to another one.***`*`<br><br>`*` wonas2ds3sp personal encounter.<br><br>
 
 ##  ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
 
