@@ -138,38 +138,38 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ### ***Dollars that change HANDS BUT NOT HOUSES are NOT CIRCULATING!!! Debt is NON-CIRCULATING!!! money, does not make borrowers owners of houses or anything else, no matter how loudly the money measurers say it does. NO OWNERSHIP, NO TRANSACTION, NO CIRCULATION!!! Money needed for housing cost can't circulate, will only leave home after house cost has been paid, WHEN HOUSING IS AFFORDABLE!!! The homeless dollar doesn't move, stagnates building up debt instead of ownership, bogus instead of affordable prices, avoiding instead of addressing human needs.***
 
->>> # ***"This California ... ... these peoples mus' have things."***
->>> **"This California," Marco was telling him ... Once he belong Spain; now Mexico. ... Mexico ver' bad for California. She tell California that she shall buy onlee from her, and then she forget to send things to buy! That's funnee! ... But these peoples mus' have things. They cannot grow them on the trees. So we bring them ... Onlee we mus' not let Mexico catch us! She's against the law. It's bad to go against the law ... but the good *padres*, they come buy. Pret' soon, when she come night, you see a fire on the beach. They light heem. Then we go in wid the boat."**<br>
->>>>> ***- "Guest's Gold", Stewart Edward White, <ins>The Saturday Evening Post</ins>***<br><br>
->>> # ***"one thing that's always made me tired"***
-  >>> ### **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an'** ***<ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."***</ins><br>
->>>[formatting added]
->>>>> ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post</ins>***
+> # ***"This California ... ... these peoples mus' have things."***
+> **"This California," Marco was telling him ... Once he belong Spain; now Mexico. ... Mexico ver' bad for California. She tell California that she shall buy onlee from her, and then she forget to send things to buy! That's funnee! ... But these peoples mus' have things. They cannot grow them on the trees. So we bring them ... Onlee we mus' not let Mexico catch us! She's against the law. It's bad to go against the law ... but the good *padres*, they come buy. Pret' soon, when she come night, you see a fire on the beach. They light heem. Then we go in wid the boat."**<br>
+>>> ***- "Guest's Gold", Stewart Edward White, <ins>The Saturday Evening Post</ins>***<br><br>
+> # ***"one thing that's always made me tired"***
+  > ### **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an'** ***<ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."***</ins><br>
+>[formatting added]
+>>> ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post</ins>***
 
 # ***THE HOMELESS (CAN OF WORMS) DOLLAR. Part 12.***
 
 ***A can of worms. The inch or the ounce should be A CAN OF WORMS??? Money was invented to be A CAN OF WORMS??? A CAN OF WORMS is - A BARTER ECONOMY??? Money was invented to REPLACE A CAN OF WORMS WITH A CAN OF WORMS??? MOVE UP FROM A CAN OF WORMS TO A CAN OF WORMS?????***
 
->>> # ***"that lantern wick will fire the docks."***
->>> ***NICARCHUS. ... A lantern wick you are bringing from the foe.***<br>***DICAEOPOLIS. Show him up, would you, for a lantern wick?***<br>***NICARCHUS. Aye, for that lantern wick will fire the docks.***<br>***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***<br>***NICARCHUS. If a Boeotian stuck it in a beetle,<br>And sent it, lighted, down a watercourse<br>Straight to the docks, watching when Boreas blew<br>His stiffest breeze, then if the ships caught fire, <br>They'd blaze up in an instant.***<br>***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***<br>***NICARCHUS. Bear witness!***<br>
->>>>    ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
+> # ***"that lantern wick will fire the docks."***
+> ***NICARCHUS. ... A lantern wick you are bringing from the foe.***<br>***DICAEOPOLIS. Show him up, would you, for a lantern wick?***<br>***NICARCHUS. Aye, for that lantern wick will fire the docks.***<br>***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***<br>***NICARCHUS. If a Boeotian stuck it in a beetle,<br>And sent it, lighted, down a watercourse<br>Straight to the docks, watching when Boreas blew<br>His stiffest breeze, then if the ships caught fire, <br>They'd blaze up in an instant.***<br>***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***<br>***NICARCHUS. Bear witness!***<br>
+>>    ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
 
->>> # ***"master of his own establishment"***<br>
->>> ***"My own complete happiness, and the home-centred interests which rise up around the man who first finds himself master of his own establishment, were sufficient to absorb all my attention."***
->>>>    ***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
+> # ***"master of his own establishment"***<br>
+> ***"My own complete happiness, and the home-centred interests which rise up around the man who first finds himself master of his own establishment, were sufficient to absorb all my attention."***
+>>    ***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
 
->>> # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
->>> # ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***<br>
->>> ## ***"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years. Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***<br>
->>>> ### ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
+> # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
+> # ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***<br>
+> ## ***"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years. Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***<br>
+>> ### ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
 
->>> # ***"make themselves to home"***<br>
->>> ***"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to "make themselves to home." "***<br>
->>>> ***- <ins>Captives Of The Desert</ins>, Chap. 2, Zane Grey, 1925-6***
+> # ***"make themselves to home"***<br>
+> ***"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to "make themselves to home." "***<br>
+>> ***- <ins>Captives Of The Desert</ins>, Chap. 2, Zane Grey, 1925-6***
 
->>> # ***"the highest percentage of landowners"***<br>
->>> ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."***<br>
->>>> ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
+> # ***"the highest percentage of landowners"***<br>
+> ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."***<br>
+>> ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
 
 # ***THE HOMELESS DOLLAR. Part 13. Nothin' to trade on. Only speculate.***<br>
 # ***No truth.***<br>
