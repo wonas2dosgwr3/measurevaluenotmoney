@@ -111,7 +111,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 <br>***High house value is***<br>
 > <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
-> ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!***</ins><br><br>
+> ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!</ins><br><br>
 > <ins>***MEASURED "MONEY" CAN'T STAND FOR HUMAN LABOR!!!, NEITHER CAN LAND!!!</ins> - so the money measurers, seeking cover, make their <ins>MEASURED "MONEY" STAND FOR LAND!!!!! A HUGE PRICE DISTORTION!!!!!</ins> Because without measured "money" LAND (NO <ins>PRODUCT</ins> OF HUMAN LABOR) MUST <ins>SERVE</ins> HUMAN LABOR, <ins>must be affordable</ins>, because <ins>housing must be affordable</ins>, because <ins>exchanging things (commerse) can only happen between homeowners.***</ins><br><br>
 > ***THE PRICE DISTORTION INVITES THE CURRENCY SPECULATION THE MONEY MEASURERS LIVE FOR, HOUSES ARE FOR SPORTING WITH FOR THEM, NOT MAINLY FOR LIVING IN, NOT FOR GETTING ATTACHED TO, NOT FOR FAMILIES OR ANYONE'S CASTLE.***<br>
 >> ***The real estate speculators (currency speculators labeled according to the price distortion which attracts them) said repeatedly most people, when they buy a house, only keep it for 5 years, then move to another one.***`*`<br><br>`*` wonas2ds3sp personal encounter.<br><br>
