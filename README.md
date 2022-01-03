@@ -79,7 +79,7 @@
 ***High house value is***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br><br>
 > <ins>***NO PAYMENTS ABOUT IT!!!!!***</ins><br><br>
-> ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!</ins>***<br><br>
+> ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!!!</ins>***<br><br>
 > <ins>***WHO COULD ASK FOR MORE?????***</ins><br><br>
 > ***Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins>***<br><br>
 > ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br>
