@@ -84,7 +84,11 @@
 > ***Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins>***<br><br>
 > ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br>
 
-## ***THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
+> ## ***"That hope never died ... "***<br>
+> *"How many beautiful, fertile, lonely bits of rangeland had inspired the same desire for a farm, a few horses and cattle,* <ins>***a home! That hope never died ... "***</ins><br>
+>[formatting added]<br><br>   ***- <ins>Raiders Of Spanish Peaks</ins>, Zane Grey, 1931, 1932, 1938. Chap. 1***<br>
+
+## ***<br>THE HOMELESS DOLLAR. Part 5. Measure THE SAFETY OF HOUSES, not money.***  
 
 ### ***Gold and silver are never homeless, everyone will take personal responsibility for them, never change the amount of money in the world or otherwise change the subject or defy the dictionary, always measure THE SAFETY OF HOUSES, the safer the house the more SPECIALIZATION (VALUE) takes place, the more private property (VALUE) comes to market. A STANDARD OF VALUE is a STANDARD OF THE SAFETY OF HOUSES.***
 
