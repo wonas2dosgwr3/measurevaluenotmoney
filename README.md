@@ -265,7 +265,9 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ## ***- <ins>The Lay of the Last Minstrel</ins>, Sir Walter Scott, 1805***
 
-# ***THE HOMELESS (ABNORMAL) DOLLAR. Part 16. The <ins>ABNORMALITY RATE</ins> is what matters. There is no inflation rate. The only reason to sabotage a standard of measurement is to sabotage measurements. <ins>The amount of money never changes.</ins> The money measurers on-going business is on-going sabotaging of prices, making them ever-more abnormal, ever larger bubbles that speculators sport with.***
-
-## ***If prices were legitimate (accurate measurements), the marketplace would be inundated with private property, a rising standard of living.*** Abnormal prices (inaccurate measurements) advertise danger, some people more equal than others, a place to avoid, the influence of non-industrious people, people looking for spoils (plunder), not a place for everyone. Abnormal behaviour. No one will take personal responsibility for the abnormal dollar. ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of constant monkey business prices today are far more warped (bigger bubbles) than in 1950.***
+## ***THE HOMELESS (ABNORMAL) DOLLAR. Part 16. The <ins>ABNORMALITY RATE</ins> is what matters. There is no inflation rate.***<br>
+## ***The only reason to sabotage a standard of measurement is to sabotage measurements. <ins>The amount of money never changes.</ins> The money measurers on-going business is on-going sabotaging of prices, making them ever-more abnormal, ever larger bubbles that speculators sport with.***<br><br>
+### ***If prices were legitimate (accurate measurements), the welcome mat would be out for private property, the marketplace would be inundated with private property, a rising standard of living.***<br>
+Abnormal prices (inaccurate measurements) advertise danger, some people more equal than others, a place to avoid, the influence of non-industrious people, people looking for spoils (plunder), not a place for everyone. Abnormal behaviour. No one will take personal responsibility for the abnormal dollar.<br>
+### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of constant monkey business prices today are far more warped (bigger bubbles) than in 1950.***
 
