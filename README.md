@@ -249,12 +249,12 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ## ***THE HOMELESS DOLLAR. Part 15. Less-productive gold mines beginning to be worked, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>.***<br>
 ### ***As the wolves in sheep's clothing claiming to measure money are STOPPED FROM WASTING THE RESOURCES THEY NEVER COULD HAVE EARNED, THUS NEVER COULD KNOW THE VALUE OF, have stolen; stopped from <ins>THEIR RELENTLESS LOWERING</ins> of the dollar's value.<br><br>What children are taught <ins>AT HOME!!!</ins><br><br>Money circulates <ins>BETWEEN HOMES!!!</ins><br><br>Human nature (exchanging things) <ins>COULD NEVER BE INTERFERENCE WITH HOMES!!!</ins><br><br>Money is backed by a standard , THE STANDARD IS BACKED BY A HOME - BY EVERY PERSON'S HOME, BY EVERY PERSON, BY THE HOME THAT NATURALLY GOES WITH EVERY PERSON. IT'S EVERY PERSON'S PRICETAG ON THEIR PRIVATE PROPERTY. <ins>MONEY CIRCULATES BETWEEN HOMES, IS BACKED BY HOMES.</ins>***<br>
 
->> ## ***Better than gold: <ins>All the things money buys</ins> - AND!!!!! - never bought. HOME!!!!!***<br>
->> ### ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>
->> ### ***Gold = money:***<br>
->>> #### ***"Better than gold is a peaceful home  Where all the fireside characters come,<br>The shrine of love, the heaven of life,<br>Hallowed by mother, or sister, or wife.<br>However humble the home may be,<br>Or tried with sorrow by heaven's decree,<br>The blessings <ins>that never were bought or sold</ins><br>And center there, are better than gold."***
->>> [formatting added]<br>
->>>>> ### ***- "Better than Gold" (partial), Abram J. Ryan***
+> ## ***Better than gold: <ins>All the things money buys</ins> - AND!!!!! - never bought. HOME!!!!!***<br>
+> ### ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>
+> ### ***Gold = money:***<br>
+>> #### ***"Better than gold is a peaceful home  Where all the fireside characters come,<br>The shrine of love, the heaven of life,<br>Hallowed by mother, or sister, or wife.<br>However humble the home may be,<br>Or tried with sorrow by heaven's decree,<br>The blessings <ins>that never were bought or sold</ins><br>And center there, are better than gold."***
+>> [formatting added]<br>
+>> ### ***- "Better than Gold" (partial), Abram J. Ryan***
 
 
 # ***"Native Land<br>***
