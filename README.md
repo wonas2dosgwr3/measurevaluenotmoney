@@ -269,5 +269,5 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ### ***If prices were legitimate (accurate measurements), the marketplace would be inundated with private property, a rising standard of living.***<br> 
 Abnormal prices (inaccurate measurements) advertise danger, some people more equal than others, a place to avoid, the influence of non-industrious people, people looking for spoils (plunder), not a place for everyone. Abnormal behaviour. No one will take personal responsibility for the abnormal dollar.<br>
-### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of constant monkey business prices today are <ins>far more warped (bigger bubbles)</ins> than in 1950.***
+### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of <ins>constant monkey business</ins> prices today are <ins>far more warped (bigger bubbles)</ins> than in 1950.***
 
