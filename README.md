@@ -264,7 +264,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 [formatting added]
 
 ## ***- <ins>The Lay of the Last Minstrel</ins>, Sir Walter Scott, 1805***
-Z
+
 ## ***THE HOMELESS (ABNORMAL) DOLLAR. Part 16. The <ins>ABNORMALITY RATE</ins> is what matters. <ins>The amount of money never changes.</ins> There is no inflation rate.<br><br>The only reason to sabotage a standard of measurement is to sabotage measurements. <ins>The amount of money never changes.</ins> The money measurers on-going business is <ins>on-going sabotaging of prices, making them ever-more abnormal, ever larger bubbles that speculators sport with.***</ins>
 
 ### ***If prices were legitimate (accurate measurements), the marketplace would be inundated with private property, a rising standard of living.***<br> 
