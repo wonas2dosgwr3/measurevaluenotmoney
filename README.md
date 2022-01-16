@@ -259,20 +259,17 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 # ***"Native Land<br>***
 
-### ***Breathes there the man with soul so dead,<br>Who never to himself hath said,<br>'This is my own, my native land!'<br>Whose heart hath ne'er within him burn'd<br>As <ins>home</ins> his footsteps he hath turn'd<br>From wandering on a foreign strand?<br>If such there breathe, go, mark him well;<br>For him no minstrel raptures swell;<br>High though his titles, proud his name,<br>Boundless his wealth as wish can claim;<br>Despite those titles, power, and pelf,<br>The wretch, concentrated all in self,<br>Living, shall forfeit fair renown,<br>And, doubly dying, shall go down<br>To the vile dust from whence he sprung,<br>Unwept, unhonour'd, and unsung."***
-
-[formatting added]
-
-## ***- <ins>The Lay of the Last Minstrel</ins>, Sir Walter Scott, 1805***
+### ***Breathes there the man with soul so dead,<br>Who never to himself hath said,<br>'This is my own, my native land!'<br>Whose heart hath ne'er within him burn'd<br>As <ins>home</ins> his footsteps he hath turn'd<br>From wandering on a foreign strand?<br>If such there breathe, go, mark him well;<br>For him no minstrel raptures swell;<br>High though his titles, proud his name,<br>Boundless his wealth as wish can claim;<br>Despite those titles, power, and pelf,<br>The wretch, concentrated all in self,<br>Living, shall forfeit fair renown,<br>And, doubly dying, shall go down<br>To the vile dust from whence he sprung,<br>Unwept, unhonour'd, and unsung."***<br>
+[formatting added]<br>
+####  - <ins>The Lay of the Last Minstrel</ins>, Sir Walter Scott, 1805<br><br>
 
 > ## ***" ... a real sense of home. <ins>We did not build this house for resale value</ins> ... "***
 > ### ***" ... it's a human thing, it's a real sense of home. <ins>We did not build this house for resale value</ins>, we built it because we wanted to create a place to live in that was nurturing to who we are as people"***<br>
 > [formatting added]
-> ### ***- Ann Baird about her cob home. "Groundwork Episode 1 - Building With Cob"***<br>https://youtu.be/InJrWLK-wHc
+> ### ***- Ann Baird about her cob home. "Groundwork Episode 1 - Building With Cob"***<br>https://youtu.be/InJrWLK-wHc<br>
 
 
-
-## ***THE HOMELESS (ABNORMAL) DOLLAR. Part 16. The <ins>ABNORMALITY RATE</ins> is what matters. <ins>The amount of money never changes.</ins> There is no inflation rate.***<br><br>***The only reason to sabotage a standard of measurement is to sabotage measurements. <ins>The amount of money never changes.</ins> The money measurers on-going business is <ins>on-going sabotaging of prices, making them ever-more abnormal, ever larger bubbles that speculators sport with.</ins>***
+## ***<br>THE HOMELESS (ABNORMAL) DOLLAR. Part 16. The <ins>ABNORMALITY RATE</ins> is what matters. <ins>The amount of money never changes.</ins> There is no inflation rate.***<br><br>***The only reason to sabotage a standard of measurement is to sabotage measurements. <ins>The amount of money never changes.</ins> The money measurers on-going business is <ins>on-going sabotaging of prices, making them ever-more abnormal, ever larger bubbles that speculators sport with.</ins>***
 ### ***If prices were legitimate (accurate measurements), the marketplace would be inundated with private property, a rising standard of living.***<br> 
 Abnormal prices (inaccurate measurements) advertise danger, some people more equal than others, a place to avoid, the influence of non-industrious people, people looking for spoils (plunder), not a place for everyone. Abnormal behaviour. No one will take personal responsibility for the abnormal dollar.
 ### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of <ins>constant monkey business</ins> prices today are <ins>far more warped (bigger bubbles)</ins> than in 1950.***
