@@ -25,14 +25,18 @@
  **is the whole idea of a money economy,** its great advantage over the primitive condition of financial complexity (barter economy), MEASURING VALUE, NOT THE HOAX (FINANCIAL COMPLEXITY) OF MEASURING A STANDARD OF MEASUREMENT.<br><br>***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? ***A photo ID*** to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)? A photo ID*** to make measurements? ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***<br><br>GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!***<br><br>Life, liberty, and the pursuit of happiness means disrupt housing?<br>
 
 * > ## *<br>By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
-
+https://www.gutenberg.org/files/39487/39487-h/39487-h.htm
 # ***THE HOMELESS DOLLAR***
 ***Without an ID, the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!, houses and their occupants are NO LONGER SAFE! HOMELESS HOUSES AND HOMELESS PEOPLE!!! Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
 
 >>* <br>*Real stimulus is life, liberty, and the pursuit of happiness.*
 
 # ***<br>THE HOMELESS DOLLAR. Part 2***<br>
-## ***Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
+## ***Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which <ins>even the experts can never agree upon.</ins> PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
+
+> "and she [Nature] hath also set among some of them [beasts] ***continual dissension and debate"***<br>[formatting added]<br><br>***- Erasmus, <ins>Treatise On War</ins>, 1515***,
+
+> ## ***"INTRODUCTION <br><br>The Treatise on War, of which the earliest English translation is here reprinted, was among the most famous writings of the most illustrious writer of his age."  - J. W. Mackail<br><br>"AGAINST WAR<br><br>DULCE BELLUM INEXPERTIS***<br><br>It is both an elegant proverb, and among all others, by the writings of many excellent authors, full often and solemnly used, ***Dulce bellum inexpertis, that is to say, War is sweet to them that know it not.*** ... ... <br><br>For whereas Nature hath armed all other beasts with their own armour, ... to some she hath given a much horrible and ugly look, she hath given terrible eyes and grunting voice; and she hath also set among some of them ***continual dissension and debate***—man alone she hath brought forth all naked, weak, tender, and without any armour,"<br>[formatting added]<br><br>- Erasmus. <ins>Treatise On War</ins>, 1515. THE HUMANISTS’ LIBRARY, Edited by Lewis Einstein, II, ERASMUS AGAINST WAR, WITH AN INTRODUCTION BY J·W·MACKAIL, 1907***<br>https://www.gutenberg.org/files/39487/39487-h/39487-h.htm
 
 > ***LA MONEDA NUEVA***
 
@@ -121,10 +125,25 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ***THE PRICE DISTORTION INVITES THE CURRENCY SPECULATION THE MONEY MEASURERS LIVE FOR, HOUSES ARE FOR SPORTING WITH FOR THEM, NOT MAINLY FOR LIVING IN, NOT FOR GETTING ATTACHED TO, NOT FOR FAMILIES OR ANYONE'S CASTLE.***<br>
 >> ***The real estate speculators (currency speculators labeled according to which particular one of the many distorted prices the money measurers cause has attracted them, diverted them from industrious behavior to a game of chance) said repeatedly most people, when they buy a house, only keep it for 5 years, then move to another one.***`*`<br><br>`*` wonas2ds3sp personal encounter.<br><br>
 
-##  ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
+##  ***THE HOMELESS DOLLAR. Part 9. Cultivating UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS. Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT). Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES). Vastly outnumbered by MONEY EARNERS (MEASURING MONEY'S VALUE ABOVE ZERO). Thin ice at the breaking point.***<br>
 
 ### ***If all the people distracted with earning their dollars realized those dollars originate unearned, it would be the end of the money measurers, the certainty of what children are taught would prevail, human needs (real investment) would no longer be ignored.***
 
+> # "and she [Nature] hath also set among some of them [beasts] ***continual dissension and debate"*** [formatting added]  ***- Erasmus, Treatise On War, 1515***,
+
+> ## ***"INTRODUCTION***
+ 
+> ## ***The Treatise on War, of which the earliest English translation is here reprinted, was among the most famous writings of the most illustrious writer of his age."  - J. W. Mackail***
+
+> ## ***"AGAINST WAR***
+
+> ## ***DULCE BELLUM INEXPERTIS***
+ 
+> ## ***It is both an elegant proverb, and among all others, by the writings of many excellent authors, full often and solemnly used, Dulce bellum inexpertis, that is to say, War is sweet to them that know it not. ... ... ***)
+> ## ***For whereas Nature hath armed all other beasts with their own armour, ... to some she hath given a much horrible and ugly look, she hath given terrible eyes and grunting voice; and she hath also set among some of them continual dissension and debate—man alone she hath brought forth all naked, weak, tender, and without any armour," [formatting added]***
+
+> ## ***- Erasmus. Treatise On War, 1515. THE HUMANISTS’ LIBRARY, Edited by Lewis Einstein, II, ERASMUS AGAINST WAR, WITH AN INTRODUCTION BY J·W·MACKAIL, 1907***
+>https://pwww.gutenberg.org/files/39487/39487-h/39487-h.htm
 
 
 ## ***THE HOMELESS DOLLAR. Part 10. Real estate speculation is currency speculation. NEGLECTING YOURSELF!!!***
