@@ -38,9 +38,9 @@
 
 > ### ***"INTRODUCTION <br><br>The Treatise on War, of which the earliest English translation is here reprinted, was among the most famous writings of the most illustrious writer of his age."  - J. W. Mackail<br><br>"AGAINST WAR<br><br>DULCE BELLUM INEXPERTIS***<br><br>It is both an elegant proverb, and among all others, by the writings of many excellent authors, full often and solemnly used, ***Dulce bellum inexpertis, that is to say, War is sweet to them that know it not.*** ... ... <br><br>For whereas Nature hath armed all other beasts with their own armour, ... to some she hath given a much horrible and ugly look, she hath given terrible eyes and grunting voice; and she hath also set among some of them <ins>***continual dissension and debate***</ins>—man alone she hath brought forth all naked, weak, tender, and without any armour,"<br>[formatting added]<br><br>***- Erasmus. <ins>Treatise On War</ins>, 1515. THE HUMANISTS’ LIBRARY, Edited by Lewis Einstein, II, ERASMUS AGAINST WAR, WITH AN INTRODUCTION BY J·W·MACKAIL, 1907***<br>https://www.gutenberg.org/files/39487/39487-h/39487-h.htm
 
-***LA MONEDA NUEVA***
+# ***LA MONEDA NUEVA***
 
-***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
+## ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
 [Formatting added. Wonas2ds3sp personal encounter]<br><br>
 
 ***<br>High house value is***<br>
