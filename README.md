@@ -34,9 +34,12 @@
 # ***<br>THE HOMELESS DOLLAR. Part 2***<br>
 ## ***Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which <ins>even the experts can never agree upon.</ins> PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
 
-> # ***continual dissension and debate"***<br>***- Erasmus, <ins>Treatise On War</ins>, 1515***<br><br>
+> # ***continual dissension and debate"***
+> ## ***- Erasmus, <ins>Treatise On War</ins>, 1515***
+> ## ***some beasts***<br><br>
 
-> ### ***"INTRODUCTION <br><br>The Treatise on War, of which the earliest English translation is here reprinted, was among the most famous writings of the most illustrious writer of his age."  - J. W. Mackail<br><br>"AGAINST WAR<br><br>DULCE BELLUM INEXPERTIS***<br><br>It is both an elegant proverb, and among all others, by the writings of many excellent authors, full often and solemnly used, ***Dulce bellum inexpertis, that is to say, War is sweet to them that know it not.*** ... ... <br><br>For whereas Nature hath armed all other beasts with their own armour, ... to some she hath given a much horrible and ugly look, she hath given terrible eyes and grunting voice; and she hath also set among some of them <ins>***continual dissension and debate***</ins>—man alone she hath brought forth all naked, weak, tender, and without any armour,"<br>[formatting added]<br><br>***- Erasmus. <ins>Treatise On War</ins>, 1515. THE HUMANISTS’ LIBRARY, Edited by Lewis Einstein, II, ERASMUS AGAINST WAR, WITH AN INTRODUCTION BY J·W·MACKAIL, 1907***<br>https://www.gutenberg.org/files/39487/39487-h/39487-h.htm
+> ### ***"INTRODUCTION <br><br>The Treatise on War, of which the earliest English translation is here reprinted, was among the most famous writings of the most illustrious writer of his age."  - J. W. Mackail***<br><br><br>
+> "AGAINST WAR<br><br>DULCE BELLUM INEXPERTIS<br><br>It is both an elegant proverb, and among all others, by the writings of many excellent authors, full often and solemnly used, ***Dulce bellum inexpertis, that is to say, War is sweet to them that know it not.*** ... ... <br><br>For whereas Nature hath armed all other beasts with their own armour, ... to some she hath given a much horrible and ugly look, she hath given terrible eyes and grunting voice; and she hath also set among some of them ***continual dissension and debate***—man alone she hath brought forth all naked, weak, tender, and without any armour,"<br>[formatting added]<br><br>***- Erasmus. <ins>Treatise On War</ins>, 1515. THE HUMANISTS’ LIBRARY, Edited by Lewis Einstein, II, ERASMUS AGAINST WAR, WITH AN INTRODUCTION BY J·W·MACKAIL, 1907***<br>https://www.gutenberg.org/files/39487/39487-h/39487-h.htm
 
 # ***LA MONEDA NUEVA***
 
@@ -247,7 +250,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ## ***housing***
 
-"It was the destiny of Forlorn River, however, never to return to the slow, sleepy tenor of its former existence. ... That straggling line of ***home-seekers*** was but a forerunner of the real invasion of Alter Valley. Refugees from Mexico and from Casita spread the word that water and wood and grass and land were to be had at Forlorn River; ***and as if by magic the white tents and red adobe houses sprang up to glisten in the sun."***<br>[formatting added]<br><br>***- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap. 13. Changes at Forlorn River***<br><br>
+"It was the destiny of Forlorn River, however, never to return to the slow, sleepy tenor of its former existence. ... That straggling line of ***home-seekers*** was but a forerunner of the real invasion of Alter Valley. Refugees from Mexico and from Casita spread the word that water and wood and grass and land were to be had at Forlorn River; ***and <ins>as if by magic</ins> the white tents and red adobe houses sprang up to glisten in the sun."***<br>[formatting added]<br><br>***- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap. 13. Changes at Forlorn River***<br><br>
 
 
 > # ***measure value (fruits of toil) because ... ... every INCH ...***<br>
