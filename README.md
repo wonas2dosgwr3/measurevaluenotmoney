@@ -145,6 +145,25 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ## ***THE HOMELESS (NON-CIRCULATING, DEBT-POWERED, MISERY-POWERED, HUMAN NEEDS-AVOIDING) DOLLAR. Part 11. Changing HANDS is not enough.***
 
+> ## ***real estate developers from New York***
+
+> ### ***measuring money, trashing value***
+
+> ### ***"I knew I was in trouble when one of them asked, "Will all this stuff affect my DNA?" "  - Greg Leyh, giant Tesla coil researcher, September  2017***
+
+> ### ***promptly kicked out***
+
+
+> "However, this photo [of Greg Leyh's new 40 ft Tesla tower] was taken at a key moment ... ah ... the coil is leaving the lab space for the last time and going to a storage facility.   I recently lost ... a ... my lab space here, that I've had for the last 8 years, ... a ... when real estate developers from New York bought the entire American Steel site. You might imagine their response upon seeing my workspace for the first time. I knew I was in trouble when one of them asked, "Will all this stuff affect my DNA?"<br><br>So, ... I was promptly kicked out, a ... along with many other workshops and artists there, including ... ... Karen Cusolito, the artist who actually founded American Steel Studios. Now, 8 years ago it was pretty easy to find another industrial space. But nowadays, even undesirable spots like American Steel are bein' scooped up by developers. So, right now everything's in storage, and the project is pretty much dead in the water. But, ... I have a plan to replace this lab space ...  The plan is to get a custom cargo trailer, and outfit it with all the tower components, instruments and a workshop. Since the tower itself is fully collapsable, ... a ... the entire system can pack into a single18 ft trailer. There's many great desolate spots around the Bay area that would make perfect test sites, but they don't have usable buildings or utilities. However, a self-contained mobile lab could just roll into one of these sites, set up, perform experiments, and then roll out. All without needing any building space, administrative overhead, or hookups. Storing a trailer is also much, much easier than finding reliable lab space in Oakland these days. So right now, ... a ... the new 40 ft Tesla tower is almost ready to fire up, but everything's in storage until the ...a ... mobile lab is ready."
+
+>  ***- Greg Leyh, "The Secret Life of Lightning: The Science of Giant Tesla Coils", September 26, 2017, Conversations at the Interval, The Long Now Foundation***
+
+https://youtu.be/ntIBDVCfATA
+
+
+
+
+
 ### ***Dollars that change HANDS BUT NOT HOUSES are NOT CIRCULATING!!! Debt is NON-CIRCULATING!!! money, does not make borrowers owners of houses or anything else, no matter how loudly the money measurers say it does. NO OWNERSHIP, NO TRANSACTION, NO CIRCULATION!!! Money needed for housing cost can't circulate, will only leave home after house cost has been paid, WHEN HOUSING IS AFFORDABLE!!! The homeless dollar doesn't move, stagnates building up debt instead of ownership, bogus instead of affordable prices, avoiding instead of addressing human needs.***
 
 > # ***"This California ... ... these peoples mus' have things."***
