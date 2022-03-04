@@ -283,15 +283,24 @@ s>
 
 
 # ***"Native Land<br>***
-
 ### ***Breathes there the man with soul so dead,<br>Who never to himself hath said,<br>'This is my own, my native land!'<br>Whose heart hath ne'er within him burn'd<br>As <ins>home</ins> his footsteps he hath turn'd<br>From wandering on a foreign strand?<br>If such there breathe, go, mark him well;<br>For him no minstrel raptures swell;<br>High though his titles, proud his name,<br>Boundless his wealth as wish can claim;<br>Despite those titles, power, and pelf,<br>The wretch, concentrated all in self,<br>Living, shall forfeit fair renown,<br>And, doubly dying, shall go down<br>To the vile dust from whence he sprung,<br>Unwept, unhonour'd, and unsung."***<br>
 [formatting added]<br>
 ####  - <ins>The Lay of the Last Minstrel</ins>, Sir Walter Scott, 1805<br><br>
-
 > ## ***" ... a real sense of home. <ins>We did not build this house for resale value</ins> ... "***
 > ### ***" ... it's a human thing, it's a real sense of home. <ins>We did not build this house for resale value</ins>, we built it because we wanted to create a place to live in that was nurturing to who we are as people"***<br>
 > [formatting added]
-> ### ***- Ann Baird about her cob home. "Groundwork Episode 1 - Building With Cob"***<br>https://youtu.be/InJrWLK-wHc<br>
+> ### ***- Ann Baird about her cob home. "Groundwork Episode 1 - Building With Cob"***<br>https://youtu.be/InJrWLK-wHc<br><br>
+
+> # ***A mal tiempo, buena cara***<br>
+> ***Spanish proverb - Look on the bright side, make the best of it, etc.***<br>
+> ## ***Homeless is mal tiempo (adversity) ...***<br>
+> ***Might as well build a house*** ... no big deal ... but what matters is staying occupied - with something ... ***lotta time to kill*** ... stranded in the desert ... at  a waterhole ... Can't travel til rain comes ... ***long wait*** ...<br>
+>### ***"Thorne, you're the luckiest. ... Now with a few tools an' little material see what a grand house you can build ... "***<br>
+>> - <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 16, Mountain Sheep
+>## ***Buena cara is build a house, get SQUATTERS' RIGHTS ...***<br>
+>***"As to mining and water claims,*** you lost on this technical point - that you had nothing to prove you had held them for ***five years. Five years is the time necessary in law.*** A dozen men might claim the source of Forlorn River, but if they had <ins>***no house or papers to prove their squatters' rights***</ins> any man could go in and fight them for the water."<br>
+>>- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 17, The Whistle Of A Horse
+
 
 
 ## ***<br>THE HOMELESS (ABNORMAL) DOLLAR. Part 16. The <ins>ABNORMALITY RATE</ins> is what matters. <ins>The amount of money never changes.</ins> There is no inflation rate.***<br><br>***The only reason to sabotage a standard of measurement is to sabotage measurements. <ins>The amount of money never changes.</ins> The money measurers on-going business is <ins>on-going sabotaging of prices, making them ever-more abnormal, ever larger bubbles that speculators sport with.</ins>***
