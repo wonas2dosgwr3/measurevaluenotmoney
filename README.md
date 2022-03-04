@@ -289,17 +289,17 @@ s>
 > ## ***" ... a real sense of home. <ins>We did not build this house for resale value</ins> ... "***
 > ### ***" ... it's a human thing, it's a real sense of home. <ins>We did not build this house for resale value</ins>, we built it because we wanted to create a place to live in that was nurturing to who we are as people"***<br>
 > [formatting added]
-> ### ***- Ann Baird about her cob home. "Groundwork Episode 1 - Building With Cob"***<br>https://youtu.be/InJrWLK-wHc<br><br>
+> ### ***- Ann Baird about her cob home. "Groundwork Episode 1 - Building With Cob"***<br>https://youtu.be/InJrWLK-wHc<br>
 
-> # ***A mal tiempo, buena cara***<br>
-> ***Spanish proverb - Look on the bright side, make the best of it, etc.***<br>
-> ## ***Homeless is mal tiempo (adversity) ...***<br>
-> ***Might as well build a house*** ... no big deal ... but what matters is staying occupied - with something ... ***lotta time to kill*** ... stranded in the desert ... at  a waterhole ... Can't travel til rain comes ... ***long wait*** ...<br>
->### ***"Thorne, you're the luckiest. ... Now with a few tools an' little material see what a grand house you can build ... "***<br>
->> - <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 16, Mountain Sheep
->## ***Buena cara is build a house, get SQUATTERS' RIGHTS ...***<br>
->***"As to mining and water claims,*** you lost on this technical point - that you had nothing to prove you had held them for ***five years. Five years is the time necessary in law.*** A dozen men might claim the source of Forlorn River, but if they had <ins>***no house or papers to prove their squatters' rights***</ins> any man could go in and fight them for the water."<br>
->>- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 17, The Whistle Of A Horse
+>> # ***A mal tiempo, buena cara***<br>
+>> ***Spanish proverb - Look on the bright side, make the best of it, etc.***
+>> ## ***Homeless is mal tiempo (adversity) ...***
+>> ***<ins>Might as well build a house</ins>*** ... no big deal ... but what matters is staying occupied - with something ... ***lotta time to kill*** ... stranded in the desert ... at  a waterhole ... Can't travel til rain comes ... ***long wait*** ...<br>
+>> ### ***"Thorne, you're the luckiest. ... Now with a few tools an' little material see <ins>what a grand house you can build ... "</ins>***<br>
+>>> - <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 16, Mountain Sheep
+>> ## ***Buena cara is build a house, get <ins>SQUATTERS' RIGHTS</ins> ...***<br>
+>> ***"As to mining and water claims,*** you lost on this technical point - that you had nothing to prove you had held them for ***<ins>five years. Five years</ins> is the time necessary in law.*** A dozen men might claim the source of Forlorn River, but if they had <ins>***no house or papers to prove their squatters' rights***</ins> any man could go in and fight them for the water."<br>
+>>> ***- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 17, The Whistle Of A Horse***
 
 
 
