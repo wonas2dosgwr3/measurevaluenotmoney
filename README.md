@@ -276,7 +276,7 @@ s>
 
 > ## ***Better than gold: <ins>All the things money buys</ins> - AND!!!!! - never bought. HOME!!!!!***<br>
 > ### ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>
-> ### ***Gold = money:***<br>
+> ### ***Gold = money:***<br>br
 >> #### ***"Better than gold is a peaceful home  Where all the fireside characters come,<br>The shrine of love, the heaven of life,<br>Hallowed by mother, or sister, or wife.<br>However humble the home may be,<br>Or tried with sorrow by heaven's decree,<br>The blessings <ins>that never were bought or sold</ins><br>And center there, are better than gold."***
 >> [formatting added]<br>
 >> ### ***- "Better than Gold" (partial), Abram J. Ryan***
@@ -299,8 +299,8 @@ s>
 >>> - <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 16, Mountain Sheep
 >> ## ***Buena cara is build a house, get <ins>SQUATTERS' RIGHTS</ins> ...***<br>
 >> ***"As to mining and water claims,*** you lost on this technical point - that you had nothing to prove you had held them for ***<ins>five years. Five years</ins> is the time necessary in law.*** A dozen men might claim the source of Forlorn River, but if they had <ins>***no house or papers to prove their squatters' rights***</ins> any man could go in and fight them for the water."<br>
->>> ***- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 17, The Whistle Of A Horse***
-
+>>> ***- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 17, The Whistle Of A Horse***<br>
+>> ## ***5 years??? <ins>DECADES!!!!! of homeless people and foreclosures</ins>. What's become of <ins>SQUATTERS' RIGHTS????? HUMAN NEEDS RIGHTS????? NATURAL LAW?????</ins><br>Only the returning barbarism of human needs-trampling money measuring can explain it.***
 
 
 ## ***<br>THE HOMELESS (ABNORMAL) DOLLAR. Part 16. The <ins>ABNORMALITY RATE</ins> is what matters. <ins>The amount of money never changes.</ins> There is no inflation rate.***<br><br>***The only reason to sabotage a standard of measurement is to sabotage measurements. <ins>The amount of money never changes.</ins> The money measurers on-going business is <ins>on-going sabotaging of prices, making them ever-more abnormal, ever larger bubbles that speculators sport with.</ins>***
