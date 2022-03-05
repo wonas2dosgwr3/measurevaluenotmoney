@@ -24,16 +24,20 @@
 ## <br>***Real stimulus***<br> 
  **is the whole idea of a money economy,** its great advantage over the primitive condition of financial complexity (barter economy), MEASURING VALUE, NOT THE HOAX (FINANCIAL COMPLEXITY) OF MEASURING A STANDARD OF MEASUREMENT.<br><br>***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? ***A photo ID*** to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)? A photo ID*** to make measurements? ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***<br><br>GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!<br><br>Life, liberty, and the pursuit of happiness means disrupt housing?
 
- ## *<br>By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*<br><br>
+ ## *<br>By definition, no one ever changed the amount of money in the world, people decide what a <ins>MEDIUM OF EXCHANGE</ins> is worth, not how much there is.*<br><br>
 
 # ***THE HOMELESS DOLLAR***
 ## ***<ins>Without an ID,</ins>*** 
-> ***the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!, houses and their occupants are NO LONGER SAFE! HOMELESS HOUSES AND HOMELESS PEOPLE!!! Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
+> ***the DOLLAR IS <ins>HOMELESS</ins>, no one will take personal responsibility for it as such. DISTORTED VALUE IS <ins>HOMELESS!</ins>, houses and their occupants are NO LONGER SAFE! <ins>HOMELESS HOUSES</ins> AND <ins>HOMELESS PEOPLE!!!</ins><br><br>Distorted value, <ins>HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!</ins>***
 
-## <br><br>*Real stimulus is life, liberty, and the pursuit of happiness.*
+# <br><br>*Real stimulus*<br>
+# ***is life, liberty, and the pursuit of happiness.***
 
 # ***<br>THE HOMELESS DOLLAR. Part 2***<br>
-## ***Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which <ins>even the experts can never agree upon.</ins> PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
+## <ins>***Without an ID</ins>,<br><br>the dollar is <ins>homeless</ins>, no one will take personal responsibility for it as such.***<br>
+> **Nor as measured money either.** The measuring of money is conducted entirely as a<br>
+> ## ***<ins>very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!!***</ins><br>
+> The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place.<br><br>***BUYING AND SELLING (REAL TRANSACTIONS, PROSPERITY!!!) can't work for dollars with no ID, for measuring money - people and houses are safe, no turmoil, no distractions, <ins>nowhere for ID-less dollars to hide.***</ins><br><br>***BORROWING AND LENDING, and CHARITY, <ins>MISERY!!!, is the only way, transactions abandoned,</ins> replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
 
 > # ***continual dissension and debate"***
 > ## ***- Erasmus, <ins>Treatise On War</ins>, 1515***
@@ -47,7 +51,7 @@
 ## ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br> <br>"When the "Moneda Nueva" comes out, they <ins>change the number of zeroes and move the decimal point around</ins>."***<br>
 [Formatting added. Wonas2ds3sp personal encounter]<br><br>
 
-***<br>High house value is***<br>
+## ***<br>High house value is***<br>
 > ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***<br>
 
 # <br>***THE HOMELESS DOLLAR. Part 3***
@@ -79,7 +83,7 @@
 >> ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
 
 # <br>***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility <ins>FOR CHALLENGING THE DICTIONARY!!!</ins>***<br>
-### ***People decide what a standard of value is worth, not how much there is.*** 
+### ***People decide what a <ins>standard of value</ins> is worth, not how much there is.*** 
 ## ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***<br>
 *No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*<br>
 
@@ -120,7 +124,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > [Formatting added. Wonas2ds3sp translation]<br>
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
-<br>***High house value is***<br>
+## <br>***High house value is***<br>
 > <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
 > ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!</ins>***<br><br>
