@@ -109,7 +109,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ## ***THE HOMELESS (WITHOUT NATURAL LAW) DOLLAR. Part 7. LAWS AND THE JUDICIAL BRANCH OF GOVERNMENT WITHOUT A HOME*** 
 
-### ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***
+### ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***<br><br><br>
 
 > # ***"the old home town ... "***<br>
 > ### ***"EUELPIDES. ... A splendid city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while crickets chirp a month or two<br>Upon a bush, that stubborn folk will sit<br>And chirp on legal twigs till kingdom come!<br>That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."***<br>    
