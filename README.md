@@ -15,21 +15,22 @@
 
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***<br>
 
-***<br>High house value is***<br>
+## ***<br>High house value is***<br>
 > ***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
 
-## ***Real stimulus***<br> 
+## <br>***Real stimulus***<br> 
  **is measuring length and weight, not inches, ounces, or dollars. Measuring DEFINED inches, ounces, or dollars is impossible, they invariably serve their default purpose of measurement. Announcing UNDEFINED inches, ounces, and dollars would immediately fail. So, UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED. Distorting value, conferring undeserved value, is all that measured money (dollars with no ID) does. Without measured money, the distorted value of housing would end, EVICTIONS, FORECLOSURES, AND HOMELESS PEOPLE COULD NEVER BE ISSUES. The gold standard is no issue of the amount of money, it's the issue of ENDING DISTORTED VALUES.**
 
-## ***Real stimulus***<br> 
- **is the whole idea of a money economy,** its great advantage over the primitive condition of financial complexity (barter economy), MEASURING VALUE, NOT THE HOAX (FINANCIAL COMPLEXITY) OF MEASURING A STANDARD OF MEASUREMENT.<br><br>***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? ***A photo ID*** to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)? A photo ID*** to make measurements? ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***<br><br>GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!***<br><br>Life, liberty, and the pursuit of happiness means disrupt housing?<br>
+## <br>***Real stimulus***<br> 
+ **is the whole idea of a money economy,** its great advantage over the primitive condition of financial complexity (barter economy), MEASURING VALUE, NOT THE HOAX (FINANCIAL COMPLEXITY) OF MEASURING A STANDARD OF MEASUREMENT.<br><br>***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? ***A photo ID*** to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)? A photo ID*** to make measurements? ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***<br><br>GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!<br><br>Life, liberty, and the pursuit of happiness means disrupt housing?
 
-* > ## *<br>By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*
+ ## *<br>By definition, no one ever changed the amount of money in the world, people decide what a MEDIUM OF EXCHANGE is worth, not how much there is.*<br><br>
 
 # ***THE HOMELESS DOLLAR***
-***Without an ID, the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!, houses and their occupants are NO LONGER SAFE! HOMELESS HOUSES AND HOMELESS PEOPLE!!! Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
+## ***<ins>Without an ID,</ins>*** 
+> ***the DOLLAR IS HOMELESS, no one will take personal responsibility for it as such. DISTORTED VALUE IS HOMELESS!, houses and their occupants are NO LONGER SAFE! HOMELESS HOUSES AND HOMELESS PEOPLE!!! Distorted value, HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!***
 
->>* <br>*Real stimulus is life, liberty, and the pursuit of happiness.*
+## <br><br>*Real stimulus is life, liberty, and the pursuit of happiness.*
 
 # ***<br>THE HOMELESS DOLLAR. Part 2***<br>
 ## ***Without an ID, the dollar is homeless, no one will take personal responsibility for it as such. Nor as measured money either. The measuring of money is conducted entirely as a very deep subject which <ins>even the experts can never agree upon.</ins> PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!! The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place. BUYING AND SELLING can't work for dollars with no ID, for measuring money. People and houses are safe, no turmoil, no distractions, nowhere for ID-less dollars to hide. BORROWING AND LENDING, and CHARITY, is the only way, transactions abandoned, replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
@@ -77,11 +78,12 @@
 > # <br>***Saving the earth (THE HOMELESS EARTH)***
 >> ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
 
-# <br>***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility FOR CHALLENGING THE DICTIONARY!!! People decide what a standard of value is worth, not how much there is.*** 
-## ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***
-*No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*
+# <br>***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility <ins>FOR CHALLENGING THE DICTIONARY!!!</ins>***<br>
+### ***People decide what a standard of value is worth, not how much there is.*** 
+## ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***<br>
+*No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!! The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!*<br>
 
-***High house value is***<br>
+## <br>***High house value is***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br><br>
 > <ins>***NO PAYMENTS ABOUT IT!!!!!***</ins><br><br>
 > ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!!!</ins>***<br><br>
@@ -89,7 +91,7 @@
 > ***Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins>***<br><br>
 > ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br> `*` *Currency speculators ask for more, but* <ins>***only get less - enlarged bubbles (more-distorted prices) that only increase and sustain diversion of resources from human needs, impoverishing everyone.***</ins>
 
-> ## ***"That hope never died ... "***<br>
+# <br>***"That hope never died ... "***<br>
 > *"How many beautiful, fertile, lonely bits of rangeland had inspired the same desire for a farm, a few horses and cattle,* <ins>***a home! That hope never died ... "***</ins><br>
 >[formatting added]<br><br>   ***- <ins>Raiders Of Spanish Peaks</ins>, Zane Grey, 1931, 1932, 1938. Chap. 1***<br>
 
