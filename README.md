@@ -147,7 +147,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 ## <br><br>***HIGH LAND VALUE is <ins>YOU ABSOLUTELY OWN IT!!!, MINIMIZED, NOT HIGH, MONEY PRICES OF LAND!!!</ins>,  a nation of ABSOLUTE LAND OWNERS!!!***<br><br><br>
 
->> ## ***real estate developers from New York***<br>
+>> # ***real estate developers from New York***<br>
 >> ### ***measuring money, trashing value<br><br>"I knew I was in trouble when one of them asked, "Will all this stuff affect my DNA?" "  - Greg Leyh, giant Tesla coil researcher, September  2017<br><br>promptly kicked out***
 
 >> "However, this photo [of Greg Leyh's new 40 ft Tesla tower] was taken at a key moment ... ah ... the coil is leaving the lab space for the last time and going to a storage facility. ***I recently lost ... a ... my lab space here, that I've had for the last 8 years, ... a ... when <ins>real estate developers from New York bought the entire American Steel site.</ins>*** You might imagine their response upon seeing my workspace for the first time. ***<ins>I knew I was in trouble when one of them asked, "Will all this stuff affect my DNA?</ins>"<br><br>So, ... <ins>I was promptly kicked out, a ... along with many other workshops and artists there</ins>, including ... ... Karen Cusolito, the artist who actually founded American Steel Studios.*** Now, 8 years ago it was pretty easy to find another industrial space. ***But nowadays, even undesirable spots like American Steel are bein' scooped up by developers. So, right now <ins>everything's in storage, and the project is pretty much dead in the water.</ins>*** But, ... I have a plan to replace this lab space ...  The plan is to get a custom cargo trailer, and outfit it with all the tower components, instruments and a workshop. Since the tower itself is fully collapsable, ... a ... the entire system can pack into a single18 ft trailer. There's many great desolate spots around the Bay area that would make perfect test sites, but they don't have usable buildings or utilities. ***However, a self-contained mobile lab could just roll into one of these sites, set up, perform experiments, and then roll out. All without needing any building space, administrative overhead, or hookups. Storing a trailer is also much, much easier than finding reliable lab space in Oakland these days. So right now, ... a ... <ins>the new 40 ft Tesla tower is almost ready to fire up, but everything's in storage until the ...a ... mobile lab is ready."</ins><br>***[formatting added]<br><br>***- Greg Leyh, "The Secret Life of Lightning: The Science of Giant Tesla Coils", September 26, 2017, Conversations at the Interval, The Long Now Foundation***<br><br>https://youtu.be/ntIBDVCfATA
@@ -176,12 +176,13 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >>    ***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
 
 > # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
-> # ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***<br>
-> ## ***"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years. Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***<br>
+> ## ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***<br>
+> "we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years. ***Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***<br>
 >> ### ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
 
 > # ***"make themselves to home"***<br>
-> ***"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to "make themselves to home." "***<br>
+> "Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to ***"make themselves to home." "***<br>
+>[formatting added]
 >> ***- <ins>Captives Of The Desert</ins>, Chap. 2, Zane Grey, 1925-6***
 
 > # ***"the highest percentage of landowners"***<br>
