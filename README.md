@@ -117,14 +117,14 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 # ***THE HOMELESS DOLLAR. Part 8. <ins>Not what children are taught.</ins> Forced circulation of play money.***
 
-### ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But <ins>without homes, there can be no circulation,</ins> nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***
+### ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But <ins>without homes, there can be no circulation,</ins> nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***<br><br><br>
 
 > # ***"atraen el oro y la plata de las provincias más distantes."<br>("attract gold and silver from the most distant provinces.")***<br> 
 > ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que <ins>atraen el oro y la plata de las provincias más distantes."</ins><br><br>("a city [Cuzco] that could be counted the best in the kingdom without any doubt, for its situation, terrain and productions, and surrounded by the provinces most fertile and most abundant of fruits and useful colonists, who are the Indians who work in the land cultivation and mechanical works and who <ins>attract the gold and the silver of the most distant provinces."</ins>)***<br>
 > [Formatting added. Wonas2ds3sp translation]<br>
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
-## <br>***High house value is***<br>
+## <br><br>***High house value is***<br>
 > <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
 > ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!</ins>***<br><br>
@@ -132,7 +132,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ***THE PRICE DISTORTION INVITES THE CURRENCY SPECULATION THE MONEY MEASURERS LIVE FOR, HOUSES ARE FOR SPORTING WITH FOR THEM, NOT MAINLY FOR LIVING IN, NOT FOR GETTING ATTACHED TO, NOT FOR FAMILIES OR ANYONE'S CASTLE.***<br>
 >> ***The real estate speculators (currency speculators labeled according to which particular one of the many distorted prices the money measurers cause has attracted them, diverted them from industrious behavior to a game of chance) said repeatedly most people, when they buy a house, only keep it for 5 years, then move to another one.***`*`<br><br>`*` wonas2ds3sp personal encounter.<br><br>
 
-#  ***THE HOMELESS DOLLAR. Part 9. <ins>Cultivating UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS</ins>.<br><br>Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT).<br><br>Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES).<br><br>Vastly outnumbered by MONEY EARNERS (PEOPLE MEASURING MONEY'S VALUE ABOVE ZERO).<br><br>Thin ice at the breaking point.***<br>
+#  <br><br>***THE HOMELESS DOLLAR. Part 9. <ins>Cultivating UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS</ins>.<br><br>Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT).<br><br>Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES).<br><br>Vastly outnumbered by MONEY EARNERS (PEOPLE MEASURING MONEY'S VALUE ABOVE ZERO).<br><br>Thin ice at the breaking point.***<br>
 
 ### ***If all the people distracted with earning their dollars realized those dollars originate unearned, it would be the end of the money measurers, <ins>the certainty of what children are taught would prevail, human needs (real investment) would no longer be ignored.</ins>***
 
@@ -205,7 +205,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 > # ***two bits a hide, two bits a day***<br>
 > ## ***making money (measuring value), jovial hospitality***<br>
-> #### **"They appeared to be merry fellows, ... They were** ***making money [measuring value] which no doubt accounted for their jovial hospitality.***<br><br>"Want a job skinnin' buffs or peggin' hides?" asked the leader. ***"Two bits a hide."***<br><br>"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.<br><br>"Did ye ever skin a buff?" asked another.<br><br>"No."<br><br>"Wal, if you haven't, you'd make about ***two bits a day*** for a month."<br><br>They all laughed at the joke."<br><br>
+> #### **"They appeared to be merry fellows, ... They were** ***making money [measuring value] which no doubt accounted for their jovial hospitality.***<br><br>"Want a job skinnin' buffs or peggin' hides?" asked the leader. ***<ins>"Two bits a hide."</ins>***<br><br>"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.<br><br>"Did ye ever skin a buff?" asked another.<br><br>"No."<br><br>"Wal, if you haven't, you'd make about ***<ins>two bits a day</ins>*** for a month."<br><br>They all laughed at the joke."<br><br>
 > [formatting added]
 >> ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
 
@@ -214,7 +214,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > [formatting added]
 >> **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946. Chaps. 7, 11, 12, 14<br>- <ins>The Man of the Forest</ins>, Zane Grey, 1919. Chaps. 20, 22<br>- <ins>Raiders Of Spanish Peaks</ins>, Zane Grey, 1931, 1932, 1938. Chap. 7<br>- <ins>The Trail Driver</ins>, Zane Grey, 1931, 1936. Chap. 8**
 
-# ***THE HOMELESS DOLLAR. Part 14a. Legislating a double standard. The 1913 Federal Reserve Act. MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD. Wholesale resource wasting as far as the eye can see.***<br>
+# ***THE HOMELESS DOLLAR. Part 14a. <ins>Legislating a double standard. The 1913 Federal Reserve Act.</ins><br><br>MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD.<br><br>Wholesale resource wasting as far as the eye can see.***<br>
 ***ELASTIC CURRENCY SPECULATORS <ins>INVEST IN LOW VALUE AND CALL IT THE MONEY SUPPLY INSTEAD.</ins><br><br>NOBODY KNOWS BETTER IT'S LOW VALUE, NOTHING TO TAKE CREDIT OR PERSONAL RESPONSIBILITY FOR, NOT WHAT CHILDREN ARE TAUGHT. <br><br>TO THE EXTENT SUCH DISTRACTIONS AS THE FICTION OF THE MONEY SUPPLY (MEASURING MONEY) DIVERT THE SUBJECT FROM MONEY (MEASURING VALUE) AND LOW VALUE, LOW VALUE CAN BE IMPLEMENTED, THE ELASTIC CURRENCY SPECULATORS GET THEIR HANDS ON RESOURCES THEY COULD NEVER HAVE EARNED, CAN'T KNOW THE VALUE OF, THE RESOURCES VANISH INTO THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - ANY BANKRUPT MISERY-PRODUCER WHO DOESN'T WANT TO CHANGE ...***
 
 >>> ***`*` <ins>The Creature From Jekyll Island: A Second Look At The Federal Reserve</ins>, 3rd Ed., G. Edward Griffin, 1994, 1995, 1998. Chap. 13 "Masquerade in Moscow," Chap. 14 "The Best Enemy Money Can Buy"***
@@ -267,7 +267,7 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 > [formatting added]<br>
 >>> **- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**<br>
 
-# ***as if by magic***
+# ***"as if by magic ... "***
 
 ## ***housing***
 
@@ -280,11 +280,11 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 > [formatting added]<br>
 >>> **<ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**
 
-## ***THE HOMELESS DOLLAR. Part 15. Less-productive gold mines beginning to be worked, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>.***<br>
+## ***THE HOMELESS DOLLAR. Part 15. <ins>Less-productive gold mines beginning to be worked</ins>, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>.***<br>
 ### ***As the wolves in sheep's clothing claiming to measure money are STOPPED FROM WASTING THE RESOURCES THEY NEVER COULD HAVE EARNED, THUS NEVER COULD KNOW THE VALUE OF, have stolen; stopped from <ins>THEIR RELENTLESS LOWERING</ins> of the dollar's value.<br><br>What children are taught <ins>AT HOME!!!</ins><br><br>Money circulates <ins>BETWEEN HOMES!!!</ins><br><br>Human nature (exchanging things) <ins>COULD NEVER BE INTERFERENCE WITH HOMES!!!</ins><br><br>Money is backed by a standard , THE STANDARD IS BACKED BY A HOME - BY EVERY PERSON'S HOME, BY EVERY PERSON, BY THE HOME THAT NATURALLY GOES WITH EVERY PERSON. IT'S EVERY PERSON'S PRICETAG ON THEIR PRIVATE PROPERTY. <ins>MONEY CIRCULATES BETWEEN HOMES, IS BACKED BY HOMES.</ins>***<br>
 
 > ## ***Better than gold: <ins>All the things money buys</ins> - AND!!!!! - never bought. HOME!!!!!***<br>
-> ### ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living. FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!! Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY. WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>
+> ### ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living.<br><br>FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!!<br><br>Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY.<br><br>WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>
 > ### ***Gold = money:***<br>
 >> #### ***"Better than gold is a peaceful home  Where all the fireside characters come,<br>The shrine of love, the heaven of life,<br>Hallowed by mother, or sister, or wife.<br>However humble the home may be,<br>Or tried with sorrow by heaven's decree,<br>The blessings <ins>that never were bought or sold</ins><br>And center there, are better than gold."***
 >> [formatting added]<br>
