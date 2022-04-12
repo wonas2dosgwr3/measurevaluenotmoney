@@ -318,3 +318,6 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 Abnormal prices (inaccurate measurements) advertise danger, some people more equal than others, a place to avoid, the influence of non-industrious people, people looking for spoils (plunder), not a place for everyone. Abnormal behaviour. No one will take personal responsibility for the abnormal dollar.
 ### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of <ins>constant monkey business</ins> prices today are <ins>far more warped (bigger bubbles)</ins> than in 1950.***
 
+# ***THE HOMELESS DOLLAR. Part 17. Measure <ins>COSTS!!!!!</ins> not money.***<br>
+# ***<ins>HUMAN LABOR</ins> - goes on, homeless or not ...***<br>
+# ***COSTS WITHOUT A HOME can only be <ins>DEFYING HUMAN NEEDS, RISING, ILLEGITIMATE</ins> ...***
