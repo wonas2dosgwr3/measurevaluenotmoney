@@ -319,7 +319,5 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of <ins>constant monkey business</ins> prices today are <ins>far more warped (bigger bubbles)</ins> than in 1950.***
 
 # ***THE HOMELESS DOLLAR. Part 17. Measure <ins>COSTS!!!!!</ins> not money.***<br>
-# ***<ins>HUMAN LABOR (COST!!!!!) - GOES ON</ins> ... <ins>homeless or not</ins> ...***<br>
-# ***<ins>COST (HUMAN LABOR!!!!!) WITHOUT A HOME</ins> can only be <ins>DEFYING HUMAN NEEDS, RISING INSTEAD OF FALLING, ILLEGITIMATE***</ins> ...<br>
-## ***Costs going ... <ins>UP, AND UP, AND UP</ins> ...***<br>
-## ***Value in exchange is <ins>COST.</ins><br><br>A standard of value is <ins>a standard of COST.***</ins>
+# ***<ins>HUMAN LABOR (COST!!!!!) - GOES ON</ins> ... <ins>homeless or not</ins> ...<br><br> <ins>COST (HUMAN LABOR!!!!!) WITHOUT A HOME</ins> can only be <ins>DEFYING HUMAN NEEDS, RISING INSTEAD OF FALLING, ILLEGITIMATE***</ins> ...<br>
+## ***Value in exchange is <ins>COST</ins> ...<br><br>A standard of value is <ins>a standard of COST</ins> ...<br><br>Costs going ... <ins>UP, AND UP, AND UP***</ins> ...
