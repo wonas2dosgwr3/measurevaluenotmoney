@@ -36,7 +36,7 @@
 # ***<br>THE HOMELESS DOLLAR. Part 2<br><br><ins>Without an ID***</ins>,<br>
 > ## ***The dollar is <ins>homeless</ins>, no one will take personal responsibility for it as such.***<br>
 > **Nor as measured money either.** The measuring of money is conducted entirely as a<br>
-> #  ***<ins>very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!!***</ins><br>
+> # ***<ins>very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!!***</ins><br>
 > The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place.<br><br>***BUYING AND SELLING (REAL TRANSACTIONS, PROSPERITY!!!) can't work for dollars with no ID, for measuring money - people and houses are safe, no turmoil, no distractions, <ins>nowhere for ID-less dollars to hide.</ins><br><br>BORROWING AND LENDING, and CHARITY, <ins>MISERY!!!, is the only way, transactions abandoned,</ins> replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
 
 # ***"continual dissension and debate"***
