@@ -33,7 +33,7 @@
 # <br><br>*Real stimulus*<br>
 >> ## ***is life, liberty, and the pursuit of happiness.***
 
-# ***<br>THE HOMELESS DOLLAR. Part 2<br><br><ins>Without an ID***</ins>,<br>
+# ***<br>THE HOMELESS DOLLAR. Part 2<br><br><ins>Without an ID</ins>***,<br>
 > ## ***The dollar is <ins>homeless</ins>, no one will take personal responsibility for it as such.***<br>
 > **Nor as measured money either.** The measuring of money is conducted entirely as a<br>
 > # ***<ins>very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!!***</ins><br>
