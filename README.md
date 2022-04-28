@@ -160,7 +160,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > **"This California," Marco was telling him ... Once he belong Spain; now Mexico. ... Mexico ver' bad for California. She tell California that she shall buy onlee from her, and then she forget to send things to buy! That's funnee! ... But these peoples mus' have things. They cannot grow them on the trees. So we bring them ... Onlee we mus' not let Mexico catch us! She's against the law. It's bad to go against the law ... but the good *padres*, they come buy. Pret' soon, when she come night, you see a fire on the beach. They light heem. Then we go in wid the boat."**<br>
 >>> ***- "Guest's Gold", Stewart Edward White, <ins>The Saturday Evening Post</ins>***<br><br>
 > # ***"one thing that's always made me tired"***
-> **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an'** ***<ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."***</ins><br>
+> **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an'** ***<ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."</ins>***<br>
 > [formatting added]
 >>> ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post***</ins>
 
@@ -191,6 +191,15 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."***<br>
 >> ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
 
+# ***More for your money ... ...***<br>
+> ## ***... more <ins>HUMAN LABOR</ins> ...<br><br>More HUMAN LABOR, more concern for <ins>HUMAN NEEDS</ins> ...<br><br>More <ins>HUMAN LABOR</ins> is inseparable from <ins>more concern for HUMAN NEEDS</ins> ...<br><br>Human labor, the thing, the value (in exchange) a standard of value measures (buys).***
+
+
+
+
+
+
+
 # ***THE HOMELESS DOLLAR. Part 13. <ins>Nothin' to trade on.</ins> Only speculate.***<br><br>***No truth.***<br>
 *" "A feller gets news from Indians and cowboys without knowin' who handed it on to who, an' you take the main idee for truth.* ***All I'd want to make a trade on*** *is that right now Newton's somewhere back toward the border." "*<br>
 [formatting added]<br><br>***- <ins>Captives Of The Desert</ins>, Chap. 15, Zane Grey, 1925-6***<br>
@@ -198,7 +207,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > # ***Currency speculators for war. Copernicus for measuring value.***<br>
 > "Nations have had to face this danger of what is called "inflation" following the recent war. The same thing happened in sixteenth-century Prussia, following the long series of wars between Poland and the Order [of Teutonic Knights]. ...<br><br>***The trouble in Prussia was that the coinage had become very debased, the various authorities seeking a temporary financial advantage by putting less and less gold and silver into the coins that they issued. This drove up prices and made foreign trade almost impossible, as foreigners would not take the worthless coins ... Common action was called for to  put things right; but each state - the Poles, the Prussians, the Order, and even each big city, such as Torun and Danzig - clung jealously to its own right to coin it's own money. Attempts to get agreement had always broken down.***<br><br>**Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ...**<br>***Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."***<br>
 >> ### ***- <ins>The World of Copernicus (Sun, Stand Thou Still)</ins>, Angus Armitage, 1947, Chap. 24. The Diseases of Money***
-*
+
 > # ***two bits***
 > ## ***"<ins>the Spanish milled dollar, or piece of eight</ins>*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857.** ***<ins>One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."</ins>***
 >[formatting added]
