@@ -103,7 +103,8 @@
 > ## ***" ... living is expensive. I had hoped to find a job here but have had no luck, and it is too expensive to live here.***<br>
 > ## ***.    "Why, <ins>a simple room would cost me one hundred dollars for the year!</ins> Can you imagine? And <ins>beef is seven cents the pound</ins> ... even <ins>cornmeal is a dollar the bushel!</ins> I can't afford to stay on."***
 [formatting added]
->> ***<ins>Ride The River</ins>, Louis L'Amour, 1983, Chap 10<br><br>About the same human labor that built a simple room in 1840 builds one today, tools and materials and technology maybe/maybe not a bit different ...***
+>> ***<ins>Ride The River</ins>, Louis L'Amour, 1983, Chap 10***<br>
+>> ## ***About the same human labor that built a simple room in 1840 builds one today, tools and materials and technology maybe/maybe not a bit different ...***
 # ***<br>THE HOMELESS DOLLAR. Part 5. Measure <ins>THE SAFETY OF HOUSES</ins>, not money.***  
 
 > ### ***Gold and silver are never homeless, everyone will take personal responsibility for them, never change the amount of money in the world or otherwise change the subject or defy the dictionary, always measure THE SAFETY OF HOUSES, the safer the house the more SPECIALIZATION (VALUE) takes place, the more private property (VALUE) comes to market. A STANDARD OF VALUE is a STANDARD OF THE SAFETY OF HOUSES.***
