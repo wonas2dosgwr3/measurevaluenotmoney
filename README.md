@@ -99,9 +99,8 @@
 > *"How many beautiful, fertile, lonely bits of rangeland had inspired the same desire for a farm, a few horses and cattle,* <ins>***a home! That hope never died ... "***</ins><br>
 >[formatting added]<br><br>   ***- <ins>Raiders Of Spanish Peaks</ins>, Zane Grey, 1931, 1932, 1938. Chap. 1***<br>
 
-# <br>***" ... living is expensive."***<br><br>
-# ***"a simple room would cost me one hundred dollars for the year!"***<br><br>1840. Pittsburgh.
-> ## ***" ... living is expensive. I had hoped [to find a job here but have had no luck, and it is too expensive to live here.
+# <br>***" ... living is expensive."***<br><br>"a simple room would cost me one hundred dollars for the year!" 1840. Pittsburgh.***
+> ## ***" ... living is expensive. I had hoped to find a job here but have had no luck, and it is too expensive to live here.***<br>
 > ## ***.    "Why, a simple room would cost me one hundred dollars for the year! Can you imagine? And beef is seven cents the pound ... even cornmeal is a dollar the bushel! I can't afford to stay on."***
 
 # ***<br>THE HOMELESS DOLLAR. Part 5. Measure <ins>THE SAFETY OF HOUSES</ins>, not money.***  
