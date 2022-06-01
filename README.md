@@ -230,6 +230,10 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > [formatting added]
 >> **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946. Chaps. 7, 11, 12, 14<br>- <ins>The Man of the Forest</ins>, Zane Grey, 1919. Chaps. 20, 22<br>- <ins>Raiders Of Spanish Peaks</ins>, Zane Grey, 1931, 1932, 1938. Chap. 7<br>- <ins>The Trail Driver</ins>, Zane Grey, 1931, 1936. Chap. 8**
 
+> "Can't ***this two-bit cop*** keep order?"<br>
+> [formatting added]
+>> **-<ins>Buchanan's Stolen Railway</ins>, Jonas Ward, 1978, Chap. 3**
+
 # ***THE HOMELESS DOLLAR. Part 14a. <ins>Legislating a double standard. The 1913 Federal Reserve Act.</ins><br><br>MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD.<br><br>Wholesale resource wasting as far as the eye can see.***<br>
 ***ELASTIC CURRENCY SPECULATORS <ins>INVEST IN LOW VALUE AND CALL IT THE MONEY SUPPLY INSTEAD.</ins><br><br>NOBODY KNOWS BETTER IT'S LOW VALUE, NOTHING TO TAKE CREDIT OR PERSONAL RESPONSIBILITY FOR, NOT WHAT CHILDREN ARE TAUGHT. <br><br>TO THE EXTENT SUCH DISTRACTIONS AS THE FICTION OF THE MONEY SUPPLY (MEASURING MONEY) DIVERT THE SUBJECT FROM MONEY (MEASURING VALUE) AND LOW VALUE, LOW VALUE CAN BE IMPLEMENTED, THE ELASTIC CURRENCY SPECULATORS GET THEIR HANDS ON RESOURCES THEY COULD NEVER HAVE EARNED, CAN'T KNOW THE VALUE OF, THE RESOURCES VANISH INTO THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - ANY BANKRUPT MISERY-PRODUCER WHO DOESN'T WANT TO CHANGE ...***
 
