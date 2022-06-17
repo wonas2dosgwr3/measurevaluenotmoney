@@ -349,5 +349,12 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 Abnormal prices (inaccurate measurements) advertise danger, some people more equal than others, a place to avoid, the influence of non-industrious people, people looking for spoils (plunder), not a place for everyone. Abnormal behaviour. No one will take personal responsibility for the abnormal dollar.
 ### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of <ins>constant monkey business</ins> prices today are <ins>far more warped (bigger bubbles)</ins> than in 1950.***<br><br>
 
+# ***The entire subject of inflation ...***<br>
+## ***NEVER addressing the real problem. Putting a bogus problem in place of the real one. Putting the BOGUS PROBLEM OF INCORRECT MONEY MEASUREMENT in place of the REAL PROBLEM OF NOT MEASURING VALUE.***<br>
+## ***" There is no correct way to measure a standard of measurement.***<br>
+
+
+
+
 # ***THE HOMELESS DOLLAR. Part 17. Measure <ins>COSTS!!!!!</ins> not money.***<br><br>***<ins>HUMAN LABOR (COST!!!!!) - GOES ON</ins> ... <ins>homeless or not</ins> ...***<br><br><ins>***COST (HUMAN LABOR!!!!!) WITHOUT A HOME</ins> ... can only be <ins>DEFYING HUMAN NEEDS, RISING INSTEAD OF FALLING, ILLEGITIMATE</ins> ...***<br>
 ## ***Value in exchange is <ins>COST</ins> ...<br><br>A standard of value is <ins>a standard of COST</ins> ...<br><br>Costs going ... UP <ins>(and MORE ABNORMAL - SOME THINGS less affordable than before)</ins>,<br><br>AND UP <ins>(and STILL MORE ABNORMAL - SOME THINGS even less affordable than before)</ins>,<br><br>AND UP <ins>(AND STILL MORE ABNORMAL - SOME THINGS</ins> ...<br><br>... <ins>not even coming to market at all anymore???!!!!!)</ins> <br><br>... <ins>HOUSING FOR A GREAT MANY PEOPLE, A BIG MARKET!!!, A HUMAN NEED SO EASILY MET!!!, A BIG MARKET SO EASILY SATISFIED!!!, NO LONGER AVAILABLE AT ALL?????!!!!!?????</ins> ...<br><br>... the dark ages returning, poverty, returning barbarism ...<br><br>WHAT IF COST WAS BEING MEASURED, HAD A HOME, <ins>THERE COULD ONLY BE PROFIT IN MEETING, NOT TRAMPLING, HUMAN NEEDS???</ins> ...***
