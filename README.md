@@ -350,10 +350,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of <ins>constant monkey business</ins> prices today are <ins>far more warped (bigger bubbles)</ins> than in 1950.***<br><br>
 
 # ***The entire subject of inflation ...***<br>
-## ***<ins>NEVER</ins> addressing the real problem. Putting a bogus problem in place of the real one. Putting the BOGUS PROBLEM OFulk <ins>INCORRECT MONEY MEASUREMENT</ins> in place of the REAL PROBLEM OF <ins>NOT MEASURING VALUE.</ins>***<br>
+## ***<ins>NEVER</ins> addressing the real problem. Putting a bogus problem in place of the real one. Putting the BOGUS PROBLEM OF <ins>INCORRECT MONEY MEASUREMENT</ins> in place of the REAL PROBLEM OF <ins>NOT MEASURING VALUE.</ins>***<br>
 ## ***There is no correct way to measure a standard of measurement.***<br>
 
-# ***THE HOMELESS DOLLAR. Part 17. Measure <ins>COSTS!!!!!</ins> not money.***<br><br>***<ins>HUMAN LABOR (COST!!!!!) - GOES ON</ins> ... <ins>homeless or not</ins> ...***<br><br><ins>***COST (HUMAN LABOR!!!!!) WITHOUT A HOME</ins> ... can only be <ins>DEFYING HUMAN NEEDS, RISING INSTEAD OF FALLING, ILLEGITIMATE</ins> ...***<br>
+# ***THE HOMELESS DOLLAR. Part 17. Measure <ins>COSTS!!!!!</ins> not money.***<br><br>***<ins>HUMAN LABOR (COST!!!!!) - GOES ON</ins> ... <ins>homeless or not ...***<br><br>***COST (HUMAN LABOR!!!!!) WITHOUT A HOME</ins> ... can only be <ins>DEFYING HUMAN NEEDS, RISING INSTEAD OF FALLING, ILLEGITIMATE</ins> ...***<br>
 ## ***Value in exchange is <ins>COST</ins> ...<br><br>A standard of value is <ins>a standard of COST</ins> ...<br><br>Costs going ... UP <ins>(and MORE ABNORMAL - SOME THINGS less affordable than before)</ins>,<br><br>AND UP <ins>(and STILL MORE ABNORMAL - SOME THINGS even less affordable than before)</ins>,<br><br>AND UP <ins>(AND STILL MORE ABNORMAL - SOME THINGS</ins> ...<br><br>... <ins>not even coming to market at all anymore???!!!!!)</ins> <br><br>... <ins>HOUSING FOR A GREAT MANY PEOPLE, A BIG MARKET!!!, A HUMAN NEED SO EASILY MET!!!, A BIG MARKET SO EASILY SATISFIED!!!, NO LONGER AVAILABLE AT ALL?????!!!!!?????</ins> ...<br><br>... the dark ages returning, poverty, returning barbarism ...<br><br>WHAT IF COST WAS BEING MEASURED, HAD A HOME, <ins>THERE COULD ONLY BE PROFIT IN MEETING, NOT TRAMPLING, HUMAN NEEDS???</ins> ...***
 
 # ***"Easy come, easy go"***<br>
