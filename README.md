@@ -358,7 +358,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***"Easy come, easy go"***<br>
 ##    ***- Homeless fellow commenting about a tent that hadn't worked as well as he hoped.***`*`<br>
-## ***More wisdom than anyone in the government has???***<br>
-## ***Costs remain no matter what, inalienable private property, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins> instead of coming to market, poverty returning, returning barbarism.***<br>
-`*` Wonas2ds3sp personal encounter.t
-
+## ***More wisdom than anyone in the government has???<br>More wisdom than any money measurer has.***<br>
+## ***<ins>Costs remain no matter what, inalienable private property!!!!!</ins>, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins>`**` instead of coming to market, poverty returning, returning barbarism.***<br>
+`*` Wonas2ds3sp personal encounter.<br>
+`**` <ins>***PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins>
