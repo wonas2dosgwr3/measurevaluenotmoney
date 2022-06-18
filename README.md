@@ -355,3 +355,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***THE HOMELESS DOLLAR. Part 17. Measure <ins>COSTS!!!!!</ins> not money.***<br><br>***<ins>HUMAN LABOR (COST!!!!!) - GOES ON</ins> ... <ins>homeless or not</ins> ...***<br><br><ins>***COST (HUMAN LABOR!!!!!) WITHOUT A HOME</ins> ... can only be <ins>DEFYING HUMAN NEEDS, RISING INSTEAD OF FALLING, ILLEGITIMATE</ins> ...***<br>
 ## ***Value in exchange is <ins>COST</ins> ...<br><br>A standard of value is <ins>a standard of COST</ins> ...<br><br>Costs going ... UP <ins>(and MORE ABNORMAL - SOME THINGS less affordable than before)</ins>,<br><br>AND UP <ins>(and STILL MORE ABNORMAL - SOME THINGS even less affordable than before)</ins>,<br><br>AND UP <ins>(AND STILL MORE ABNORMAL - SOME THINGS</ins> ...<br><br>... <ins>not even coming to market at all anymore???!!!!!)</ins> <br><br>... <ins>HOUSING FOR A GREAT MANY PEOPLE, A BIG MARKET!!!, A HUMAN NEED SO EASILY MET!!!, A BIG MARKET SO EASILY SATISFIED!!!, NO LONGER AVAILABLE AT ALL?????!!!!!?????</ins> ...<br><br>... the dark ages returning, poverty, returning barbarism ...<br><br>WHAT IF COST WAS BEING MEASURED, HAD A HOME, <ins>THERE COULD ONLY BE PROFIT IN MEETING, NOT TRAMPLING, HUMAN NEEDS???</ins> ...***
+
+# ***"Easy come, easy go"***<br>
+##    ***- Homeless fellow commenting about a tent that hadn't worked as well as he hoped.***`*`<br>
+## ***More wisdom than anyone in the government has???***<br>
+## ***Costs remain no matter what, inalienable private property, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins> instead of coming to market, poverty returning, returning barbarism.***<br>
+`*` Wonas2ds3sp personal encounter.t
+
