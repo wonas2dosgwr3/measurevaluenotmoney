@@ -362,6 +362,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***<ins>Costs remain no matter what, inalienable private property!!!!!</ins>, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins>`**` instead of coming to market, poverty returning, returning barbarism.***<br>
 `*` Wonas2ds3sp personal encounter.<br>
 `**` <ins>***PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins><br><br>
-# ***THE HOMELESS DOLLAR. Part 18. Freedom is YOUR HOME. Your home is FREEDOM.<br><br>Life, liberty, and the pursuit of happiness: <ins>YOUR HOME</ins>.<br><br>HOMES the <ins>only access to money</ins>. FREEDOM the <ins>only access to access to money</ins>.<br><br>Private property will ever have its home, its freedom, its power to ENRICH OTHER HOMES, to DESERT AND DESTROY the Roman Empire and all other TRESPASSERS!!!<br><br>When <ins>MONEY IS EVERYTHING</ins>: EARNING IT ISN'T, FREEDOM ISN'T, HOMES AREN'T, HUMAN NEEDS AREN'T.***
+# ***THE HOMELESS DOLLAR. Part 18. Freedom is YOUR HOME. Your home is FREEDOM.<br><br>Life, liberty, and the pursuit of happiness: <ins>YOUR HOME</ins>.<br><br>HOMES the <ins>only access to money</ins>. FREEDOM the <ins>only access to money</ins>.<br><br>Private property will ever have its home, its freedom, its power to ENRICH OTHER HOMES, to DESERT AND DESTROY the Roman Empire and all other <ins>TRESPASSERS!!!</ins><br><br>When <ins>MONEY IS EVERYTHING</ins>: EARNING IT <ins>ISN'T</ins>, FREEDOM <ins>ISN'T</ins>, HOMES <ins>AREN'T</ins>, HUMAN NEEDS <ins>AREN'T</ins>.***<br>
+> ## ***... back to <ins>A FREER TIME, BEFORE MONEY WAS EVERYTHING ...</ins>***<br>
+> ***- somewhere in <ins>Ramrod</ins>, Luke Short, 1943***
 
 
