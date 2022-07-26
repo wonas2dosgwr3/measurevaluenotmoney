@@ -365,6 +365,6 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***THE HOMELESS DOLLAR. Part 18. Freedom is YOUR HOME. Your home is FREEDOM.<br><br>Life, liberty, and the pursuit of happiness: <ins>YOUR HOME</ins>.<br><br>HOMES the <ins>only access to money</ins>. FREEDOM the <ins>only access to money</ins>.<br><br>Private property will ever have its home, its freedom, its power to ENRICH OTHER HOMES, to DESERT AND DESTROY the Roman Empire and all other <ins>TRESPASSERS!!!</ins><br><br>When <ins>MONEY IS EVERYTHING</ins>: EARNING IT <ins>ISN'T</ins>, FREEDOM <ins>ISN'T</ins>, HOMES <ins>AREN'T</ins>, HUMAN NEEDS <ins>AREN'T</ins>.***<br>
 > ## ***"He was a born rebel..., a throwback to <ins>A FREER TIME, BEFORE MONEY WAS EVERYTHING."</ins>***
 > [formatting added]<br><br>
-> ***- <ins>Ramrod</ins>, Luke Short, Chap 3, 1943***
-
-
+> ***- <ins>Ramrod</ins>, Luke Short, Chap 3, 1943***<br><br>
+# ***THE HOMELESS DOLLAR. Part 19. Counting their money and property values. Getting poor. Bring back the Dark Ages. Delusions of wealth in WIN-LOSE "TRANSACTIONS", NO TRANSACTIONS AT ALL, NO COST REDUCTIONS, NO SAFETY INCREASE. REAL TRANSACTIONS ARE WIN-WIN, WHAT MONEY BUYS IS EVERYTHING!!!!!, NEVER THE MONEY!!!!!, THE PARAMOUNT IMPORTANCE OF CONCEDING SAFETY (A HOME!!!!!) WITHOUT WHICH TRANSACTIONS ARE IMPOSSIBLE, IS RECOGNIZED.***<br>
+## ***As Plato put it, accounting for the rise and fall of Atlantis, its rise came when:<br>"They despised everything but virtue, not caring for their present state of life, and thinking lightly on the possession of gold and other property, which seemed only a burden to them; neither were they intoxicated by luxury; nor did wealth deprive them of their self-control; but they were sober, and SAW CLEARLY THAT ALL THESE GOODS ARE INCREASED BY VIRTUOUS FRIENDSHIP WITH ONE ANOTHER, AND THAT BY EXCESSIVE ZEAL FOR THEM, AND HONOR OF THEM, THE GOOD OF THEM IS LOST, AND FRIENDSHIP PERISHES WITH THEM."`*`
