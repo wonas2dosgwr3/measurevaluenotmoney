@@ -107,8 +107,9 @@
 >> ## ***About the same human labor that built a simple room in 1840 builds one today, tools and materials and technology maybe/maybe not a bit different ...***
 # ***... their prize, a chance at a home ...***
 > ## ***"Now there's to be a land rush. A rip-snortin' old-fashioned land rush."***
-> ## ***"Madden sensed how desperately these people wanted their prize, a chance at a home, a place to sink down roots, and suddenly he had a great and encompassing sympathy for all of them; he wished them well."***
-
+> ## ***"Madden sensed <ins>how desperately these people wanted their prize, a chance at a home, a place to sink down roots,</ins> and suddenly he had a great and encompassing sympathy for all of them; he wished them well."***
+[formatting added]
+>> ***<ins>Tall Man Riding</ins>, Norman A. Fox, 1951. Chaps 12 and 16.***
 
 # ***<br>THE HOMELESS DOLLAR. Part 5. Measure <ins>THE SAFETY OF HOUSES</ins>, not money.***  
 
