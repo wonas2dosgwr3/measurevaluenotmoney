@@ -105,6 +105,11 @@
 [formatting added]
 >> ***<ins>Ride The River</ins>, Louis L'Amour, 1983, Chap 10***<br>
 >> ## ***About the same human labor that built a simple room in 1840 builds one today, tools and materials and technology maybe/maybe not a bit different ...***
+# ***... their prize, a chance at a home ...***
+> ## ***"Now there's to be a land rush. A rip-snortin' old-fashioned land rush."***
+> ## ***"Madden sensed how desperately these people wanted their prize, a chance at a home, a place to sink down roots, and suddenly he had a great and encompassing sympathy for all of them; he wished them well."***
+
+
 # ***<br>THE HOMELESS DOLLAR. Part 5. Measure <ins>THE SAFETY OF HOUSES</ins>, not money.***  
 
 > ### ***Gold and silver are never homeless, everyone will take personal responsibility for them, never change the amount of money in the world or otherwise change the subject or defy the dictionary, always measure THE SAFETY OF HOUSES, the safer the house the more SPECIALIZATION (VALUE) takes place, the more private property (VALUE) comes to market. A STANDARD OF VALUE is a STANDARD OF THE SAFETY OF HOUSES.***
@@ -118,7 +123,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ### ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***<br><br><br>
 
 > # ***"the old home town ... "***<br>
-> *"EUELPIDES. ... A splendid city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while* <ins>***crickets chirp a month or two<br>Upon a bush</ins>,*** *that stubborn folk will sit<br>And* <ins>***chirp on legal twigs till kingdom come!***</ins><br>*That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."*<br>
+> *"EUELPIDES. ... A splendidt city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while* <ins>***crickets chirp a month or two<br>Upon a bush</ins>,*** *that stubborn folk will sit<br>And* <ins>***chirp on legal twigs till kingdom come!***</ins><br>*That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."*<br>
 >[formatting added]<br><br>
 >   ***- Aristophanes, <ins>Birds</ins>, 414 BC***
 
