@@ -58,7 +58,7 @@
 > ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***<br>
 
 # <br>***THE HOMELESS DOLLAR. Part 3<br><br><ins>Without an ID,</ins>***<br>
-> ### ***the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as <ins>A CONSPIRACY!!!</ins>***<br><br>***Measuring value is*** <ins>***MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>***<br>
+> ### ***the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins>*** ***The measuring of money is conducted entirely as <ins>A CONSPIRACY!!!</ins>***<br><br>***Measuring value is*** <ins>***MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>***<br>
 
 > # <br><br>***Gold in their pockets, paper on their walls***
 > "Never, indeed, owas there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br><br>
@@ -111,7 +111,7 @@
 [formatting added]
 >> ***<ins>Tall Man Riding</ins>, Norman A. Fox, 1951. Chaps 12 and 16.***
 # ***the simple, everyday things***<br>
-> ## ***"Home! Now he could go home. He could work around the place, repairing the pole corral, leaks in the shed roof, the doors and windows on the house. <ins>He wanted nothing so much as to be back doing the simple, everyday things."***</ins><br>
+> ## ***"Home! Now he could go home. He could work around the place, repairing the pole corral, leaks in the shed roof, the doors and windows on the house.*** ***<ins>He wanted nothing so much as to be back doing the simple, everyday things."</ins>***<br>
 [formatting added]
 >> ***<ins>The Shadow Riders</ins>, Louis L'Amour, 1982. Chap 17***
 
