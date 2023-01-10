@@ -111,7 +111,7 @@
 [formatting added]
 >> ***<ins>Tall Man Riding</ins>, Norman A. Fox, 1951. Chaps 12 and 16.***
 # ***the simple, everyday things***
-> ## ***"Home! Now he could go home. He could work around the place, repairing the pole corral, leaks in the shed roof, the doors and windows on the house. <ins>He wanted nothing so much as to be back doing the simple, everyday things."***</ins>
+> ## ***"Home! Now he could go home. He could work around the place, repairing the pole corral, leaks in the shed roof, the doors and windows on the house. <ins>He wanted nothing so much as to be back doing the simple, everyday things."***</ins><br>
 [formatting added]
 >> ***<ins>The Shadow Riders</ins>, Louis L'Amour, 1982. Chap 17***
 
