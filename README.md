@@ -50,12 +50,12 @@
 
 # <br>***LA MONEDA NUEVA***
 
-*An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:*<br><br>***"When the "Moneda Nueva" comes out, they***
+***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br><br>"When the "Moneda Nueva" comes out, they***
 ## <ins>***change the number of zeroes and move the decimal point around."***</ins><br>
 [Formatting added. Wonas2ds3sp personal encounter]<br><br>
 
 ## ***<br>High house value is***<br>
-> ***LIVING IN t0ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***<br>
+> ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***<br>
 
 # <br>***THE HOMELESS DOLLAR. Part 3<br><br><ins>Without an ID,</ins>***<br>
 > ### ***the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as <ins>A CONSPIRACY!!!</ins>***<br><br>**Measuring value is** <ins>***MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>***<br>
