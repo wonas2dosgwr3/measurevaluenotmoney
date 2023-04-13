@@ -19,8 +19,8 @@
 
 ## ***<br>High house value is***<br>
 > ***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
-## ***<br><br>High house value is***<br>
-> ***<ins>EVERYONE IS AN ABSOLUTE LAND-HOMEOWNER WHO WANTS TO BE!!! Your home will never be SAFER, house prices will never LOWER!!! 
+## ***<br>High house value is***<br>
+> ***<ins>EVERYONE IS AN ABSOLUTE LAND-HOMEOWNER WHO WANTS TO BE!!! Your home will never be SAFER, house prices will never be LOWER!!! A person's home is THEIR CASTLE!!!, more important to be SAFE OR HIGH PRICED???!!!***</ins><br>
 
 ## <br>***Real stimulus***<br> 
  **is measuring length and weight, not inches, ounces, or dollars. Measuring DEFINED inches, ounces, or dollars is impossible, they invariably serve their default purpose of measurement. Announcing UNDEFINED inches, ounces, and dollars would immediately fail. So, UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED. Distorting value, conferring undeserved value, is all that measured money (dollars with no ID) does. Without measured money, the distorted value of housing would end, EVICTIONS, FORECLOSURES, AND HOMELESS PEOPLE COULD NEVER BE ISSUES. The gold standard is no issue of the amount of money, it's the issue of ENDING DISTORTED VALUES.**
