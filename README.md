@@ -399,4 +399,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***THE HOMELESS DOLLAR. Part 21. Clouds of homeless dollar confetti descending on gold. The confetti cloud on the gold standard.***<br>
 ## ***All that glitters is gold, but THE CONFETTI CLOUD WON'T GLITTER, ONLY GETS WORSE, MORE TRANSPARENT, LOOKS EVEN LESS LIKE MONEY THAN BEFORE.<br><br>Always trespassing. THE CONFETTI CLOUD DESCENDING ON HOMES, CRAVING HIGH VALUE. No luck. Land is no product of human labor, ONLY HUMAN LABOR CAN CONFER HIGH VALUE. Human labor in house building hasn't changed all that much in centuries, ages?, ever? ... no reason to build a house if you can't use it in a reasonable amount of time.<br><br>LOW VALUE can't be morphed into anything else. NO PERSONAL RESPONSIBILITY can't pass for the opposite, for A LOT OF HUMAN LABOR, for HIGH VALUE.***
-
+# ***THE HOMELESS DOLLAR. Part 22. Star-spangled banner update. "... BUBBLES bursting in air ... "***
+## ***The bubble-powered dollar.***
+## ***INDEPENDENCE FROM HUMAN NEEDS can't last for long, the independence clamored for by the money measurers is nothing else, is entirely independence to waste resources creating bubbles, the only way to put homeless dollars into circulation.***
+## ***The Fourth of July is for freedom to meet, not trample, human needs.***
