@@ -20,7 +20,7 @@
 ## ***<br>High house value is***<br>
 > ***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
 
-## ***<br>High house value is<br>***
+## ***<br>High house value is***<br>
 > <ins>***EVERYONE IS AN ABSOLUTE LAND-HOMEOWNER WHO WANTS TO BE!!! Your home will never be SAFER, house prices will never be LOWER!!! A person's home is THEIR CASTLE!!!, more important to be SAFE OR HIGH PRICED???!!!***</ins><br>
 
 ## <br>***Real stimulus***<br> 
