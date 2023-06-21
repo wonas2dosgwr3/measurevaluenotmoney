@@ -404,3 +404,5 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***The bubble-powered dollar.***
 ## ***INDEPENDENCE FROM HUMAN NEEDS can't last for long, the independence clamored for by the money measurers is nothing else, is entirely independence to waste resources creating bubbles, the only way to put homeless dollars into circulation.***
 ## ***The Fourth of July is for freedom to meet, not trample, human needs.***
+# ***THE HOMELESS (FORGET HUMAN NEEDS) DOLLAR. Part 23.***
+## ***Clearly, PRICES WOULD BE DIFFERENT with gold dollars. For human needs forgetter (currency speculator) Donald Trump, a ways down the road (post-getting elected), THAT!!!, not decades of homeless people and foreclosures, IS THE TROUBLE!!! - there's NOT ENOUGH of the stuff (gold), he said. Apparently, if he thought***
