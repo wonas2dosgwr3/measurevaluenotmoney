@@ -400,6 +400,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > `*`***<ins>Atlantis: The Antediluvian World</ins>, Ignatius Donnelly, 1882, PART I. CHAP II. PLATO'S HISTORY OF ATLANTIS. 1985 reprint.***<br><br>Homes come BEFORE A BARTER ECONOMY, money is only an IMPROVED METHOD OF COST REDUCTION AND SAFETY INCREASE. Reversing the process, REDUCING SAFETY TO INCREASE COST, is the delusion, the "investment" of the currency speculator.<br>
 # ***Would anyone believe it???***
 > ## ***The FLOATING INCH or the FLOATING OUNCE. "Fine tuning" <ins>the length of the inch</ins> or <ins>the weight of the ounce</ins> for economic stimulus.***
+# ***Beating a dead horse...***
+## ***"money from land", from no human labor, 18th century Ireland***
+
 
 # ***THE HOMELESS DOLLAR. Part 20. Trashing human labor. Deploying homeless dollars <ins>WHEREVER IT'S EASY</ins> - WHEREVER IT'S LOW VALUE!!!!! COMES DOWN TO LAND - NO PRODUCT OF HUMAN LABOR, COLLECTING RENT, PAYMENTS GALORE.***<br>
 ## ***ALL IN VAIN. <ins>Wherever it's easy can't escape detection</ins>, REAL MONEY EVER REMAINS THE SERVANT OF HUMAN LABOR, USE IT OR NOT, GOLD MEASURES THE ABSENCE OF HUMAN LABOR, <ins>THE ABNORMALITY RATE,</ins> AS WELL AS IT MEASURES THE ABUNDANCE OF HUMAN LABOR.<br><br>The "gold price" DOESN'T STOP GOLD FROM BEING MONEY, DOESN'T MAKE GOLD A COMMODITY OR ANYTHING ELSE MONEY, <ins>DOESN'T MAKE MONEY A COMMODITY AND PEOPLE NOT MATTER AND MONEY EVERYTHING!!!!!</ins>, no matter how much the money measurers delude themselves it does. <ins>THE "GOLD PRICE"</ins> ONLY CHRONICLES THE LOW VALUE OF MEASURING MONEY AND TRASHING PEOPLE, OF MONEY BEING EVERYTHING, <ins>THE ABNORMALITY RATE.</ins>***
