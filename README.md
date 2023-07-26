@@ -403,6 +403,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***Beating a dead horse...***
 ## ***"money from land", from no human labor, 18th century Ireland***
 > ## ***"The agent was one of your middlemen, who grind the face of the poor, and can never bear a man with a hat upon his head: he ferreted the tenants out of their lives; not a week without a call for money, drafts upon drafts from Sir Kit; but I laid it all to the fault of the agent; for, says I, what can Sir Kit do with so much cash, and he a single man? But still it went. Rents must be all paid up to the day, and afore; no allowance for improving tenants, no consideration for those who had built upon their farms: no sooner was a lease out, but the land was advertised to the highest bidder; all the old tenants turned out, when they spent their substance in the hope and trust of a renewal from the landlord."***
+>> ## ***"Middlemen.-There was a class of men, termed middlemen, in Ireland, who took large farms on long leases from gentlemen of landed property, and let the land again in small portions to the poor, as under-tenants, at exorbitant rents."***
+>>> ### ***- <ins>Castle Rackrent</ins>, Maria Edgeworth, 1800***
 
 
 # ***THE HOMELESS DOLLAR. Part 20. Trashing human labor. Deploying homeless dollars <ins>WHEREVER IT'S EASY</ins> - WHEREVER IT'S LOW VALUE!!!!! COMES DOWN TO LAND - NO PRODUCT OF HUMAN LABOR, COLLECTING RENT, PAYMENTS GALORE.***<br>
