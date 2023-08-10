@@ -141,7 +141,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 ### ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***<br><br><br>
 
 > # ***"the old home town ... "***<br>
-> *"EUELPIDES. ... A splendidt city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while* <ins>***crickets chirp a month or two<br>Upon a bush</ins>,*** *that stubborn folk will sit<br>And* <ins>***chirp on legal twigs till kingdom come!***</ins><br>*That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."*<br>
+> *"EUELPIDES. ... A splendid city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while* <ins>***crickets chirp a month or two<br>Upon a bush</ins>,*** *that stubborn folk will sit<br>And* <ins>***chirp on legal twigs till kingdom come!***</ins><br>*That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."*<br>
 >[formatting added]<br><br>
 >   ***- Aristophanes, <ins>Birds</ins>, 414 BC***
 
