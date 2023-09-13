@@ -432,4 +432,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 ## ***Low value gets worse, bad merchandise (non-competitive, over-priced) becomes " affordable " on the installment plan. Calling the payment maker "owner" clinches it.
 Resource waste into the STRATOSPHERE!!!!! AS THE FLOODGATES OPEN!!!!! putting homeless dollars into "circulation" - hot air balloons and the confetti cloud!!!!!
-
+The HALF-LIFE of homeless dollars is SO SHORT!!!, they barely have time to change hands at all, GROCERIES is pretty much the first and last use, then they're RECYCLING BACK INTO THE HUMAN LABOR VACUUM!!!`*`, HOUSE (LAND) "PAYMENTS", NO TRANSACTION AT ALL!!! The money measurers all the while MINDING OTHER PEOPLE'S BUSINESS WITH ALL THEIR MIGHT!!!, THEIR ONLY BEHAVIOR OPTION!!!, creating bubbles, searching in vain for stability where none can ever be. MINDING THEIR OWN BUSINESS WOULD BE HUMAN LABOR, SPECIALIZING, COMMITTMENT TO COMMERCE!!!, TO ABSOLUTE HOME-LAND OWNERSHIP FOR EVERYONE!!!, TO SAVING MONEY!!!, GIVING MONEY A HOME!!!!! - incompatible with homeless dollars.
