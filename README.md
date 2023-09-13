@@ -431,3 +431,5 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ***`*` Currency speculators.***
 # ***THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 ## ***Low value gets worse, bad merchandise (non-competitive, over-priced) becomes " affordable " on the installment plan. Calling the payment maker "owner" clinches it.
+Resource waste into the STRATOSPHERE!!!!! AS THE FLOODGATES OPEN!!!!! putting homeless dollars into "circulation" - hot air balloons and the confetti cloud!!!!!
+
