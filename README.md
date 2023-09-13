@@ -438,4 +438,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ***The money measurers all the while <ins>MINDING OTHER PEOPLE'S BUSINESS WITH ALL THEIR MIGHT!!!, THEIR ONLY BEHAVIOR OPTION!!!</ins>, creating bubbles, searching in vain for <ins>stability where none can ever be.</ins> MINDING THEIR OWN BUSINESS WOULD BE <ins>HUMAN LABOR, SPECIALIZING, COMMITTMENT TO COMMERCE!!!, TO ABSOLUTE HOME-LAND OWNERSHIP FOR EVERYONE!!!, <ins>TO SAVING MONEY!!!!!</ins>, GIVING MONEY A HOME!!!!!</ins> - incompatible with homeless dollars.***
 > ***`*` Land is no product of human labor, neither are homeless dollars.***<br>
 
-> ***`**` <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor</ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land).***
+> ***`**` <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor</ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
