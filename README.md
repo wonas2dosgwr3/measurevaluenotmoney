@@ -1,4 +1,4 @@
-**measurevaluenotmoney**
+z**measurevaluenotmoney**
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
@@ -441,7 +441,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ***`**` <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor</ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
 # ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation". Bursting bubbles with more of the same. EVERYTHING!!! (in the world of the money measurers) with a facelift.***
-## ***The entire reason for inventing homeless dollars in the first place is to CREATE BUBBLES!!!  - stop efficient removal of bad merchandise from the marketplace (STOP VALUE MEASUREMENT!!!) AND HAVE BUBBLES INSTEAD!!!***<br><br>
+## ***The entire reason for inventing homeless dollars in the first place is to CREATE BUBBLES!!!  - stop efficient removal of bad merchandise from the marketplace (STOP VALUE MEASUREMENT!!!) AND HAVE BUBBLES INSTEAD!!!***<br>
 ***Endless discussion of "INFLATION" IS ALL A FACELIFT!!! suggesting it matters, that ANYTHING!!! but bad merchandise and the constant price increases which are the only thing that keeps Donald Trumps interested is involved.***<br><br>
 ***AND PAVING THE WAY FOR ANOTHER FACELIFT!!! - HOMELESS DOLLARS TO THE RESCUE!!! - WHEN BUBBLES BURST!!!***<br><br>
 ***AND ANOTHER!!!, EVERYTHING!!! with a facelift!!!, NO SOLID GROUND ANYWHERE in the world of NO COMMERCE, NO HUMAN LABOR, NO HUMAN NEEDS, NO MEASURING VALUE, OF DONALD TRUMPS!!!***<br><br>
