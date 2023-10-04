@@ -441,15 +441,15 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ***`**` <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor</ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
 # ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation". Bursting bubbles with more of the same. EVERYTHING!!! (in the world of the money measurers) with a facelift.***
-## ***The entire reason for inventing homeless dollars in the first place is to CREATE BUBBLES!!!  - stop efficient removal of bad merchandise from the marketplace (STOP VALUE MEASUREMENT!!!) AND HAVE BUBBLES INSTEAD!!!***<br>
-***Endless discussion of "INFLATION" IS ALL A FACELIFT!!! suggesting it matters, that ANYTHING!!! but bad merchandise and the constant price increases which are the only thing that keeps Donald Trumps interested is involved.***<br>
-***AND PAVING THE WAY FOR ANOTHER FACELIFT!!! - HOMELESS DOLLARS TO THE RESCUE!!! - WHEN BUBBLES BURST!!!***<br>
-***AND ANOTHER!!!, EVERYTHING!!! with a facelift!!!, NO SOLID GROUND ANYWHERE in the world of NO COMMERCE, NO HUMAN LABOR, NO HUMAN NEEDS, NO MEASURING VALUE, OF DONALD TRUMPS!!!***<br>
-***BURSTING BUBBLES MAKING WAY FOR NEW BUBBLES!!! in the land of no value measurement. Misery and chaos on top of misery and chaos, depressions, wars, etc, etc.***<br>
-***No difference between high and low value, between night and day, between black and white, BETWEEN YOURS AND MINE.***<br>
+## ***The entire reason for inventing homeless dollars in the first place is to CREATE BUBBLES!!!  - stop efficient removal of bad merchandise from the marketplace (STOP VALUE MEASUREMENT!!!) AND HAVE BUBBLES INSTEAD!!!***<br><br>
+***Endless discussion of "INFLATION" IS ALL A FACELIFT!!! suggesting it matters, that ANYTHING!!! but bad merchandise and the constant price increases which are the only thing that keeps Donald Trumps interested is involved.***<br><br>
+***AND PAVING THE WAY FOR ANOTHER FACELIFT!!! - HOMELESS DOLLARS TO THE RESCUE!!! - WHEN BUBBLES BURST!!!***<br><br>
+***AND ANOTHER!!!, EVERYTHING!!! with a facelift!!!, NO SOLID GROUND ANYWHERE in the world of NO COMMERCE, NO HUMAN LABOR, NO HUMAN NEEDS, NO MEASURING VALUE, OF DONALD TRUMPS!!!***<br><br>
+***BURSTING BUBBLES MAKING WAY FOR NEW BUBBLES!!! in the land of no value measurement. Misery and chaos on top of misery and chaos, depressions, wars, etc, etc.***<br><br>
+***No difference between high and low value, between night and day, between black and white, BETWEEN YOURS AND MINE.***<br><br>
 ***" "I", said the Farmer, " ... it's none of mine, I never take what does not belong to me."
 "True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have interest in life in the land in question?"
 "None."
-"Then why so stiff about it, Price? all I want of you is to say - "
+"Then why so stiff about it, Price? all I want of you is to say - ">
 "To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
 > ### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***
