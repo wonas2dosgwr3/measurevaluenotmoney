@@ -447,9 +447,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ***AND ANOTHER!!!, EVERYTHING!!! with a facelift!!!, NO SOLID GROUND ANYWHERE in the world of NO COMMERCE, NO HUMAN LABOR, NO HUMAN NEEDS, NO MEASURING VALUE, OF DONALD TRUMPS!!!***<br><br>
 ***BURSTING BUBBLES MAKING WAY FOR NEW BUBBLES!!! in the land of no value measurement. Misery and chaos on top of misery and chaos, depressions, wars, etc, etc.***<br><br>
 ***No difference between high and low value, between night and day, between black and white, BETWEEN YOURS AND MINE.***<br><br>
-***" "I", said the Farmer, " ... it's none of mine, I never take what does not belong to me."
-"True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have interest in life in the land in question?"
-"None."
-"Then why so stiff about it, Price? all I want of you is to say - ">
-"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
+***" "I", said the Farmer, " ... it's none of mine, I never take what does not belong to me."***<br>
+***"True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have interest in life in the land in question?"***<br>
+***"None."***<bur>
+***"Then why so stiff about it, Price? all I want of you is to say - "***<br>
+***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
 > ### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***
