@@ -436,8 +436,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ***The HALF-LIFE of homeless dollars is SO SHORT!!!, they barely have time to change hands at all, GROCERIES is pretty much the first and last use, then they're <ins>RECYCLING BACK INTO THE HUMAN LABOR VACUUM!!!`*`, HOUSE (LAND) "PAYMENTS", NO TRANSACTION AT ALL!!!`**`</ins>***
 
 ***The money measurers all the while <ins>MINDING OTHER PEOPLE'S BUSINESS WITH ALL THEIR MIGHT!!!, THEIR ONLY BEHAVIOR OPTION!!!</ins>, creating bubbles, searching in vain for <ins>stability where none can ever be.</ins> MINDING THEIR OWN BUSINESS WOULD BE <ins>HUMAN LABOR, SPECIALIZING, COMMITTMENT TO COMMERCE!!!, TO ABSOLUTE HOME-LAND OWNERSHIP FOR EVERYONE!!!, <ins>TO SAVING MONEY!!!!!</ins>, GIVING MONEY A HOME!!!!!</ins> - incompatible with homeless dollars.***<br><br>
-> ***"Take it home right away
-      You've got three years to pay"***
+> ***"Take it home right away***<br>
+      ***You've got three years to pay"***
 >> ***- song lyric - "Sin City", R. B. Scott, A. Young, M. Young. 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
 
 > ***`*` Land is no product of human labor, neither are homeless dollars.***<br>
