@@ -1,4 +1,4 @@
-z**measurevaluenotmoney**
+**measurevaluenotmoney**
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
