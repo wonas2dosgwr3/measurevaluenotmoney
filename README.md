@@ -469,5 +469,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***"Nobody ever saw a dog make a fair and deliberate exchange of one bone for another with another dog."***
 > ### ***- ?***
 ## ***Part 4.***
-## ***"no tengo trono ni reina, ni nadie que me comprenda, pero sigo siendo el rey"***
+## ***"No tengo trono ni reina***<br>
+***Ni nadie que me comprenda***
+***Pero sigo siendo el rey"***
 > ### ***song lyric - "El Rey", Jose Alfredo Jimenez***
