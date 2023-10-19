@@ -465,3 +465,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Part 2.***
 ## ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
 > ***- Joseph Conrad, "Karain: A Memory", Chap 3***
+## ***Part 3.***
