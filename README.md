@@ -470,4 +470,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ### ***- ?***
 ## ***Part 4.***
 ### ***"No tengo trono ni reina<br>Ni nadie que me comprenda<br>Pero sigo siendo el rey"***
-> #### ***song lyric - "El Rey", Jose Alfredo Jimenez. 1971***
+> #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971***
