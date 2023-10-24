@@ -64,7 +64,7 @@ s**measurevaluenotmoney**
 
 ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br><br>"When the "Moneda Nueva" comes out, they***
 ## <ins>***change the number of zeroes and move the decimal point around."***</ins><br>
-[Formatting added. Wonas2ds3sp personal encounter]<br><br>
+[Formatting added. wonas2dosgwr3 personal encounter]<br><br>
 
 ## ***<br>High house value is***<br>
 > ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***<br>
