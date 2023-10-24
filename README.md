@@ -316,7 +316,7 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 >> ### ***In this manner Mohamed Abu Alhamar ruled his dominions and with as much wisdom as prosperity ... ...*** **he took advantage of the interval of tranquility ... to fortify his dominions and stock up his arsenals,** ***protecting at the same time the useful arts, which give nations riches and power ... ... <ins>he was the first king of Granada to coin money of gold and silver with his name, putting great diligence that the dies were well engraved.</ins>***
 >> ### ***Around this time, toward the middle of the 13th century ... he started the magnificent palace of the Alhambra ...***
 >> ### ***Although so splendid in his works and great in his enterprises, he was modest in his person and moderate in his diversions. His clothes weren't fastidious but so simple that they couldn't be distinguished from those of his subjects. ...*** **...He spent most of the day in his gardens, and especially those of the Alhambra, which he had enriched with the rarest plants and the most beautiful and aromatic flowers, and there he delighted to read stories or have them read ...** ***... <ins>Those who fix their attention in the politics of this monarch that I've put down here will easily explain to themselves the natural magic and simple alchemy that made that his treasury was always swimming in abundance</ins>."***
->> [Formatting added. Wonas2ds3sp translation from Spanish.]
+>> [Formatting added. wonas2dosgwr3 translation from Spanish.]
 >>> ### ***- <ins>Tales Of The Alhambra</ins>, Washington Irving, 1832)***<br><br>
 
 > # ***'There's no place like home'***<br>
