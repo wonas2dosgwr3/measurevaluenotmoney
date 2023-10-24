@@ -471,3 +471,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Part 4.***
 ### ***"No tengo trono ni reina<br>Ni nadie que me comprenda<br>Pero sigo siendo el rey"***
 > #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971***
+## ***Part 5.<br>Even a fool.***
+## ***"and you must learn not to despise any man. Even a fool can teach you not to be foolish, and there's no telling where you'll hear the thing that  will help you to do a job easier, or the thing that  may save your life."***
+> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
+
+
