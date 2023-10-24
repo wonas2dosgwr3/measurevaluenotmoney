@@ -151,7 +151,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 
 > # ***"atraen el oro y la plata de las provincias más distantes."<br>("attract gold and silver from the most distant provinces.")***<br> 
 > ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que <ins>atraen el oro y la plata de las provincias más distantes."</ins><br><br>("a city [Cuzco] that could be counted the best in the kingdom without any doubt, for its situation, terrain and productions, and surrounded by the provinces most fertile and most abundant of fruits and useful colonists, who are the Indians who work in the land cultivation and mechanical works and who <ins>attract the gold and the silver of the most distant provinces."</ins>)***<br>
-> [Formatting added. Wonas2ds3sp translation]<br>
+> [Formatting added. wonas2dosgwr3 translation]<br>
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
 ## <br><br>***High house value is***<br>
