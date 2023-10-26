@@ -478,9 +478,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Part 6.<br>Even Lars K. Ahlstrom.***
 ## ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
 > ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II, "Pacific Beach"***
-## ***Part 7.<br>Paranoid of trespassing! In banana republic land! Ricardo Guiraldes for President!!!***
+## ***Part 7.<br>Paranoid of trespassing! In banana republic land! Ricardo Güiraldes for President!!!***
 ## ***"Yo no me puedo quedar mucho en nenguna estancia" decia "porque en seguida estoy queriendo mandar más que los patrones."<br><br>("I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses.")***
-
 > ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
 ## ***Part 8.<br>Even a boy. To save his own labor. One of the greatest improvements.***
 ## ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
