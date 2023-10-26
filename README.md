@@ -481,7 +481,6 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Part 7.<br>Paranoid of trespassing! In banana republic land! Ricardo Guiraldes for President!!!***
 ## ***"Yo no me puedo quedar mucho en nenguna estancia" decia "porque en seguida estoy queriendo mandar más que los patrones."***
 > ***- <ins>Don Segundo Sombra</ins>, Ricardo Guiraldes. 1926; and author-corrected text, 1939***
-## ***Part 8.<br>Even a boy. To save his own labor.   
-One of the greatest improvements.***
+## ***Part 8.<br>Even a boy. To save his own labor. One of the greatest improvements.***
 ## ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
 > ***- ?***
