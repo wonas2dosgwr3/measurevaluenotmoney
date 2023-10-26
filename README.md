@@ -477,7 +477,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
 ## ***Part 6.<br>Even Lars K. Ahlstrom.***
 ## ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
-> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1968. Chap II, "Pacific Beach"***
+> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II, "Pacific Beach"***
 
 
 
