@@ -482,7 +482,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
 ## ***Part 8.<br>Even a boy. To save his own labor. One of the greatest improvements.***
 ## ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
-> ***- ?***
+> ***- ?***<br><br>
 
 # ***THE HOMELESS DOLLAR. Part 28. No signs of life allowed.*** 
 ## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).<br><br>Only JACKPOTS!!!, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; only LOWERING THE STANDARD OF LIVING!!!***<br><br>
