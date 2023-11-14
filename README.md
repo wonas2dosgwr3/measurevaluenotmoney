@@ -487,45 +487,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, MORE VALUABLE STANDARD OF VALUE!!!) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).<br>Only JACKPOTS!!!, games of chance, "WINNERS"* AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; only LOWERING THE STANDARD OF LIVING!!!***<br>
 > ***`*` No real winners, EVERYBODY LOSING because no commerce.***
 
-## ***Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).<br>JACKPOTS FOR NO HUMAN LABOR sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides. "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br>JACKPOTS FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), FOR LOWERING THE STANDARD OF LIVING!!!<br>JACKPOTS FOR NO SIGNS OF LIFE.*** This picture message or video message was sent using Multimedia Messaging Service.
-
-To play video messages sent to email, Apple QuickTime 6.5 or higher is required. Visit www.apple.com/quicktime/download to download the free player or upgrade your existing QuickTime Player. Note: During the download process when asked to choose an installation type (Minimum, Recommended or Custom), select Minimum for faster download.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-1
-Search ( / )
-Here is your Smart Chat (Ctrl+Space)
+## ***Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).<br>JACKPOTS FOR NO HUMAN LABOR sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides. "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br>JACKPOTS FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), FOR LOWERING THE STANDARD OF LIVING!!!<br>JACKPOTS FOR NO SIGNS OF LIFE.***
