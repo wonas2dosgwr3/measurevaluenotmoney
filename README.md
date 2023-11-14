@@ -489,4 +489,5 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ***`*` No real winners, EVERYBODY LOSING because no commerce.***
 
 ## ***Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).<br><br>JACKPOTS FOR NO HUMAN LABOR sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides. "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br><br>JACKPOTS FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), FOR LOWERING THE STANDARD OF LIVING!!!<br><br>JACKPOTS FOR NO SIGNS OF LIFE. FOR RETURNING BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.<br><br>Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.`**`***<br>
+> ***`¹` No real winners, EVERYBODY LOSING because no commerce.
 > ***`**` See "No man's land (the marketplace!!!)." Part 3.***
