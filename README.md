@@ -456,8 +456,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ***"Then why so stiff about it, Price? all I want of you is to say - "***<br>
 ***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
 > ### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***
-# ***No man's land (the marketplace!!!).<br>No trespassing.`*`***
-> ***`*` Inalienable rights!!!***
+# ***No man's land (the marketplace!!!).<br>No trespassing.¹***
+> ***¹ Inalienable rights!!!***
 >>  ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***
 ## ***Part 1.***
 ## ***No one owns the marketplace. Everyone owns a piece of it.***
