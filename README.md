@@ -486,9 +486,11 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
 > ***- ?***<br><br>
 
-# ***THE HOMELESS DOLLAR. Part 28. No signs of life allowed.*** 
+# ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
 ## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).<br><br>Only JACKPOTS!!!, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; only LOWERING THE STANDARD OF LIVING!!!***<br><br>
 
 ## ***Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).<br><br>JACKPOTS FOR NO HUMAN LABOR sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides. "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br><br>JACKPOTS FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), FOR LOWERING THE STANDARD OF LIVING!!!<br><br>JACKPOTS FOR NO SIGNS OF LIFE. FOR RETURNING BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.<br><br>Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
 > ***`¹` No real winners, EVERYBODY LOSING because no commerce.<br>
-> `²` See "No man's land (the marketplace!!!)." Part 3.***
+> `²` See "No man's land (the marketplace!!!)." Part 3.***<br>
+# ***Part 28b. Homeless ghosts.***
+## ***"All the ghosts driven out of the ... West by <ins>MEN WHO PRETEND TO BE WISE AND ALONE AND AT PEACE-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***
