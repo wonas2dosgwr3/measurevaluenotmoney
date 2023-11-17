@@ -432,16 +432,16 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Low value gets WORSE!!!, <ins>bad merchandise (non-competitive, over-priced) becomes " affordable "</ins> on the installment plan. Calling the payment maker <ins>"owner"</ins> clinches it.***
 ***Resource waste into the <ins>STRATOSPHERE!!!!! AS THE FLOODGATES OPEN!!!!!</ins> putting homeless dollars into "circulation" - hot air balloons and the confetti cloud!!!!!***
 
-***The HALF-LIFE of homeless dollars is SO SHORT!!!, they barely have time to change hands at all, GROCERIES is pretty much the first and last use, then they're <ins>RECYCLING BACK INTO THE HUMAN LABOR VACUUM!!!`*`, HOUSE (LAND) "PAYMENTS", NO TRANSACTION AT ALL!!!`**`</ins>***
+***The HALF-LIFE of homeless dollars is SO SHORT!!!, they barely have time to change hands at all, GROCERIES is pretty much the first and last use, then they're <ins>RECYCLING BACK INTO THE HUMAN LABOR VACUUM!!!¹, HOUSE (LAND) "PAYMENTS", NO TRANSACTION AT ALL!!!²</ins>***
 
 ***The money measurers all the while <ins>MINDING OTHER PEOPLE'S BUSINESS WITH ALL THEIR MIGHT!!!, THEIR ONLY BEHAVIOR OPTION!!!</ins>, creating bubbles, searching in vain for <ins>stability where none can ever be.</ins> MINDING THEIR OWN BUSINESS WOULD BE <ins>HUMAN LABOR, SPECIALIZING, COMMITTMENT TO COMMERCE!!!, TO ABSOLUTE HOME-LAND OWNERSHIP FOR EVERYONE!!!, <ins>TO SAVING MONEY!!!!!</ins>, GIVING MONEY A HOME!!!!!</ins> - incompatible with homeless dollars.***<br>
 > ***"Take it home right away***<br>
       ***You've got three years to pay"***
 >> ***- song lyric - "Sin City", R. B. Scott, A. Young, M. Young. 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
 
-> ***`*` Land is no product of human labor, neither are homeless dollars.***<br>
+> ***¹ Land is no product of human labor, neither are homeless dollars.***<br>
 
-> ***`**` <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor</ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
+> ***² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor</ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
 # ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation". Bursting bubbles with more of the same. EVERYTHING!!! (in the world of the money measurers) with a facelift.***
 ## ***The entire reason for inventing homeless dollars in the first place is to CREATE BUBBLES!!!  - stop efficient removal of bad merchandise from the marketplace (STOP VALUE MEASUREMENT!!!) AND HAVE BUBBLES INSTEAD!!!***<br>
