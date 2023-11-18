@@ -493,4 +493,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ***`¹` No real winners, EVERYBODY LOSING because no commerce.<br>
 > `²` See "No man's land (the marketplace!!!)." Part 3.***<br>
 # ***Part 28b. Homeless ghosts.***
-## ***"All the ghosts driven out of the ... West by <ins>MEN WHO PRETEND TO BE WISE AND ALONE AND AT PEACE-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***
+## ***"All the ghosts driven out of the ... West by <ins>MEN WHO PRETEND TO BE WISE AND ALONE AND AT PEACE-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***<br><br>Homeless ghosts but even - the tip of the iceberg? - of those to come in a 20th century and beyond of world wars and more, economic chaos and misery, money measurers all the while <ins>PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>
