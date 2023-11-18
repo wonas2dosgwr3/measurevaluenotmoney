@@ -451,13 +451,13 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ***"True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have no interest in life in the land in question?"***<br>
 ***"None."***<br>
 ***"Then why so stiff about it, Price? all I want of you is to say - "***<br>
-***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
-> #### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***
-***"With you I will go. To your land-to your people. To your people ... to whom <ins>DAY IS DAY, AND NIGHT IS NIGHT-nothing more, because you understand all things seen, and despise all else! To your land ... where every man is wise, and alone-and at peace!"</ins>***<br>[formatting added]<br>
-> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***
+***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***<br>
+>> ##### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***<br><br>
+## ***"With you I will go. To your land-to your people. To your people ... to whom <ins>DAY IS DAY, AND NIGHT IS NIGHT-nothing more, because you understand all things seen, and despise all else! To your land ... where every man is wise, and alone-and at peace!"</ins>***<br>[formatting added]<br>
+>> ##### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br>
 # ***No man's land (the marketplace!!!).<br>No trespassing.¹***
-> ***¹ Inalienable rights!!!***
->>  ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***
+>> ***¹ Inalienable rights!!!***
+>>>  ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***
 ## ***Part 1.***
 ## ***No one owns the marketplace. Everyone owns a piece of it.***
 ## ***Part 2.***
