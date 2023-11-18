@@ -489,16 +489,26 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
 ## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***
+
 > ***<ins>Only JACKPOTS!!!</ins>, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; <ins>only LOWERING THE STANDARD OF LIVING!!!</ins><br><br>Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. <ins>JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).</ins><br><br>JACKPOTS FOR NO HUMAN LABOR <ins>sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides.</ins> "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br><br><ins>JACKPOTS</ins> FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), <ins>FOR LOWERING THE STANDARD OF LIVING!!!</ins><br><br><ins>JACKPOTS FOR NO SIGNS OF LIFE.</ins> FOR RETURNED BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.***
+
 ## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
 >> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
->> ***² See "No man's land (the marketplace!!!)." Part 3.***<br>
+>> ***² See "No man's land (the marketplace!!!)." Part 3.***
+
 # ***Part 28b. Homeless ghosts.***
->> ***Quotations from Joseph Conrad, "Karain: A Memory", Chap 6. 1897  [formatting added]***<br><br>
-> ### ***"All the ghosts driven out of the ... West by men who <ins>PRETEND TO BE WISE AND ALONE AND AT PEACE[¹]-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***<br><br>
->> ### ***<ins>Homeless ghosts</ins>, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PRETENDING WITH ALL  THEIR MIGHT, PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***<br><br>
-> ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***<br>
->> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***<br><br>
-> ### ***OF GREAT POWER - MEASURING VALUE!!!***<br><br>
->> #### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***<br>
+>> ***Quotations from Joseph Conrad, "Karain: A Memory", Chap 6. 1897  [formatting added]***
+
+> ### ***"All the ghosts driven out of the ... West by men who <ins>PRETEND TO BE WISE AND ALONE AND AT PEACE[¹]-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***
+
+>> ### ***<ins>Homeless ghosts</ins>, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PRETENDING WITH ALL  THEIR MIGHT, PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***
+
+> ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***
+
+>> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***
+
+> ### ***OF GREAT POWER - MEASURING VALUE!!!***
+
+>> #### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***
+
 > #### ***¹ See end of "THE HOMELESS DOLLAR. Part 27. ... "***
