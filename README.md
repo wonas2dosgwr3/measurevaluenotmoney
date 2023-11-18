@@ -446,12 +446,12 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ### ***AND PAVING THE WAY FOR ANOTHER FACELIFT!!! - <ins>HOMELESS DOLLARS TO THE RESCUE!!!</ins> - WHEN BUBBLES BURST!!!***<br><br>***AND ANOTHER!!!, EVERYTHING!!! with a facelift!!!, <ins>NO SOLID GROUND ANYWHERE</ins> in the world of NO COMMERCE, NO HUMAN LABOR, NO HUMAN NEEDS, NO MEASURING VALUE, OF DONALD TRUMPS!!!***<br><br>***<ins>BURSTING BUBBLES MAKING WAY FOR NEW BUBBLES!!!</ins> in the land of no value measurement. Misery and chaos on top of misery and chaos, depressions, wars, etc, etc.***
 ### ***No difference between high and low value, between night and day, between black and white, BETWEEN YOURS AND MINE.***
 > ### ***" "I", said the Farmer, " ... it's none of mine, I never take what does not belong to me."***<br><br>***"True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have no interest in life in the land in question?"***<br><br>***"None."***<br><br>***"Then why so stiff about it, Price? all I want of you is to say - "***<br><br>***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
->>> #### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***<br>
+>>> #### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***<br><br>
 
 > ### ***"With you I will go. To your land-to your people. To your people ... to whom <ins>DAY IS DAY, AND NIGHT IS NIGHT-nothing more, because you understand all things seen, and despise all else! To your land ... where every man is wise, and alone-and at peace!"</ins>***
 *[formatting added]*<br>
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br>
-
+<br>
 # ***No man's land (the marketplace!!!).***
 ## ***No trespassing.¹***
 >> ### ***¹ Inalienable rights!!!***
@@ -488,7 +488,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***- ?***<br><br>
 
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
-## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***<br><br>***Only JACKPOTS!!!, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; only LOWERING THE STANDARD OF LIVING!!!<br><br>Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).<br><br>JACKPOTS FOR NO HUMAN LABOR <ins>sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides.</ins> "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br><br>JACKPOTS FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), FOR LOWERING THE STANDARD OF LIVING!!!<br><br>JACKPOTS FOR NO SIGNS OF LIFE. FOR RETURNING BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.<br><br>Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
+## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***
+ > ***Only JACKPOTS!!!, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; only LOWERING THE STANDARD OF LIVING!!!<br><br>Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).<br><br>JACKPOTS FOR NO HUMAN LABOR <ins>sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides.</ins> "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br><br>JACKPOTS FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), FOR LOWERING THE STANDARD OF LIVING!!!<br><br>JACKPOTS FOR NO SIGNS OF LIFE. FOR RETURNING BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.***
+## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
 >> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
 >> ***² See "No man's land (the marketplace!!!)." Part 3.***<br>
 # ***Part 28b. Homeless ghosts.***
