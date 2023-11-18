@@ -292,7 +292,8 @@ with benefit of credit [elastic currency speculators] it went more than four yea
 > ***<ins>Im Wandel Der Jahre</ins>, Fifth Ed., Harold Von Hofe, 1974, p72***
 
 > # ***"the gentry pushing their cravings ..."***
-> "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."*** -<ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1
+> "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."***
+>> ## ***-<ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1***
 
 # ***1933. The Farm Holiday movement***
 
