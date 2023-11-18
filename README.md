@@ -457,22 +457,27 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Part 2.***
 ## ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
 >> ***- Joseph Conrad, "Karain: A Memory", Chap 3. 1897***
+
 ## ***Part 3.***
 ## ***"Nobody ever saw a dog make a fair and deliberate exchange of one bone for another with another dog."***
 >> ### ***- ?***
+
 ## ***Part 4.***
 ### ***"No tengo trono ni reina<br>Ni nadie que me comprenda<br>Pero sigo siendo el rey"<br><br>("I don't have a throne nor a queen<br>Nor anyone who understands me<br>But I continue being the king")***
-
 >> #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971. See 2009 George Strait album "Twang" for more lyric.***
+
 ## ***Part 5.<br>Even a fool.***
 ## ***"and you must learn not to despise any man. Even a fool can teach you not to be foolish, and there's no telling where you'll hear the thing that  will help you to do a job easier, or the thing that may save your life."***
 >> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
+
 ## ***Part 6.<br>Even Lars K. Ahlstrom.***
 ## ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
 >> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II, "Pacific Beach"***
+
 ## ***Part 7.<br>Paranoid of trespassing! In banana republic land! Ricardo Güiraldes for President!!!***
 ## ***"Yo no me puedo quedar mucho en nenguna estancia" decia "porque en seguida estoy queriendo mandar más que los patrones."<br><br>("I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses.")***
 >> ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
+
 ## ***Part 8.<br>Even a boy. To save his own labor. One of the greatest improvements.***
 ## ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
 >> ***- ?***<br><br>
