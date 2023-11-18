@@ -283,12 +283,11 @@ with benefit of credit [elastic currency speculators] it went more than four yea
 ### ***- <ins>The World Was My Garden</ins>, David Fairchild, 1938. Chap XXIV, Baddeck, Nova Scotia and Chap XXV, Mostly Aviation***<br><br>
 
 # ***"kamen Studenten aus allen Kontinenten der Erde, um unter den deutschen Wissenschaftlern zu studieren."***
-## ***"Von der Zeit Liebigs auf dem Gebiet der Chemie und Georg Ohms auf dem Gebiet der Physik bis zu Röntgen, Max Ehrlich, Robert Koch und Albert Einstein <ins>kamen Studenten aus allen Kontinenten der Erde, um unter den deutschen Wissenschaftlern zu studieren.</ins>"***
-[formatting added]
+## ***"Von der Zeit Liebigs auf dem Gebiet der Chemie und Georg Ohms auf dem Gebiet der Physik bis zu Röntgen, Max Ehrlich, Robert Koch und Albert Einstein <ins>kamen Studenten aus allen Kontinenten der Erde, um unter den deutschen Wissenschaftlern zu studieren.</ins>"***<br>[formatting added]<br>
 > ***<ins>Im Wandel Der Jahre</ins>, Fifth Ed., Harold Von Hofe, 1974, p67***
 
 # ***"Noch im Jahre 1915 ... "***
-## ***"Noch im Jahre 1915 lernten 29,9 Prozent aller amerikanischen Schüler Deutsch, während nur 9,7 Prozent Französisch und 3 Prozent Spanisch lernten."***
+## ***"Noch im Jahre 1915 lernten 29,9 Prozent aller amerikanischen Schüler Deutsch, während nur 9,7 Prozent Französisch und 3 Prozent Spanisch lernten."***<br>
 > ***<ins>Im Wandel Der Jahre</ins>, Fifth Ed., Harold Von Hofe, 1974, p72***
 
 > # ***"the gentry pushing their cravings ..."***
