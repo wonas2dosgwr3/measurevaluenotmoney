@@ -448,7 +448,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >>> ##### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
 # ***No man's land (the marketplace!!!).<br>No trespassing.¹***
 >> ### ***¹ Inalienable rights!!!***
->>> #### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***
+>>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***
 ## ***Part 1.***
 ## ***No one owns the marketplace. Everyone owns a piece of it.***
 ## ***Part 2.***
