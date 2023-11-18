@@ -494,11 +494,11 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
 >> ***² See "No man's land (the marketplace!!!)." Part 3.***<br>
 # ***Part 28b. Homeless ghosts.***
->> ***Quotations from Joseph Conrad, "Karain: A Memory", Chap 6. 1897  [formatting added]***
-> ### ***"All the ghosts driven out of the ... West by men who <ins>PRETEND TO BE WISE AND ALONE AND AT PEACE[¹]-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***
->> ### ***Homeless ghosts, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PRETENDING WITH ALL  THEIR MIGHT, PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***
-> ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***
->> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***
-> ### ***OF GREAT POWER - MEASURING VALUE!!!***
+>> ***Quotations from Joseph Conrad, "Karain: A Memory", Chap 6. 1897  [formatting added]***<br><br>
+> ### ***"All the ghosts driven out of the ... West by men who <ins>PRETEND TO BE WISE AND ALONE AND AT PEACE[¹]-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***<br><br>
+>> ### ***Homeless ghosts, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PRETENDING WITH ALL  THEIR MIGHT, PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***<br><br>
+> ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***<br>
+>> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***<br><br>
+> ### ***OF GREAT POWER - MEASURING VALUE!!!***<br><br>
 >> #### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***<br>
 > #### ***¹ See end of "THE HOMELESS DOLLAR. Part 27. ... "***
