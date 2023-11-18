@@ -446,10 +446,12 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## ***"With you I will go. To your land-to your people. To your people ... to whom <ins>DAY IS DAY, AND NIGHT IS NIGHT-nothing more, because you understand all things seen, and despise all else! To your land ... where every man is wise, and alone-and at peace!"</ins>***
 *[formatting added]*<br>
->>> ##### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
+>>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***
+
 # ***No man's land (the marketplace!!!).<br>No trespassing.¹***
 >> ### ***¹ Inalienable rights!!!***
 >>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***
+
 ## ***Part 1.***
 ## ***No one owns the marketplace. Everyone owns a piece of it.***
 ## ***Part 2.***
