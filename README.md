@@ -499,5 +499,5 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***Homeless ghosts, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***
 > ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***
 >> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***
-> ### ***OF GREAT POWER - MEASURING VALUE!!!***<br><br>***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, ONLY THOSE WHO PRETEND, WHEN NOT MEASURING VALUE.***<br>
+> ### ***OF GREAT POWER - MEASURING VALUE!!!***<br><br>***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, PRETENDERS NOT MEASURING VALUE.***<br>
 > #### ***¹ See end of "THE HOMELESS DOLLAR. Part 27. ... "***
