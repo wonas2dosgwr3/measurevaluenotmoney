@@ -453,33 +453,31 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***No one owns the marketplace. Everyone owns a piece of it.***
 ## ***Part 2.***
 ## ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
-> ***- Joseph Conrad, "Karain: A Memory", Chap 3. 1897***
+>> ***- Joseph Conrad, "Karain: A Memory", Chap 3. 1897***
 ## ***Part 3.***
 ## ***"Nobody ever saw a dog make a fair and deliberate exchange of one bone for another with another dog."***
-> ### ***- ?***
+>> ### ***- ?***
 ## ***Part 4.***
 ### ***"No tengo trono ni reina<br>Ni nadie que me comprenda<br>Pero sigo siendo el rey"<br><br>("I don't have a throne nor a queen<br>Nor anyone who understands me<br>But I continue being the king")***
 
-> #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971. See 2009 George Strait album "Twang" for more lyric.***
+>> #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971. See 2009 George Strait album "Twang" for more lyric.***
 ## ***Part 5.<br>Even a fool.***
 ## ***"and you must learn not to despise any man. Even a fool can teach you not to be foolish, and there's no telling where you'll hear the thing that  will help you to do a job easier, or the thing that may save your life."***
-> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
+>> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
 ## ***Part 6.<br>Even Lars K. Ahlstrom.***
 ## ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
-> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II, "Pacific Beach"***
+>> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II, "Pacific Beach"***
 ## ***Part 7.<br>Paranoid of trespassing! In banana republic land! Ricardo Güiraldes for President!!!***
 ## ***"Yo no me puedo quedar mucho en nenguna estancia" decia "porque en seguida estoy queriendo mandar más que los patrones."<br><br>("I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses.")***
-> ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
+>> ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
 ## ***Part 8.<br>Even a boy. To save his own labor. One of the greatest improvements.***
 ## ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
-> ***- ?***<br><br>
+>> ***- ?***<br><br>
 
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
-## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).<br><br>Only JACKPOTS!!!, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; only LOWERING THE STANDARD OF LIVING!!!***<br><br>
-
-## ***Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).<br><br>JACKPOTS FOR NO HUMAN LABOR sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides. "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br><br>JACKPOTS FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), FOR LOWERING THE STANDARD OF LIVING!!!<br><br>JACKPOTS FOR NO SIGNS OF LIFE. FOR RETURNING BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.<br><br>Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
-> ***`¹` No real winners, EVERYBODY LOSING because no commerce.<br>
-> `²` See "No man's land (the marketplace!!!)." Part 3.***<br>
+## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***<br><br>***Only JACKPOTS!!!, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; only LOWERING THE STANDARD OF LIVING!!!<br><br>Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).<br><br>JACKPOTS FOR NO HUMAN LABOR <ins>sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides.</ins>"SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br><br>JACKPOTS FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), FOR LOWERING THE STANDARD OF LIVING!!!<br><br>JACKPOTS FOR NO SIGNS OF LIFE. FOR RETURNING BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.<br><br>Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
+>> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
+>> ***² See "No man's land (the marketplace!!!)." Part 3.***<br>
 # ***Part 28b. Homeless ghosts.***
 > ***Quotations from Joseph Conrad, "Karain: A Memory", Chap 6. 1897  [formatting added]***
 ## ***"All the ghosts driven out of the ... West by <ins>MEN WHO PRETEND TO BE WISE AND ALONE AND AT PEACE[¹]-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***<br><br>***Homeless ghosts, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***<br><br>***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm for him:***<br><br>***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***<br><br>***OF GREAT POWER - MEASURING VALUE!!!***<br><br>***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, ONLY THOSE WHO PRETEND, WHEN NOT MEASURING VALUE.***<br>
