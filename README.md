@@ -153,7 +153,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > [Formatting added. wonas2dosgwr3 translation]<br>
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
-## <br><br>***High house value is***<br>
+## <br><br>***High house value is (6)***<br>
 > <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
 > ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!</ins>***<br><br>
@@ -383,11 +383,11 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Value in exchange is <ins>COST</ins> ...<br><br>A standard of value is <ins>a standard of COST</ins> ...<br><br>Costs going ... UP <ins>(and MORE ABNORMAL - SOME THINGS less affordable than before)</ins>,<br><br>AND UP <ins>(and STILL MORE ABNORMAL - SOME THINGS even less affordable than before)</ins>,<br><br>AND UP <ins>(AND STILL MORE ABNORMAL - SOME THINGS</ins> ...<br><br>... <ins>not even coming to market at all anymore???!!!!!)</ins> <br><br>... <ins>HOUSING FOR A GREAT MANY PEOPLE, A BIG MARKET!!!, A HUMAN NEED SO EASILY MET!!!, A BIG MARKET SO EASILY SATISFIED!!!, NO LONGER AVAILABLE AT ALL?????!!!!!?????</ins> ...<br><br>... the dark ages returning, poverty, returning barbarism ...<br><br>WHAT IF COST WAS BEING MEASURED, HAD A HOME, <ins>THERE COULD ONLY BE PROFIT IN MEETING, NOT TRAMPLING, HUMAN NEEDS???</ins> ...***
 
 > # ***"Easy come, easy go"***<br>
-> ##    ***- Homeless fellow commenting about a tent that hadn't worked as well as he hoped.***`*`<br>
+> ##    ***- Homeless fellow commenting about a tent that hadn't worked as well as he hoped.***¹<br>
 > ## ***More wisdom than anyone in the government has???<br>More wisdom than any money measurer has.***<br>
-> ## ***<ins>Costs remain no matter what, inalienable private property!!!!!</ins>, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins>`**` instead of coming to market, poverty returning, returning barbarism.***<br>
-> `*` Wonas2ds3sp personal encounter.<br>
-> `**` <ins>***PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins><br><br>
+> ## ***<ins>Costs remain no matter what, inalienable private property!!!!!</ins>, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins>² instead of coming to market, poverty returning, returning barbarism.***<br>
+> ¹ wonas2dosgwr3 personal encounter.<br>
+> ² <ins>***PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins><br><br>
 # ***THE HOMELESS DOLLAR. Part 18. Freedom is YOUR HOME. Your home is FREEDOM.<br><br>Life, liberty, and the pursuit of happiness: <ins>YOUR HOME</ins>.<br><br>HOMES the <ins>only access to money</ins>. FREEDOM the <ins>only access to money</ins>.<br><br>Private property will ever have its home, its freedom, its power to ENRICH OTHER HOMES, to DESERT AND DESTROY the Roman Empire and all other <ins>TRESPASSERS!!!</ins><br><br>When <ins>MONEY IS EVERYTHING</ins>: EARNING IT <ins>ISN'T</ins>, FREEDOM <ins>ISN'T</ins>, HOMES <ins>AREN'T</ins>, HUMAN NEEDS <ins>AREN'T</ins>.***<br>
 > ## ***"He was a born rebel..., a throwback to <ins>A FREER TIME, BEFORE MONEY WAS EVERYTHING."</ins>***
 > [formatting added]<br><br>
