@@ -500,5 +500,5 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***
 >> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***
 > ### ***OF GREAT POWER - MEASURING VALUE!!!***
->> #### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR PRETENDERS NOT MEASURING VALUE.***<br>
+>> #### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***<br>
 > #### ***¹ See end of "THE HOMELESS DOLLAR. Part 27. ... "***
