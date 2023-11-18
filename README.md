@@ -489,7 +489,11 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
 ## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***
-> ***<ins>Only JACKPOTS!!!</ins>, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; <ins>only LOWERING THE STANDARD OF LIVING!!!</ins><br><br>Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. <ins>JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).</ins><br><br>JACKPOTS FOR NO HUMAN LABOR <ins>sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides.</ins> "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.<br><br><ins>JACKPOTS</ins> FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), <ins>FOR LOWERING THE STANDARD OF LIVING!!!</ins><br><br><ins>JACKPOTS FOR NO SIGNS OF LIFE.</ins> FOR RETURNED BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.***
+> ***<ins>Only JACKPOTS!!!</ins>, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; <ins>only LOWERING THE STANDARD OF LIVING!!!</ins>***
+> ***Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. <ins>JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).</ins>***
+> ***JACKPOTS FOR NO HUMAN LABOR <ins>sure to cause "SHORTAGES"!!!, "UNAFFORDBILITY"!!! of what human labor provides.</ins> "SHORTAGES" of energy, health care, housing, etc, etc. Wars and misery.***
+> ***<ins>JACKPOTS</ins> FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), <ins>FOR LOWERING THE STANDARD OF LIVING!!!</ins>***
+> ***<ins>JACKPOTS FOR NO SIGNS OF LIFE.</ins> FOR RETURNED BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.***
 
 ## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
 >> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
