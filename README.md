@@ -10,7 +10,7 @@ measurevaluenotmoney
 ***Evict*** measured money, NOT TENANTS (not VALUE!).
 ***Foreclose*** against measured money, NOT AGAINST PEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
 
-* ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in and destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contrast, vanished civilizations are monuments to interference with housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
+* ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in and destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contrast, vanished civilizations are monuments to interference with 5 housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
 
 * # ***Land ownership***
 
@@ -488,7 +488,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***- ?***<br><br>
 
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
-## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE STANDARD OF VALUE!!!</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***
+## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE!!!!! standard of value</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***
 
 >> ***<ins>Only JACKPOTS!!!</ins>, games of chance, "WINNERS"¹ AND LOSERS, NOT COMMERCE (which raises the standard of living because EVERYBODY WINS) deploy homeless dollars; <ins>only LOWERING THE STANDARD OF LIVING!!!</ins>***<br><br>
 >> ***Jackpots for NO HUMAN LABOR, FOR LAND, the timeless, useless attempt to get money from land. <ins>JACKPOTS OF LAND!!! For NO HUMAN LABOR (homeless dollars).</ins>***<br><br>
