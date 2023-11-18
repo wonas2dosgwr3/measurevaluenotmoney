@@ -16,13 +16,13 @@ measurevaluenotmoney
 
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***<br>
 
-## ***<br>High house value is***<br>
+## ***<br>High house value is (1)***<br>
 > ***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
 
-## ***<br>High house value is***<br>
+## ***<br>High house value is (2)***<br>
 > <ins>***EVERYONE IS AN ABSOLUTE LAND-HOMEOWNER WHO WANTS TO BE!!! Your home will never be SAFER, house prices will never be LOWER!!! A person's home is THEIR CASTLE!!!, more important to be SAFE OR HIGH PRICED???!!!***</ins><br>
 
-## ***<br>High house value is***<br>
+## ***<br>High house value is (3)***<br>
 > ***A CUSTOM HOME. Very CREATIVE. Great CRAFTSMANSHIP. As EARTHQUAKE-, TORNADO-, HURRICANE-RESISTANT as possible. <ins>But never, BEING A SLAVE!!!</ins> The American Dream <ins>is not to be A SLAVE!!!</ins> The Fourth of July <ins>is not to be A SLAVE!!!</ins>***
 
 ## <br>***Real stimulus***<br> 
@@ -65,7 +65,7 @@ measurevaluenotmoney
 ## <ins>***change the number of zeroes and move the decimal point around."***</ins><br>
 [Formatting added. wonas2dosgwr3 personal encounter]<br><br>
 
-## ***<br>High house value is***<br>
+## ***<br>High house value is (4)***<br>
 > ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***<br>
 
 # <br>***THE HOMELESS DOLLAR. Part 3<br><br><ins>Without an ID,</ins>***<br>
@@ -98,7 +98,7 @@ measurevaluenotmoney
 ## ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***<br>
 *No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for* <ins>***the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!!***</ins> *The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS* <ins>***NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!***</ins><br>
 
-## <br>***High house value is***<br>
+## <br>***High house value is (5)***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br><br>
 > <ins>***NO PAYMENTS ABOUT IT!!!!!***</ins><br><br>
 > ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!!!</ins>***<br><br>
