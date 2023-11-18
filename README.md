@@ -1,4 +1,4 @@
-6ymeasurevaluenotmoney
+y6ymeasurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
@@ -440,7 +440,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 > ***² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor</ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
-# ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation". Bursting bubbles with more of the same. EVERYTHING!!! (in the world of the money measurers) with a facelift.***
+# ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation".***
+## ***Bursting bubbles with more of the same. EVERYTHING!!! (in the world of the money measurers) with a facelift.***
 ## ***The entire reason for inventing homeless dollars in the first place is to CREATE BUBBLES!!!  - stop efficient removal of bad merchandise from the marketplace (STOP VALUE MEASUREMENT!!!) AND HAVE BUBBLES INSTEAD!!!***<br><br>***Endless discussion of "INFLATION" IS ALL A FACELIFT!!! suggesting it matters, that ANYTHING!!! but bad merchandise and the constant price increases which are the only thing that keeps Donald Trumps interested is involved.***<br><br>***AND PAVING THE WAY FOR ANOTHER FACELIFT!!! - HOMELESS DOLLARS TO THE RESCUE!!! - WHEN BUBBLES BURST!!!***<br><br>***AND ANOTHER!!!, EVERYTHING!!! with a facelift!!!, NO SOLID GROUND ANYWHERE in the world of NO COMMERCE, NO HUMAN LABOR, NO HUMAN NEEDS, NO MEASURING VALUE, OF DONALD TRUMPS!!!***<br><br>***BURSTING BUBBLES MAKING WAY FOR NEW BUBBLES!!! in the land of no value measurement. Misery and chaos on top of misery and chaos, depressions, wars, etc, etc.***<br><br>***No difference between high and low value, between night and day, between black and white, BETWEEN YOURS AND MINE.***<br><br>***" "I", said the Farmer, " ... it's none of mine, I never take what does not belong to me."***<br>***"True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have no interest in life in the land in question?"***<br>***"None."***<br>***"Then why so stiff about it, Price? all I want of you is to say - "***<br>***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
 >>> #### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***
 
@@ -467,19 +468,19 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971. See 2009 George Strait album "Twang" for more lyric.***
 
 ## ***Part 5.<br>Even a fool.***
-## ***"and you must learn not to despise any man. Even a fool can teach you not to be foolish, and there's no telling where you'll hear the thing that  will help you to do a job easier, or the thing that may save your life."***
+### ***"and you must learn not to despise any man. Even a fool can teach you not to be foolish, and there's no telling where you'll hear the thing that  will help you to do a job easier, or the thing that may save your life."***
 >> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
 
 ## ***Part 6.<br>Even Lars K. Ahlstrom.***
-## ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
+### ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
 >> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II, "Pacific Beach"***
 
 ## ***Part 7.<br>Paranoid of trespassing! In banana republic land! Ricardo Güiraldes for President!!!***
-## ***"Yo no me puedo quedar mucho en nenguna estancia" decia "porque en seguida estoy queriendo mandar más que los patrones."<br><br>("I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses.")***
+### ***"Yo no me puedo quedar mucho en nenguna estancia" decia "porque en seguida estoy queriendo mandar más que los patrones."<br><br>("I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses.")***
 >> ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
 
 ## ***Part 8.<br>Even a boy. To save his own labor. One of the greatest improvements.***
-## ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
+### ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
 >> ***- ?***<br><br>
 
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
