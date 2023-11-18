@@ -445,21 +445,22 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***The entire reason for inventing homeless dollars in the first place is to CREATE BUBBLES!!!  - stop efficient removal of bad merchandise from the marketplace (STOP VALUE MEASUREMENT!!!) AND HAVE BUBBLES INSTEAD!!!***<br><br>***Endless discussion of "INFLATION" IS ALL A FACELIFT!!! suggesting it matters, that <ins>ANYTHING!!!</ins> but bad merchandise and the constant price increases which are the only thing that keeps Donald Trumps interested is involved.***
 > ### ***AND PAVING THE WAY FOR ANOTHER FACELIFT!!! - <ins>HOMELESS DOLLARS TO THE RESCUE!!!</ins> - WHEN BUBBLES BURST!!!***<br><br>***AND ANOTHER!!!, EVERYTHING!!! with a facelift!!!, <ins>NO SOLID GROUND ANYWHERE</ins> in the world of NO COMMERCE, NO HUMAN LABOR, NO HUMAN NEEDS, NO MEASURING VALUE, OF DONALD TRUMPS!!!***<br><br>***BURSTING BUBBLES MAKING WAY FOR NEW BUBBLES!!! in the land of no value measurement. Misery and chaos on top of misery and chaos, depressions, wars, etc, etc.***
 ### ***No difference between high and low value, between night and day, between black and white, BETWEEN YOURS AND MINE.***
-> ***" "I", said the Farmer, " ... it's none of mine, I never take what does not belong to me."***<br><br>***"True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have no interest in life in the land in question?"***<br><br>***"None."***<br><br>***"Then why so stiff about it, Price? all I want of you is to say - "***<br><br>***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
+> ### ***" "I", said the Farmer, " ... it's none of mine, I never take what does not belong to me."***<br><br>***"True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have no interest in life in the land in question?"***<br><br>***"None."***<br><br>***"Then why so stiff about it, Price? all I want of you is to say - "***<br><br>***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
 >>> #### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***
 
 > ### ***"With you I will go. To your land-to your people. To your people ... to whom <ins>DAY IS DAY, AND NIGHT IS NIGHT-nothing more, because you understand all things seen, and despise all else! To your land ... where every man is wise, and alone-and at peace!"</ins>***
 *[formatting added]*<br>
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br>
 
-# ***No man's land (the marketplace!!!).***<br>***No trespassing.¹***
+# ***No man's land (the marketplace!!!).***
+## ***No trespassing.¹***
 >> ### ***¹ Inalienable rights!!!***
 >>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***
 
 ## ***Part 1.***
-## ***No one owns the marketplace. Everyone owns a piece of it.***
+### ***No one owns the marketplace. Everyone owns a piece of it.***
 ## ***Part 2.***
-## ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
+### ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
 >> ***- Joseph Conrad, "Karain: A Memory", Chap 3. 1897***
 
 ## ***Part 3.***
