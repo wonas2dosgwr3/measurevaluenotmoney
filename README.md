@@ -476,7 +476,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
 
 ## ***Part 6.<br>Even Lars K. Ahlstrom.***
-### ***"Out of this almost impenetrable fores4t, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
+### ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
 >> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II,"Pacific Beach"***
 
 ## ***Part 7.***<br>***Paranoid of trespassing!!! In banana republic land! Ricardo Güiraldes for President!!!***
@@ -515,7 +515,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***
 
 >> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***
-guy
+
 > ### ***OF GREAT POWER - MEASURING VALUE!!!***
 
 >> ##### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***
