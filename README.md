@@ -510,7 +510,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 > ### ***"All the ghosts driven out of the ... West by men who <ins>PRETEND TO BE WISE AND ALONE AND AT PEACE[¹]-ALL THE HOMELESS GHOSTS ... APPEARED SUDDENLY"</ins>***
 
->> ### ***<ins>Homeless ghosts</ins>, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PRETENDING WITH ALL  THEIR MIGHT, PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***
+>> ### ***<ins>Homeless ghosts</ins>, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PRETENDING WITH ALL  THEIR MIGHT!!!, PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***
 
 > ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***
 
