@@ -481,7 +481,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## ***Part 7.***<br>***Paranoid of trespassing! In banana republic land! Ricardo Güiraldes for President!!!***
 >> #### ***"¡Cuánto había andado ese hombre!<br>En todos los pagos tenía amigos, que lo querían y respetaban, aunque poco tiempo paraba en un punto. Su ascendiente sobre los paisanos era tal que una palabra suya podía arreglar el asunto más embrollado. Su popularidad, empero, lejos de servirle parecía fatigarlo después de un tiempo."***
-> ### ***<ins>-Yo no me puedo quedar mucho en nenguna estancia- decia -porque en seguida estoy queriendo mandar más que los patrones.-</ins>***    ****[formatting added]****
+> ### ***<ins>-Yo no me puedo quedar mucho en nenguna estancia- decia -porque en seguida estoy queriendo mandar más que los patrones.-</ins>***<br>[formatting added]
 >> #### ***("How much that fellow had gotten around!<br>In all the areas he had friends, who liked and respected him, although he didn't stay long in one place. His ascendency over the peasants was such that one word from him could straighten out the worst mess. His popularity, however, far from benefitting him seemed to tire him after a time.***
 > ### ***<ins>"I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses." "</ins>)***
 >>> #### ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
@@ -513,7 +513,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***
 
 >> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***
-
+guy
 > ### ***OF GREAT POWER - MEASURING VALUE!!!***
 
 >> ##### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***
