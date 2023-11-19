@@ -513,6 +513,6 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 > ### ***OF GREAT POWER - MEASURING VALUE!!!***
 
->> #### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***
+>> ##### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***
 
 > #### ***¹ See end of "THE HOMELESS DOLLAR. Part 27. ... "***
