@@ -480,9 +480,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II,"Pacific Beach"***
 
 ## ***Part 7.<br>Paranoid of trespassing! In banana republic land! Ricardo Güiraldes for President!!!***
-### ***¡Cuánto había andado ese hombre!<br>
+#### ***¡Cuánto había andado ese hombre!***<br>
 En todos los pagos tenía amigos, que lo querían y respetaban, aunque poco tiempo paraba en un punto. Su ascendiente sobre los paisanos era tal que una palabra suya podía arreglar el asunto más embrollado. Su popularidad, empero, lejos de servirle parecía fatigarlo después de un tiempo.***<br>
-### ***-Yo no me puedo quedar mucho en nenguna estancia- decia -porque en seguida estoy queriendo mandar más que los patrones.-<br><br>("How much that fellow had gotten around!***<br>
+#### ***-Yo no me puedo quedar mucho en nenguna estancia- decia -porque en seguida estoy queriendo mandar más que los patrones.-<br><br>("How much that fellow had gotten around!***<br>
 ### ***"I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses." ")***
 >> ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
 
