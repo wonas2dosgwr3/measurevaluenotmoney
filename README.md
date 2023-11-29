@@ -513,11 +513,11 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***<ins>Homeless ghosts</ins>, but even - the tip of the iceberg? - of those to come in the massive destruction of so much human and other resource in a 20th century and beyond of world wars and more, economic chaos and misery, into the 21st century with a crisis of housing and <ins>HOMELESS PEOPLE</ins>, money measurers all the while <ins>PRETENDING WITH ALL  THEIR MIGHT!!!, PUTTING MONEY ANYWHERE!!! BUT IN ITS PLACE (MEASURING VALUE!!!)</ins>***
 
 > ### ***The remedy for 3rd worlder Karain? En lieu of taking him to the West, a charm:***
-
 >> ### ***"It looked like <ins>a coin.</ins> ... It was <ins>a sixpence-a Jubilee sixpence.</ins>***<br><br>***"A charm for our friend," he [Hollis] said to us. "The thing itself <ins>IS OF GREAT POWER-MONEY, YOU KNOW</ins>-and his imagination is struck. A loyal vagabond;" "***
 
 > ### ***OF GREAT POWER - MEASURING VALUE!!!***
 
->> ##### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>***
-
+>> ##### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>*** 
 > #### ***¹ See end of "THE HOMELESS DOLLAR. Part 27. ... "***
+# ***THE HOMELESS (HIGH VISIBILITY) DOLLAR. Part 29. Money never changes, everything else in the marketplace does, how much and for better or worse can always be learned from money.***
+## ***Money the harmless standard of measurement shuns resource waste, leaving resource waste measured "low value".<br><br>MONEY WASTE, on the other hand, CAN'T BE SEPARATED FROM RESOURCE WASTE!!!, AND IS FAR MORE VISIBLE THAN MONEY THE MERE STANDARD OF MEASUREMENT. Homeless dollars are entirely a resource wasting and money wasting scheme, HIGHLY VISIBLE, inviting the delusion of money being "EVERYTHING", ALL THAT MATTERS, BLAMING RESOURCE WASTE ON THE HARMLESS STANDARD OF MEASUREMENT MONEY, instead of on MONEY WASTE!!!
