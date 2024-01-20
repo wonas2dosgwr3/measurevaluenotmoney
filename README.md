@@ -1,4 +1,4 @@
-measurevaluenotmoney
+5measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
@@ -524,6 +524,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ## ***"The loggers and road builders look at every lovely ridge or basin for QUICK PROFITS. They take heavily from the forests, sometimes destroying everything." (Chap V. Mount Adams).<br><br>"Lumber interests would be served; the man who built the road would make A FORTUNE ... That act of desecration would prove that the powers that be downgrade VALUES THAT CANNOT BE CONVERTED INTO DOLLAR SIGNS." (Chap IX. Glacier Peak).<br><br>"These days people think more and more IN TERMS OF DOLLARS. By those standards all of our wilderness will be chewed up by machines. Yet <ins>DOLLARS DO NOT EXPRESS ALL THE VALUES WHICH WE AMERICANS CHERISH.</ins> ... An attempt to put DOLLAR SIGNS on these natural wonders is, I thought, a mark ... of our great decline. We deal with <ins>VALUES THAT NO DOLLARS CAN MEASURE."</ins>(Chap IX. Glacier Peak).***<br><br>
 
 # ***THE HOMELESS DOLLAR. Part 30. "Everything's going up!"¹***
->>>>>> ### ***¹ Prices. "Inflation" - OF A BUBBLE!!!!! Nothing to manage!!! Only to <ins>STOP THE PROLIFERATION OF HUMAN NEEDS-DEFYING PRICES!!!!!</ins>, which is all there is to inflation management. STOP THE MISERY, THE CONSPICUOUS RESOURCE WASTE, MONEY BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins> Money should no more be "everything" than the inch or the ounce should be. Everything should be <ins>CONSPICUOUS MARKETS!!!, CONSPICUOUS INVESTMENT OPPORTUNITIES!!!, CONSPICUOUS HUMAN NEEDS!!!, RAISING THE STANDARD OF LIVING!!!</ins>***
+>>>>>> ### ***¹ Prices. "Inflation" - OF A BUBBLE!!!!! Nothing to manage!!! Only to <ins>STOP THE PROLIFERATION OF HUMAN NEEDS-DEFYING PRICES!!!!!</ins>, which is all there is to inflation management. STOP THE MISERY, THE CONSPICUOUS RESOURCE WASTE, MONEY 
+BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins> Money should no more be "everything" than the inch or the ounce should be. Everything should be <ins>CONSPICUOUS MARKETS!!!, CONSPICUOUS INVESTMENT OPPORTUNITIES!!!, CONSPICUOUS HUMAN NEEDS!!!, RAISING THE STANDARD OF LIVING!!!</ins>***
 
 ## ***Everything's <ins>PLAIN AS DAY!!!!!</ins>, IN A LEGITIMATE FINANCIAL SYSTEM!!!<br>Prices are not an issue, no financial complexity, only <ins>PLAIN INFORMATION ABOUT HUMAN NEEDS, VALUE MEASUREMENTS, ALL THAT PROSPEROUS PEOPLE NEED.</ins><br><br>Illegitimate prices (bad merchandise) is ALL THERE IS TO "INFLATION", "DEFLATION", FINANCIAL COMPLEXITY, NO SIGNS OF LIFE (HUMAN NEEDS, HOMELESS PEOPLE) ALLOWED, TRIPLE-REVERSE UPSIDE-DOWN MORTGAGES.***
+
+# ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31. The next lost continent???¹***
+## ***OUTPUT - SOMETHING VENTURED!!!, GOOD WILL!!!, MEETING HUMAN NEEDS!!!, COMMITTMENT TO COMMERCE!!!, TO SAFETY!!!, TO HOMES!!!<br><br>Not OSTENTATION!!!, gold and silver for ornament² instead of for money; not HOARDING GOLD AND SILVER!!!, money measurers sitting on it, paranoid of letting gold and silver out of their hands, of letting them BE MONEY!!!, CIRCULATE!!!, well knowing the BAD MERCHANDISE THEY'RE PEDDLING!!! will never bring gold and silver back to them; not HOW BIG!!! the pile of homeless dollars is; not DIVERTING MONEY IN ANY WAY FROM SERVING HUMAN NEEDS!!!; NOT ANY ADORNMENT, NOT ANYTHING PUT ON!!!!!***
