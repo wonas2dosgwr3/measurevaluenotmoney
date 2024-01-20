@@ -1,4 +1,4 @@
-5measurevaluenotmoney
+measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
@@ -530,4 +530,8 @@ BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins> Money should no mo
 ## ***Everything's <ins>PLAIN AS DAY!!!!!</ins>, IN A LEGITIMATE FINANCIAL SYSTEM!!!<br>Prices are not an issue, no financial complexity, only <ins>PLAIN INFORMATION ABOUT HUMAN NEEDS, VALUE MEASUREMENTS, ALL THAT PROSPEROUS PEOPLE NEED.</ins><br><br>Illegitimate prices (bad merchandise) is ALL THERE IS TO "INFLATION", "DEFLATION", FINANCIAL COMPLEXITY, NO SIGNS OF LIFE (HUMAN NEEDS, HOMELESS PEOPLE) ALLOWED, TRIPLE-REVERSE UPSIDE-DOWN MORTGAGES.***
 
 # ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31. The next lost continent???¹***
-## ***OUTPUT - SOMETHING VENTURED!!!, GOOD WILL!!!, MEETING HUMAN NEEDS!!!, COMMITTMENT TO COMMERCE!!!, TO SAFETY!!!, TO HOMES!!!<br><br>Not OSTENTATION!!!, gold and silver for ornament² instead of for money; not HOARDING GOLD AND SILVER!!!, money measurers sitting on it, paranoid of letting gold and silver out of their hands, of letting them BE MONEY!!!, CIRCULATE!!!, well knowing the BAD MERCHANDISE THEY'RE PEDDLING!!! will never bring gold and silver back to them; not HOW BIG!!! the pile of homeless dollars is; not DIVERTING MONEY IN ANY WAY FROM SERVING HUMAN NEEDS!!!; NOT ANY ADORNMENT, NOT ANYTHING PUT ON!!!!!***
+## ***OUTPUT - SOMETHING VENTURED!!!, GOOD WILL!!!, MEETING HUMAN NEEDS!!!, COMMITTMENT TO COMMERCE!!!, TO SAFETY!!!, TO HOMES!!!<br><br>Not OSTENTATION!!!, gold and silver for ornament² instead of for money; not HOARDING GOLD AND SILVER!!!, money measurers sitting on it, paranoid of letting gold and silver out of their hands, of letting them BE MONEY!!!, CIRCULATE!!!, well knowing the BAD MERCHANDISE THEY'RE PEDDLING!!! will never bring gold and silver back to them; not HOW BIG!!! the pile of homeless dollars is; not DIVERTING MONEY IN  ANY WAY FROM OUTPUT, FROM SOMETHING VENTURED, FROM SERVING HUMAN NEEDS!!!; NOT ANY ADORNMENT, NOT ANYTHING PUT ON!!!!!***<br><br>
+
+>> **" "When the star of Bal fell on the place where now is only the sky and the sea, the seven cities ... quivered and shook ... ... and the wise Mu - the ***Hieratic Ra Mu*** - arose and said to them: did I not predict all this? And the women and the men in their precious stones and shining garments lamented ... and Mu  replied: 'You shall all [perish] ... and ... new nations shall arise. If they forget they are superior <ins>not because of what they PUT ON but what they PUT OUT</ins> the same will befall them.' ... the land and its inhabitants were torn to pieces and swallowed up by the depths." "**
+>>>> ***- <ins>The Lhasa Record</ins>, "discovered by [Heinrich] Schliemann
+ in the old  Buddhist Temple of Lhasa, Tibet. Schliemann deciphered and translated it." <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap IV. RECORDS OF THE LOST CONTINENT
