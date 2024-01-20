@@ -534,4 +534,6 @@ BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins> Money should no mo
 
 >> **" "When the star of Bal fell on the place where now is only the sky and the sea, the seven cities ... quivered and shook ... ... and the wise Mu - the ***Hieratic Ra Mu*** - arose and said to them: did I not predict all this? And the women and the men in their precious stones and shining garments lamented ... and Mu  replied: 'You shall all [perish] ... and ... new nations shall arise. If they forget they are superior <ins>not because of what they PUT ON but what they PUT OUT</ins> the same will befall them.' ... the land and its inhabitants were torn to pieces and swallowed up by the depths." "**
 >>>> ***- <ins>The Lhasa Record</ins>, "discovered by [Heinrich] Schliemann
- in the old  Buddhist Temple of Lhasa, Tibet. Schliemann deciphered and translated it." <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap IV. RECORDS OF THE LOST CONTINENT
+ in the old  Buddhist Temple of Lhasa, Tibet. Schliemann deciphered and translated it." <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap IV. RECORDS OF THE LOST CONTINENT***
+
+>>> ### ***¹ See THE HOMELESS DOLLAR. Part 19.<br><br>² See "Gold in their pockets, Paper on their walls"***
