@@ -17,6 +17,7 @@ measurevaluenotmoney
 
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***<br>
 
+1.01
 ## ***<br>High house value is (1)***<br>
 > ***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
 
@@ -26,31 +27,37 @@ measurevaluenotmoney
 ## ***<br>High house value is (3)***<br>
 > ***A CUSTOM HOME. Very CREATIVE. Great CRAFTSMANSHIP. As EARTHQUAKE-, TORNADO-, HURRICANE-RESISTANT as possible. <ins>But never, BEING A SLAVE!!!</ins> The American Dream <ins>is not to be A SLAVE!!!</ins> The Fourth of July <ins>is not to be A SLAVE!!!</ins>***
 
+1.02a
 ## <br>***Real stimulus***<br> 
  **is measuring length and weight, not inches, ounces, or dollars. Measuring DEFINED inches, ounces, or dollars is impossible, they invariably serve their default purpose of measurement. Announcing UNDEFINED inches, ounces, and dollars would immediately fail. So, UNDEFINED DOLLARS, DOLLARS WITH NO ID, AREN'T ANNOUNCED, THEY'RE SAID TO BE MEASURED. Distorting value, conferring undeserved value, is all that measured money (dollars with no ID) does. Without measured money, the distorted value of housing would end, EVICTIONS, FORECLOSURES, AND HOMELESS PEOPLE COULD NEVER BE ISSUES. The gold standard is no issue of the amount of money, it's the issue of ENDING DISTORTED VALUES.**
 
+1.02b
 ## <br>***Real stimulus***<br> 
  **is the whole idea of a money economy,** its great advantage over the primitive condition of financial complexity (barter economy), MEASURING VALUE, NOT THE HOAX (FINANCIAL COMPLEXITY) OF<br>
 ### <ins>***MEASURING A STANDARD OF MEASUREMENT???!!!***</ins><br>
-***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? ***A photo ID*** to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)? A photo ID*** to make measurements? ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***<br><br>GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!<br><br>Life, liberty, and the pursuit of happiness means disrupt housing?<br><br>
-## *<br>By definition, no one ever changed the amount of money in the world, people decide what a <ins>MEDIUM OF EXCHANGE</ins> is worth, not how much there is.*<br>
+***Life, liberty, and the pursuit of happiness*** means no access to standards of measurement? ***Inalienable rights*** require an ID? ***A photo ID*** to use an ***UNDEFINED INCH OR OUNCE (INCH OR OUNCE WITHOUT AN ID)? A photo ID*** to make measurements? ***Gold dollars attract a zillion times more private property (VALUE) to market, a zillion times more VALUE to measure, a zillion times more scrutiny of the dollar (money trail). HOUSES STAY HOME!!!, houses and their occupants are safe!!!***<br><br>GOLD DOLLARS ARE FOR REWARDING PEOPLE, NOT FOR DISRUPTING PEOPLE, NOT FOR WASTING RESOURCES, NOT FOR SQUANDERING ON HOUSES!!!<br><br>Life, liberty, and the pursuit of happiness means disrupt housing?<br><br>## *<br>By definition, no one ever changed the amount of money in the world, people decide what a <ins>MEDIUM OF EXCHANGE</ins> is worth, not how much there is.*<br>
 
+1.03
 ## *No one ever changed the amount of inches or ounces in the world, people decide the length and weight of things, not how much of a standard of measurement there is.*
 
 
 
+1.04
 # ***THE HOMELESS DOLLAR***<br><br>***<ins>Without an ID,</ins>*** 
 > ***the DOLLAR IS <ins>HOMELESS</ins>, no one will take personal responsibility for it as such. DISTORTED VALUE IS <ins>HOMELESS!</ins>, houses and their occupants are NO LONGER SAFE! <ins>HOMELESS HOUSES</ins> AND <ins>HOMELESS PEOPLE!!!</ins><br><br>Distorted value, <ins>HOMELESS DOLLARS, CAUSES HOMELESS HOUSES AND HOMELESS PEOPLE!!!</ins>***
 
+1.05
 # <br><br>*Real stimulus*<br>
 >> ## ***is life, liberty, and the pursuit of happiness.***
 
+1.06
 # ***<br>THE HOMELESS DOLLAR. Part 2<br><br><ins>Without an ID</ins>,***<br>
 > ## ***the dollar is <ins>homeless</ins>, no one will take personal responsibility for it as such.***<br>
 > **Nor as measured money either.** The measuring of money is conducted entirely as a<br>
 > # ***<ins>very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!!</ins>***<br>
 > The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place.<br><br>***BUYING AND SELLING (REAL TRANSACTIONS, PROSPERITY!!!) can't work for dollars with no ID, for measuring money - people and houses are safe, no turmoil, no distractions, <ins>nowhere for ID-less dollars to hide.</ins><br><br>BORROWING AND LENDING, and CHARITY, <ins>MISERY!!!, is the only way, transactions abandoned,</ins> replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
 
+1.07
 # ***"continual dissension and debate"***
 > ### ***- Erasmus, <ins>Treatise On War</ins>, 1515***
 > ### ***some beasts***<br><br>
@@ -60,28 +67,35 @@ measurevaluenotmoney
 > # <ins>***continual dissension and debate***</ins><br>
 > ***—man alone she hath brought forth all naked, weak, tender, and without any armour,"***<br>[formatting added]<br><br>***- Erasmus. <ins>Treatise On War</ins>, 1515. THE HUMANISTS’ LIBRARY, Edited by Lewis Einstein, II, ERASMUS AGAINST WAR, WITH AN INTRODUCTION BY J·W·MACKAIL, 1907***<br>https://www.gutenberg.org/files/39487/39487-h/39487-h.htm
 
+1.08
 # <br>***LA MONEDA NUEVA***
 
 ***An ordinary fellow with some first-hand knowledge of Argentina's "Moneda Nueva" ("New Money") once put it like so:<br><br>"When the "Moneda Nueva" comes out, they***
 ## <ins>***change the number of zeroes and move the decimal point around."***</ins><br>
 [Formatting added. wonas2dosgwr3 personal encounter]<br><br>
 
+1.09
 ## ***<br>High house value is (4)***<br>
 > ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***<br>
 
+1.10
 # <br>***THE HOMELESS DOLLAR. Part 3<br><br><ins>Without an ID,</ins>***<br>
 > ### ***the dollar is <ins>homeless, no one will take personal responsibility for it as such. Nor as measured money either.</ins> The measuring of money is conducted entirely as <ins>A CONSPIRACY!!!</ins><br><br>Measuring value is <ins>MEASURING HUMAN LABOR</ins>, nothing can be more important, no product of human labor, <ins>NO HOUSE</ins> can be more important, LET ALONE <ins>LAND, NO PRODUCT OF HUMAN LABOR AT  ALL. Measuring value, houses naturally fall into place BEHIND people, are their servants and creations, not their oppressors.</ins>***<br>
 
+1.11
 > # <br><br>***Gold in their pockets, paper on their walls***
 > "Never, indeed, was there a time in which so much gold was employed decoratively as in this age when ***coined gold was almost unprocurable, and paper money had been put into circulation to supply the lack.*** It was a saying of André-Louis' that if these people could only have been induced to ***PUT THE PAPER ON THEIR WALLS AND THE GOLD INTO THEIR POCKETS, THE FINANCES OF THE KINGDOM MIGHT SOON HAVE BEEN IN BETTER CASE."***<br>[formatting added]<br><br>
 > ***- <ins>Scaramouche</ins>, Rafael Sabatini, 1921. Book Three, Chapter 4. At Meudon.***<br><br>
+1.12
 > # ***"money was never so hard to be come at ..."***
 > ***The swindler*** "entertained me with a pathetic harangue on ***the great scarcity of silver***, which I undertook to improve, by deploring also ***the great scarcity of gold;*** and by the time Abraham returned, we had both agreed that ***money was never so hard to be come at*** as now."<br>[formatting added]<br><br>
 > ***- <ins>The Vicar of Wakefield</ins>, Oliver Goldsmith, 1766. Chapter 14.***<br>
 
+1.13
 # <br>***Real investors***<br>
 ### ***invest MEASURED (earned!!!, high value!!!) VALUE, NOT MEASURED (unearned!!! low value!!!) "MONEY"***<br><br><br>
 
+1.14
 > # ***The environmental movement explained***
 > ***Worrying about the amount of money in the world is of NO VALUE (pure WASTE OF RESOURCES). The obsession of governments worldwide with the amount of money is the ENTIRE EXPLANATION OF THE WHOLE ENVIRONMENTAL MOVEMENT.***<br><br>
 > # ***The original recyclers***
@@ -94,11 +108,13 @@ measurevaluenotmoney
 > # <br>***Saving the earth (THE HOMELESS EARTH)***
 >> ***When nobody's interfering with the LAND UNDER YOUR FEET, that piece of ground gets the best care it can get - UNLESS YOU'RE SAVING THE EARTH!!!<br>Saving the earth means ABANDONING THE LAND UNDER YOUR OWN FEET FOR THE LAND UNDER EVERYBODY'S FEET, forgetting SPECIALIZATION, focusing on MINDING EVERYBODY'S BUSINESS BUT YOUR OWN, pure waste of resources, the land under your own feet <ins>completely neglected, HOMELESS</ins>, <ins>the earth taking it on the chin, HOMELESS</ins>, commerce <ins>killed</ins>, prosperity <ins>killed</ins>, returning barbarism.***<br>
 
+1.15
 # <br>***THE HOMELESS DOLLAR. Part 4. No one will take personal responsibility <ins>FOR CHALLENGING THE DICTIONARY!!!</ins>***<br>
 ### ***People decide what a <ins>standard of value</ins> is worth, not how much there is.*** 
 ## ***The SAFE HAVEN of money measurers. TILTING AT WINDMILLS, crusading against the smokescreen. Laundering measured money. Nothing but BOGUS PRICES.***<br>
 *No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for* <ins>***the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!!***</ins> *The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS* <ins>***NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!***</ins><br>
 
+1.16
 ## <br>***High house value is (5)***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br><br>
 > <ins>***NO PAYMENTS ABOUT IT!!!!!***</ins><br><br>
@@ -107,53 +123,64 @@ measurevaluenotmoney
 > ***Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins>***<br><br>
 > ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br> `*` *Currency speculators ask for more, but* <ins>***only get less - enlarged bubbles (more-distorted prices) that only increase and sustain diversion of resources from human needs, impoverishing everyone.***</ins>
 
+1.17
 # <br>***"That hope never died ... "***<br>
 > *"How many beautiful, fertile, lonely bits of rangeland had inspired the same desire for a farm, a few horses and cattle,* <ins>***a home! That hope never died ... "***</ins><br>
 >[formatting added]<br><br>   ***- <ins>Raiders Of Spanish Peaks</ins>, Zane Grey, 1931, 1932, 1938. Chap. 1***<br>
 
+1.18
 # <br>***" ... living is expensive."<br><br>"a simple room would cost me <ins>one hundred dollars for the year!</ins>" 1840. Pittsburgh.***
 > ## ***" ... living is expensive. I had hoped to find a job here but have had no luck, and it is too expensive to live here.***<br>
 > ## ***.    "Why, <ins>a simple room would cost me one hundred dollars for the year!</ins> Can you imagine? And <ins>beef is seven cents the pound</ins> ... even <ins>cornmeal is a dollar the bushel!</ins> I can't afford to stay on."***
 [formatting added]
 >> ***<ins>Ride The River</ins>, Louis L'Amour, 1983, Chap 10***<br>
 >> ## ***About the same human labor that built a simple room in 1840 builds one today, tools and materials and technology maybe/maybe not a bit different ...***
+1.19
 # ***... their prize, a chance at a home ...***
 > ## ***"Now there's to be a land rush. A rip-snortin' old-fashioned land rush."***
 > ## ***"Madden sensed <ins>how desperately these people wanted their prize, a chance at a home, a place to sink down roots,</ins> and suddenly he had a great and encompassing sympathy for all of them; he wished them well."***
 [formatting added]
 >> ***<ins>Tall Man Riding</ins>, Norman A. Fox, 1951. Chaps 12 and 16.***
+1.20
 # ***the simple, everyday things***<br>
 > ## ***"Home! Now he could go home. He could work around the place, repairing the pole corral, leaks in the shed roof, the doors and windows on the house.*** ***<ins>He wanted nothing so much as to be back doing the simple, everyday things."</ins>***<br>
 [formatting added]
 >> ***<ins>The Shadow Riders</ins>, Louis L'Amour, 1982. Chap 17***
 
 
+1.21
 # ***<br>THE HOMELESS DOLLAR. Part 5. Measure <ins>THE SAFETY OF HOUSES</ins>, not money.***  
 
 > ### ***Gold and silver are never homeless, everyone will take personal responsibility for them, never change the amount of money in the world or otherwise change the subject or defy the dictionary, always measure THE SAFETY OF HOUSES, the safer the house the more SPECIALIZATION (VALUE) takes place, the more private property (VALUE) comes to market. A STANDARD OF VALUE is a STANDARD OF THE SAFETY OF HOUSES.***
 
+1.22
 # ***THE HOMELESS (<ins>PHOTO ID-POWERED</ins>) DOLLAR. Part 6. No substitute for <ins>PERSONAL RESPONSIBILITY-POWERED</ins> dollars.***<br>
 > ***All the money measurers have photo IDs, none will take personal responsibility for what they do, issuing ID-less dollars. Only 
 PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measure personal responsibility (VALUE!!!, HOUSE SAFETY!!!), not money.***
 
+1.23
 # ***THE HOMELESS (<ins>WITHOUT NATURAL LAW</ins>) DOLLAR. Part 7. LAWS AND THE JUDICIAL BRANCH OF GOVERNMENT WITHOUT A HOME*** 
 
 ### ***The judicial branch of government stands for NATURAL LAW (law with a home; personal responsibility, private property), as opposed to man-made law, which may, as with money measuring laws, be HOMELESS, DEFY PERSONAL RESPONSIBILITY AND PRIVATE PROPERTY. But the judicial branch STANDS FOR NOTHING when it STANDS SILENT, as with the money measuring laws.***<br><br><br>
 
+1.24
 > # ***"the old home town ... "***<br>
 > *"EUELPIDES. ... A splendid city, Athens, rich and free,<br>    Denying none the right to ... pay a fine!<br>Indeed, while* <ins>***crickets chirp a month or two<br>Upon a bush</ins>,*** *that stubborn folk will sit<br>And* <ins>***chirp on legal twigs till kingdom come!***</ins><br>*That's why we started out to hit the trail;<br>And why, with basket, jug, and myrtle boughs,<br>We wander on in search of a quiet spot<br>Where we can settle down and live our lives. ..."*<br>
 >[formatting added]<br><br>
 >   ***- Aristophanes, <ins>Birds</ins>, 414 BC***
 
+1.26
 # ***THE HOMELESS DOLLAR. Part 8. <ins>Not what children are taught.</ins> Forced circulation of play money.***
 
 ### ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But <ins>without homes, there can be no circulation,</ins> nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***<br><br><br>
 
+1.27
 > # ***"atraen el oro y la plata de las provincias más distantes."<br>("attract gold and silver from the most distant provinces.")***<br> 
 > ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que <ins>atraen el oro y la plata de las provincias más distantes."</ins><br><br>("a city [Cuzco] that could be counted the best in the kingdom without any doubt, for its situation, terrain and productions, and surrounded by the provinces most fertile and most abundant of fruits and useful colonists, who are the Indians who work in the land cultivation and mechanical works and who <ins>attract the gold and the silver of the most distant provinces."</ins>)***<br>
 > [Formatting added. wonas2dosgwr3 translation]<br>
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
+1.28
 ## <br><br>***High house value is (6)***<br>
 > <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
@@ -162,10 +189,13 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ***THE PRICE DISTORTION INVITES THE CURRENCY SPECULATION THE MONEY MEASURERS LIVE FOR, HOUSES ARE FOR SPORTING WITH FOR THEM, NOT MAINLY FOR LIVING IN, NOT FOR GETTING ATTACHED TO, NOT FOR FAMILIES OR ANYONE'S CASTLE.***<br>
 >> ***The real estate speculators (currency speculators labeled according to which particular one of the many distorted prices the money measurers cause has attracted them, diverted them from industrious behavior to a game of chance) said repeatedly most people, when they buy a house, only keep it for 5 years, then move to another one.***`*`<br><br>`*` wonas2dosgwr3 personal encounter.<br><br>
 
+1.29
 #  <br><br>***THE HOMELESS DOLLAR. Part 9. <ins>Cultivating UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS</ins>.<br><br>Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT).<br><br>Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES).<br><br>Vastly outnumbered by MONEY EARNERS (PEOPLE MEASURING MONEY'S VALUE ABOVE ZERO).<br><br>Thin ice at the breaking point.***<br>
 
+1.30
 ### ***If all the people distracted with earning their dollars realized those dollars originate unearned, it would be the end of the money measurers, <ins>the certainty of what children are taught would prevail, human needs (real investment) would no longer be ignored.</ins>***
 
+1.31
 # ***THE HOMELESS DOLLAR. Part 10. <ins>Real estate speculation is currency speculation.</ins> NEGLECTING YOURSELF!!!***
 
 ### ***ADDING VALUE!!! doesn't require money, but it ATTRACTS MONEY!!!, ATTRACTS MEASURING VALUE. THE LAST THING ANY VALUE ADDER (INDUSTRIOUS PERSON) WANTS IS INTERFERENCE WITH MEASURING VALUE, CURRENCY SPECULATION!!!!!***
@@ -175,59 +205,73 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ### **Land is no product of human labor, everyone has it under their feet, INTERFERENCE WITH IT (REAL ESTATE SPECULATION!!!, RAISING THE MONEY PRICE) can only discourage industrious people, LOWER VALUE, never be an investment. THE ONLY INVESTMENT IS INDUSTRIOUS PEOPLE, NEVER THE LAND UNDER OTHER PEOPLE'S FEET!!!**<br>
 > ### ***THE ONLY LAND INVESTMENT IS THE LAND UNDER YOUR OWN FEET!!!, MINDING YOUR OWN BUSINESS, SPECIALIZING, CULTIVATING WHAT IS YOUR OWN, INVESTING IN YOURSELF!!!<br><br>Minimizing interference with the land under other people's feet means MINIMIZING THE MONEY PRICE OF LAND!!!, is all that can minimize interference and the money price of the land under your own feet - THE GOLDEN RULE!!!***
 
+1.32
 ## <br><br>***HIGH LAND VALUE is <ins>YOU ABSOLUTELY OWN IT!!!, MINIMIZED, NOT HIGH, MONEY PRICES OF LAND!!!</ins>,  a nation of ABSOLUTE LAND OWNERS!!!***<br><br><br>
 
+1.33
 > # ***real estate developers from New York***<br>
 >> ### ***measuring money, trashing value ...<br><br>"I knew I was in trouble when one of them asked, "Will all this stuff affect my DNA?" "  - Greg Leyh, giant Tesla coil researcher, September  2017<br><br>... promptly kicked out***
 
 >> "However, this photo [of Greg Leyh's new 40 ft Tesla tower] was taken at a key moment ... ah ... the coil is leaving the lab space for the last time and going to a storage facility. ***I recently lost ... a ... my lab space here, that I've had for the last 8 years, ... a ... when <ins>real estate developers from New York bought the entire American Steel site.</ins>*** You might imagine their response upon seeing my workspace for the first time. ***<ins>I knew I was in trouble when one of them asked, "Will all this stuff affect my DNA?</ins>"<br><br>So, ... <ins>I was promptly kicked out, a ... along with many other workshops and artists there</ins>, including ... ... Karen Cusolito, the artist who actually founded American Steel Studios.*** Now, 8 years ago it was pretty easy to find another industrial space. ***But nowadays, even undesirable spots like American Steel are bein' scooped up by developers. So, right now <ins>everything's in storage, and the project is pretty much dead in the water.</ins>*** But, ... I have a plan to replace this lab space ...  The plan is to get a custom cargo trailer, and outfit it with all the tower components, instruments and a workshop. Since the tower itself is fully collapsable, ... a ... the entire system can pack into a single18 ft trailer. There's many great desolate spots around the Bay area that would make perfect test sites, but they don't have usable buildings or utilities. ***However, a self-contained mobile lab could just roll into one of these sites, set up, perform experiments, and then roll out. All without needing any building space, administrative overhead, or hookups. Storing a trailer is also much, much easier than finding reliable lab space in Oakland these days. So right now, ... a ... <ins>the new 40 ft Tesla tower is almost ready to fire up, but everything's in storage until the ...a ... mobile lab is ready."</ins><br>***[formatting added]<br><br>***- Greg Leyh, "The Secret Life of Lightning: The Science of Giant Tesla Coils", September 26, 2017, Conversations at the Interval, The Long Now Foundation***<br><br>https://youtu.be/ntIBDVCfATA
 
+1.34
 # ***LEGITIMATE HOUSING COST. Part 1. Covered wagon pioneers decide to put up a town. Those first <ins>THREE DAYS</ins> ... ... always something warming and pleasant ...***
 ## ***"For <ins>THREE DAYS</ins>, life in the new town went on briskly. They named the town Poplar. Kies's Store was the first building up, ... ... Those first <ins>THREE DAYS</ins> were hard, unrelenting labor, yet joyful labor, too. They were building homes, and there is always something warming and pleasant in that. At the end of those first <ins>THREE DAYS [!!!!!], Kies's Store was up, and so were Collins's blacksmith shop, Satterfield's office, and Hardy's Saloon and Theater.</ins>[!!!!!] All of them pitched in and worked."***
 [formatting added]<br>
 > ***- <ins>Showdown Trail</ins>, Chap 3, the original version of <ins>The Tall Stranger</ins> (1957). Louis L'Amour. (In the 4-novel collection <ins>The Rider Of The Ruby Hills</ins>,1986).***
+1.35
 # ***THE HOMELESS (<ins>NON-CIRCULATING, DEBT-POWERED, MISERY-POWERED, HUMAN NEEDS-AVOIDING</ins>) DOLLAR. Part 11. Changing HANDS is not enough.***
 ### ***Dollars that <ins>change HANDS BUT NOT HOUSES are NOT CIRCULATING!!! Debt is NON-CIRCULATING!!! money, does not make borrowers owners of houses or anything else, no matter how loudly the money measurers say it does. NO OWNERSHIP, NO TRANSACTION, NO CIRCULATION!!!</ins><br><br>Money needed for housing cost can't circulate, will only leave home after house cost has been paid, WHEN HOUSING IS AFFORDABLE!!! The homeless dollar doesn't move, stagnates building up debt instead of ownership, bogus instead of affordable prices, avoiding instead of addressing human needs.***<br><br><br>
 
+1.36
 > # ***"This California ... ... these peoples mus' have things."***
 > **"This California," Marco was telling him ... Once he belong Spain; now Mexico. ... Mexico ver' bad for California. She tell California that she shall buy onlee from her, and then she forget to send things to buy! That's funnee! ... But these peoples mus' have things. They cannot grow them on the trees. So we bring them ... Onlee we mus' not let Mexico catch us! She's against the law. It's bad to go against the law ... but the good *padres*, they come buy. Pret' soon, when she come night, you see a fire on the beach. They light heem. Then we go in wid the boat."**<br>
 >>> ## ***- "Guest's Gold", Stewart Edward White, <ins>The Saturday Evening Post</ins>***<br><br>
 
+1.37
 # ***"one thing that's always made me tired"***
 **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an'** ***<ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."</ins>***<br>
 > [formatting added]
 >>> ## ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post</ins>***
 
+1.38
 # ***THE HOMELESS (<ins>CAN OF WORMS</ins>) DOLLAR. Part 12.***
 
 ***A can of worms. The inch or the ounce should be A CAN OF WORMS??? Money was invented to be A CAN OF WORMS??? A CAN OF WORMS is - A BARTER ECONOMY??? Money was invented to REPLACE A CAN OF WORMS WITH A CAN OF WORMS??? MOVE UP FROM A CAN OF WORMS TO A CAN OF WORMS?????***
 
+1.39
 > # ***"that lantern wick will fire the docks."***
 > ***NICARCHUS. ... A lantern wick you are bringing from the foe.***<br>***DICAEOPOLIS. Show him up, would you, for a lantern wick?***<br>***NICARCHUS. Aye, for that lantern wick will fire the docks.***<br>***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***<br>***NICARCHUS. If a Boeotian stuck it in a beetle,<br>And sent it, lighted, down a watercourse<br>Straight to the docks, watching when Boreas blew<br>His stiffest breeze, then if the ships caught fire, <br>They'd blaze up in an instant.***<br>***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***<br>***NICARCHUS. Bear witness!***<br>
 >>    ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
 
+1.40
 > # ***"master of his own establishment"***<br>
 > ***"My own complete happiness, and the <ins>home-centred interests</ins> which rise up around the man who first finds himself master of his own establishment, were sufficient to absorb all my attention."***
 >>    ***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
 
+1.41
 > # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
 > ## ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***<br>
 > *"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years.* <ins>***Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***</ins><br>
 > [formatting added]
 >> ### ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
 
+1.42
 > # ***"make themselves to home"***<br>
 > *"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to* ***<ins>"make themselves to home."</ins> "***<br>
 >[formatting added]
 >> ***- <ins>Captives Of The Desert</ins>, Chap. 2, Zane Grey, 1925-6***
 
+1.43
 > # ***"the highest percentage of landowners"***<br>
 > ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."***<br>
 >> ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
 
+1.44
 # ***More for your money ... ...***<br>
 > ## ***... more <ins>HUMAN LABOR</ins> ...<br><br>More HUMAN LABOR, more concern for <ins>HUMAN NEEDS</ins> ...<br><br>More <ins>HUMAN LABOR</ins> is inseparable from <ins>more concern for HUMAN NEEDS</ins> ...<br><br>Human labor, the thing, the value (in exchange) a standard of value measures (buys).***
 
+1.45
 # ***THE HOMELESS DOLLAR. Part 13. <ins>Nothin' to trade on.</ins> Only speculate.***<br><br>***No truth.***<br>
 *" "A feller gets news from Indians and cowboys without knowin' who handed it on to who, an' you take the main idee for truth.* ***All I'd want to make a trade on*** *is that right now Newton's somewhere back toward the border." "*<br>
 [formatting added]<br><br>***- <ins>Captives Of The Desert</ins>, Chap. 15, Zane Grey, 1925-6***<br>
