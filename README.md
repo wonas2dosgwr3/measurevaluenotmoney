@@ -1,4 +1,4 @@
-DED
+measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
@@ -539,4 +539,4 @@ BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins> Money should no mo
 >>> ### ***¹ See THE HOMELESS DOLLAR. Part 19.<br><br>² See "Gold in their pockets, paper on their walls"***
 
 # ***Part 31b. NOTHING LEFT.***
-## ***Destroy prices.<br><br>The money measurers DESTROY PRICES!!!!!, calling it anything but - "inflation", "money supply", "controlling ...", "not enough ...", UNTIL THERE'S NOTHING LEFT!!! But ADORNMENT!!! - what's PUT ON!!! What's PUT OUT!!! - OUTPUT!!! - forgotten. Nothing but FINANCIAL COMPLEXITY!!! - FINANCIAL TARPITS!!! containing FOSSIL REMAINS OF TRANSACTIONS, SOMETHINGS VENTURED, COMMERCE!!! Nothing but BAD MERCHANDISE!!! Good merchandise all driven out or stolen, THE BIGGEST BUBBLE BURSTS!!! Poverty and misery (bad merchandise), returned barbarism (bad merchandise), another vanished civilization (bad merchandise), another sunken continent (bad merchandise), nothing but the sky and the sea.***
+## ***<ins>Destroy prices!!!!!</ins><br><br>The money measurers <ins>DESTROY PRICES!!!!!</ins>, calling it anything but - "inflation", "money supply", "controlling ...", "not enough ...", UNTIL THERE'S NOTHING LEFT!!!<br><br>Nothing left but ADORNMENT!!! - what's PUT ON!!! What's PUT OUT!!! - OUTPUT!!! - forgotten.<br><br>Nothing but FINANCIAL COMPLEXITY!!! - <ins>FINANCIAL TARPITS!!! containing FOSSIL REMAINS OF TRANSACTIONS, SOMETHINGS VENTURED, COMMERCE!!!</ins><br><br>Nothing but BAD MERCHANDISE!!! Good merchandise all driven out or stolen, <ins>THE BIGGEST BUBBLE BURSTS!!!</ins> Poverty and misery (bad merchandise), returned barbarism (bad merchandise), another vanished civilization (bad merchandise), another sunken continent (bad merchandise), nothing but the sky and the sea.***
