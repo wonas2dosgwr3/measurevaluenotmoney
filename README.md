@@ -583,7 +583,7 @@ BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins> Money should no mo
 >>>> ***- <ins>The Lhasa Record</ins>, "discovered by Schliemann
  in the old  Buddhist Temple of Lhasa, Tibet. Schliemann deciphered and translated it." <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap IV. RECORDS OF THE LOST CONTINENT***
 
->>> ### ***¹ See THE HOMELESS DOLLAR. Part 19.<br><br>² See "Gold in their pockets, paper on their walls"***
+>>> ### ***¹ See THE HOMELESS DOLLAR. Part 19.<br><br>² See 1.11. "Gold in their pockets, paper on their walls"***
 
 # ***Part 31b. NOTHING LEFT.***
 ## ***<ins>Destroy prices!!!!!</ins><br><br>The money measurers <ins>DESTROY PRICES!!!!!</ins>, calling it anything but - "inflation", "money supply", "controlling ...", "not enough ...", UNTIL THERE'S NOTHING LEFT!!!<br><br>Nothing left but ADORNMENT!!! - what's PUT ON!!! What's PUT OUT!!! - OUTPUT!!! - forgotten.<br><br>Nothing but FINANCIAL COMPLEXITY!!! - <ins>FINANCIAL TARPITS!!! containing FOSSIL REMAINS OF TRANSACTIONS, OF SOMETHINGS VENTURED, OF COMMERCE!!!</ins><br><br>Nothing but BAD MERCHANDISE!!! Good merchandise all driven out or stolen, <ins>THE BIGGEST BUBBLE BURSTS!!!</ins> Poverty and misery (bad merchandise), returned barbarism (bad merchandise), another vanished civilization (bad merchandise), another sunken continent (bad merchandise), nothing but the sky and the sea.***
