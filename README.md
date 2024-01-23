@@ -1,4 +1,4 @@
-measurevaluenotmoney
+DED
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
@@ -10,7 +10,7 @@ measurevaluenotmoney
 ***Evict*** measured money, NOT TENANTS (not VALUE!).
 ***Foreclose*** against measured money, NOT AGAINST PEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
 
-* ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in and destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contrast, vanished civilizations are monuments to interference with 5 housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
+* ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in and destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contras7t, vanished civilizations are monuments to interference with 5 housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
 
 * # ***Land ownership***
 
@@ -532,8 +532,11 @@ BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins> Money should no mo
 # ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31a. The next lost continent???¹ (NOTHING VENTURED).***
 ## ***<ins>OUTPUT</ins> - SOMETHING VENTURED!!!, GOOD WILL!!!, MEETING HUMAN NEEDS!!!, COMMITTMENT TO COMMERCE!!!, TO SAFETY!!!, TO HOMES!!!<br><br>Not OSTENTATION!!!, gold and silver for ornament² instead of for money; not HOARDING GOLD AND SILVER!!!, money measurers sitting on it, paranoid of letting gold and silver out of their hands, of letting them BE MONEY!!!, CIRCULATE!!!, well knowing the BAD MERCHANDISE THEY'RE PEDDLING!!! will never bring gold and silver back to them; not HOW BIG!!! the pile of homeless dollars is; not DIVERTING MONEY IN  ANY WAY FROM <ins>OUTPUT</ins>, FROM SOMETHING VENTURED, FROM SERVING HUMAN NEEDS!!!; NOT ANY ADORNMENT, NOT ANYTHING <ins>PUT ON</ins>!!!!!***<br><br>
 
->> **" "When the star of Bal fell on the place where now is only the sky and the sea, the seven cities ... quivered and shook ... ... and the wise Mu - the** ***Hieratic Ra Mu*** **- arose and said to them: did I not predict all this? And the women and the men in their precious stones and shining garments lamented ... and Mu  replied: 'You shall all [perish] ... and ... new nations shall arise. If they forget they are superior <ins>not because of what they PUT ON but what they PUT OUT</ins> the same will befall them.' ... the land and its inhabitants were torn to pieces and swallowed up by the depths." "**  [formatting added]
+>> **" "When the star of Bal fell on the place where now is only the sky and the sea, the seven cities ... quivered and shook ... ... and the wise Mu - the** ***Hieratic Ra Mu*** **- arose and said to them: did I not predict all this? And the women and the men in their precious stones and shining garments lamented ... and Mu  replied: 'You shall all [perish] ... and ... new nations shall arise. If they forget they are superior <ins>not because of what they PUT ON but what they PUT OUT</ins> the same will befall them.' ... the land and its inhabitants were torn to piecese and swallowed up by the depths." "**  [formatting added]
 >>>> ***- <ins>The Lhasa Record</ins>, "discovered by Schliemann
  in the old  Buddhist Temple of Lhasa, Tibet. Schliemann deciphered and translated it." <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap IV. RECORDS OF THE LOST CONTINENT***
 
 >>> ### ***¹ See THE HOMELESS DOLLAR. Part 19.<br><br>² See "Gold in their pockets, paper on their walls"***
+
+# ***Part 31b. NOTHING LEFT.***
+## ***Destroy prices.<br><br>The money measurers DESTROY PRICES!!!!!, calling it anything but - "inflation", "money supply", "controlling ...", "not enough ...", UNTIL THERE'S NOTHING LEFT!!! But ADORNMENT!!! - what's PUT ON!!! What's PUT OUT!!! - OUTPUT!!! - forgotten. Nothing but FINANCIAL COMPLEXITY!!! - FINANCIAL TARPITS!!! containing FOSSIL REMAINS OF TRANSACTIONS, SOMETHINGS VENTURED, COMMERCE!!! Nothing but BAD MERCHANDISE!!! Good merchandise all driven out or stolen, THE BIGGEST BUBBLE BURSTS!!! Poverty and misery (bad merchandise), returned barbarism (bad merchandise), another vanished civilization (bad merchandise), another sunken continent (bad merchandise), nothing but the sky and the sea.***
