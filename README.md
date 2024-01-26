@@ -350,6 +350,7 @@ with benefit of credit [elastic currency speculators] it went more than four yea
 > "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."***
 >> ## ***-<ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1***<br><br>
 
+2.06
 # ***1933. The Farm Holiday movement***
 
 ### **1933. " ... out in the prairie states, in the hungry,  depression-scarred acres of the West and Northwest, the farmers were once more in revolt. They'd been hit by hard times, their answer was the** ***Farm Holiday movement.***<br><br>
@@ -357,6 +358,7 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 [formatting added]<br>
 >> ### ***- <ins>Queen Of Populists: The Story Of Mary Elizabeth Lease</ins>, Richard Stiller, 1970, p224-5.***
 
+2.07
 > # ***la magia y la alquimia ????? ... ... midiendo valor y ... (magic and alchemy ????? ... ... measuring value and ... )***<br>
 > ## ***"la política ... que hacía que su tesoro estuviese siempre nadando en la abundancia." ("the politics ... that made that his treasury was always swimming in abundance.")***<br>
 > ## ***"Mohamed Abu Alhamar, El Fundador De La Alhambra***<br>
@@ -374,12 +376,14 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 >> [Formatting added. wonas2dosgwr3 translation from Spanish.]
 >>> ### ***- <ins>Tales Of The Alhambra</ins>, Washington Irving, 1832)***<br><br>
 
+2.08
 > # ***'There's no place like home'***<br>
 > ### **"HOW THE TORTOISE GOT ITS SHELL**<br>
 > ### **Zeus was entertaining all the animals at his wedding feast. Only the tortoise stayed away, and Zeus could not think why. So next day he asked it why it did not come with the others. <ins>'There's no place like home,'</ins> it replied - an answer which angered Zeus so much that he made it carry its own   house about on its back.<br><br>Many men would rather have plain fare at home than live on the fat of the land in other people's houses."**<br>
 > [formatting added]<br>
 >>> **- <ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**<br>
 
+2.09
 # ***"as if by magic ... "***
 
 ## ***housing***
@@ -387,15 +391,18 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 "It was the destiny of Forlorn River, however, never to return to the slow, sleepy tenor of its former existence. ... That straggling line of ***home-seekers*** was but a forerunner of the real invasion of Alter Valley. Refugees from Mexico and from Casita spread the word that water and wood and grass and land were to be had at Forlorn River; ***and <ins>as if by magic</ins> the white tents and red adobe houses sprang up to glisten in the sun."***<br>[formatting added]<br><br>***- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap. 13. Changes at Forlorn River***<br><br>
 
 
+2.10
 > # ***measure value (fruits of toil) because ... ... every INCH ...***<br>
 > ### **"TREASURE TROVE**<br>
 > ### A farmer who was dying wanted his sons to become good agriculturists. He summoned them and said: ' ... You must search for what I have hidden in the vineyard. You will find there all I have to give you.'  They thought there was a treasure buried somewhere in the vineyard, and after their father was dead they dug ***every INCH*** of the soil. There was no hidden treasure to be found; but the vines were so well dug that they yielded a bumper crop.<br><br>This story teaches us that ***the fruits of toil are man's best treasure."***<br>
 > [formatting added]<br>
 >>> **<ins>FABLES OF AESOP</ins>. 620 - 564 BC? S. A. Handford translation, 1954**
 
+2.11
 ## ***THE HOMELESS DOLLAR. Part 15. <ins>Less-productive gold mines beginning to be worked</ins>, the higher-value (harder to procure) gold <ins>AT HOME</ins> THERE HAPPY TO MOVE (CIRCULATE) TO <ins>NEW HOMES</ins> as the value of the dollar <ins>RISES</ins>.***<br>
 ### ***As the wolves in sheep's clothing claiming to measure money are STOPPED FROM WASTING THE RESOURCES THEY NEVER COULD HAVE EARNED, THUS NEVER COULD KNOW THE VALUE OF, have stolen; stopped from <ins>THEIR RELENTLESS LOWERING</ins> of the dollar's value.<br><br>What children are taught <ins>AT HOME!!!</ins><br><br>Money circulates <ins>BETWEEN HOMES!!!</ins><br><br>Human nature (exchanging things) <ins>COULD NEVER BE INTERFERENCE WITH HOMES!!!</ins><br><br>Money is backed by a standard , THE STANDARD IS BACKED BY A HOME - BY EVERY PERSON'S HOME, BY EVERY PERSON, BY THE HOME THAT NATURALLY GOES WITH EVERY PERSON. IT'S EVERY PERSON'S PRICETAG ON THEIR PRIVATE PROPERTY. <ins>MONEY CIRCULATES BETWEEN HOMES, IS BACKED BY HOMES.</ins>***<br>
 
+2.12
 > ## ***Better than gold: <ins>All the things money buys</ins> - AND!!!!! - never bought. HOME!!!!!***<br>
 > ### ***<ins>All the things money buys</ins> are BETTER THAN MONEY for keeping and consuming and raising the standard of living.<br><br>FOR CREATING HOMES!!!!! And <ins>all the things money buys</ins> are PRODUCTS OF HOMES!!!!! Prosperity is a PRODUCT OF HOMES!!!!!<br><br>Something must be BETTER FOR SPENDING, TURNING LOOSE,  REWARDING INDUSTRIOUS PEOPLE, BLAZING A TRAIL OF PROSPERITY FROM HOME TO HOME!!!!! - SOMETHING MUST  BE MONEY.<br><br>WANNABE CURRENCY SPECULATORS OPPOSE THE GOLD STANDARD AND PROPOSE NO OTHER, DEFEATING GOLD DEFEATS MONEY, RETURNING BARBARISM OF MISERY AND FINANCIAL COMPLEXITY THAT CURRENCY SPECULATORS EXPLOIT.***<br>
 > ### ***Gold = money:***<br>
@@ -404,15 +411,18 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 >> ### ***- "Better than Gold" (partial), Abram J. Ryan***
 
 
+2.13
 # ***"Native Land<br>***
 ### ***Breathes there the man with soul so dead,<br>Who never to himself hath said,<br>'This is my own, my native land!'<br>Whose heart hath ne'er within him burn'd<br>As <ins>home</ins> his footsteps he hath turn'd<br>From wandering on a foreign strand?<br>If such there breathe, go, mark him well;<br>For him no minstrel raptures swell;<br>High though his titles, proud his name,<br>Boundless his wealth as wish can claim;<br>Despite those titles, power, and pelf,<br>The wretch, concentrated all in self,<br>Living, shall forfeit fair renown,<br>And, doubly dying, shall go down<br>To the vile dust from whence he sprung,<br>Unwept, unhonour'd, and unsung."***<br>
 [formatting added]<br>
 ####  - <ins>The Lay of the Last Minstrel</ins>, Sir Walter Scott, 1805<br><br>
+2.14
 > ## ***" ... a real sense of home. <ins>We did not build this house for resale value</ins> ... "***
 > ### ***" ... it's a human thing, it's a real sense of home. <ins>We did not build this house for resale value</ins>, we built it because we wanted to create a place to live in that was nurturing to who we are as people"***<br>
 > [formatting added]
 > ### ***- Ann Baird about her cob home. "Groundwork Episode 1 - Building With Cob"***<br>https://youtu.be/InJrWLK-wHc<br>
 
+2.15a
 >> # ***A mal tiempo, buena cara***<br>
 >> ***Spanish proverb - Look on the bright side, make the best of it, etc.***
 >> ## ***Homeless - mal tiempo (adversity) ...***
@@ -420,41 +430,50 @@ Whenever the news was out that a farm was about to be foreclosed by a mortgage c
 >> ### ***"Thorne, you're the luckiest. ... Now with a few tools an' little material see <ins>what a grand house you can build ... "</ins>***<br>
 [formatting added]
 >>> - <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 16, Mountain Sheep
+2.15b
 >> ## ***Buena cara - build a house, get <ins>SQUATTERS' RIGHTS</ins> ...***<br>
 >> ***"As to mining and water claims,*** you lost on this technical point - that you had nothing to prove you had held them for ***<ins>five years. Five years</ins> is the time necessary in law.*** A dozen men might claim the source of Forlorn River, but if they had <ins>***no house or papers to prove their squatters' rights***</ins> any man could go in and fight them for the water."<br>
 >>> ***- <ins>Desert Gold</ins>, Zane Grey, 1913 and 1941. Chap 17, The Whistle Of A Horse***<br>
 >> ## ***5 years??? <ins>DECADES!!!!! of homeless people and foreclosures</ins>. What's become of <ins>SQUATTERS' RIGHTS????? HUMAN NEEDS RIGHTS????? NATURAL LAW?????</ins><br>Only the returning barbarism of human needs-trampling money measuring can explain it.***
 
 
+2.16
 ## ***<br>THE HOMELESS (ABNORMAL) DOLLAR. Part 16. The <ins>ABNORMALITY RATE</ins> is what matters. <ins>The amount of money never changes.</ins> There is no inflation rate.***<br><br>***The only reason to sabotage a standard of measurement is to sabotage measurements. <ins>The amount of money never changes.</ins> The money measurers on-going business is <ins>on-going sabotaging of prices, making them ever-more abnormal, ever larger bubbles that speculators sport with.</ins>***
 ### ***If prices were legitimate (accurate measurements), the marketplace would be inundated with private property, a rising standard of living.***<br> 
 Abnormal prices (inaccurate measurements) advertise danger, some people more equal than others, a place to avoid, the influence of non-industrious people, people looking for spoils (plunder), not a place for everyone. Abnormal behaviour. No one will take personal responsibility for the abnormal dollar.
 ### ***So many dollars in 1950 is not worth so many dollars today. Thanks to 70 plus years of <ins>constant monkey business</ins> prices today are <ins>far more warped (bigger bubbles)</ins> than in 1950.***<br><br>
 
+2.17
 # ***The entire subject of inflation ...***<br>
 ## ***<ins>NEVER</ins> addressing the real problem. Putting a bogus problem in place of the real one. Putting the BOGUS PROBLEM OF <ins>INCORRECT MONEY MEASUREMENT</ins> in place of the REAL PROBLEM OF <ins>NOT MEASURING VALUE.</ins>***<br>
 ## ***There is no correct way to measure a standard of measurement.***<br>
 
+2.18
 # ***THE HOMELESS DOLLAR. Part 17. Measure <ins>COSTS!!!!!</ins> not money.***<br><br>***<ins>HUMAN LABOR (COST!!!!!) - GOES ON</ins> ... <ins>homeless or not ...<br><br>COSTS (HUMAN LABOR!!!!!) WITHOUT A HOME</ins> ... can only be <ins>DEFYING HUMAN NEEDS, RISING INSTEAD OF FALLING, ILLEGITIMATE</ins> ...***<br>
 ## ***Value in exchange is <ins>COST</ins> ...<br><br>A standard of value is <ins>a standard of COST</ins> ...<br><br>Costs going ... UP <ins>(and MORE ABNORMAL - SOME THINGS less affordable than before)</ins>,<br><br>AND UP <ins>(and STILL MORE ABNORMAL - SOME THINGS even less affordable than before)</ins>,<br><br>AND UP <ins>(AND STILL MORE ABNORMAL - SOME THINGS</ins> ...<br><br>... <ins>not even coming to market at all anymore???!!!!!)</ins> <br><br>... <ins>HOUSING FOR A GREAT MANY PEOPLE, A BIG MARKET!!!, A HUMAN NEED SO EASILY MET!!!, A BIG MARKET SO EASILY SATISFIED!!!, NO LONGER AVAILABLE AT ALL?????!!!!!?????</ins> ...<br><br>... the dark ages returning, poverty, returning barbarism ...<br><br>WHAT IF COST WAS BEING MEASURED, HAD A HOME, <ins>THERE COULD ONLY BE PROFIT IN MEETING, NOT TRAMPLING, HUMAN NEEDS???</ins> ...***
 
+2.19
 > # ***"Easy come, easy go"***<br>
 >> ## ***- Homeless fellow commenting about a tent that hadn't worked as well as he hoped.¹***<br>
 > ## ***More wisdom than anyone in the government has???***<br>***More wisdom than any money measurer has.***<br><br>***<ins>Costs remain no matter what, inalienable private property!!!!!</ins>, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins>² instead of coming to market, poverty returning, returning barbarism.***<br>
 > ***¹ wonas2dosgwr3 personal encounter.***<br>
 > ***² <ins>PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins><br><br>
+2.20
 # ***THE HOMELESS DOLLAR. Part 18. Freedom is YOUR HOME. Your home is FREEDOM.***<br><br>***Life, liberty, and the pursuit of happiness: <ins>YOUR HOME</ins>.***<br><br>***HOMES the <ins>only access to money</ins>. FREEDOM the <ins>only access to money</ins>.***<br><br>***Private property will ever have its home, its freedom, its power to ENRICH OTHER HOMES, to DESERT AND DESTROY the Roman Empire and all other <ins>TRESPASSERS!!!</ins>***<br><br>***When <ins>MONEY IS EVERYTHING</ins>: EARNING IT <ins>ISN'T</ins>, FREEDOM <ins>ISN'T</ins>, HOMES <ins>AREN'T</ins>, HUMAN NEEDS <ins>AREN'T</ins>.***<br>
 > ## ***"He was a born rebel..., a throwback to <ins>A FREER TIME, BEFORE MONEY WAS EVERYTHING."</ins>***
 > [formatting added]<br><br>
 > ***- <ins>Ramrod</ins>, Luke Short, Chap 3, 1943***<br><br>
 
+2.21
 # ***THE HOMELESS DOLLAR. Part 19. Counting their money and property values. Getting poor. Bring back the Dark Ages.***<br>
 ## ***Delusions of wealth in WIN-LOSE "TRANSACTIONS", NO TRANSACTIONS AT ALL, NO COST REDUCTIONS, NO SAFETY INCREASE. REAL TRANSACTIONS ARE WIN-WIN, WHAT MONEY BUYS IS EVERYTHING!!!!!, NEVER THE MONEY!!!!!, THE PARAMOUNT IMPORTANCE OF CONCEDING SAFETY (A HOME!!!!!) WITHOUT WHICH TRANSACTIONS ARE IMPOSSIBLE, IS RECOGNIZED.***<br>
 > ***As Plato put it, accounting for the rise and fall of Atlantis`*`, its rise came when:<br><br>
 > ***"They despised everything but virtue, not caring for their present state of life, and thinking lightly on the possession of gold and other property, which seemed only a burden to them; neither were they intoxicated by luxury; nor did wealth deprive them of their self-control; but they were sober, and SAW CLEARLY THAT ALL THESE GOODS ARE INCREASED BY VIRTUOUS Friendship WITH ONE ANOTHER, AND THAT BY EXCESSIVE ZEAL FOR THEM, AND HONOR OF THEM, THE GOOD OF THEM IS LOST, AND FRIENDSHIP PERISHES WITH THEM."***<br>[formatting added]<br><br>
 > `*`***<ins>Atlantis: The Antediluvian World</ins>, Ignatius Donnelly, 1882, PART I. CHAP II. PLATO'S HISTORY OF ATLANTIS. 1985 reprint.***<br><br>***Homes come BEFORE A BARTER ECONOMY, money is only an IMPROVED METHOD OF COST REDUCTION AND SAFETY INCREASE. Reversing the process, REDUCING SAFETY TO INCREASE COST, is the delusion, the "investment" of the currency speculator.***<br>
+2.22
 # ***Would anyone believe it???***
 > ## ***The FLOATING INCH or the FLOATING OUNCE. "Fine tuning" <ins>the length of the inch</ins> or <ins>the weight of the ounce</ins> for economic stimulus.***
+2.23
 # ***Beating a dead horse...***
 ## ***"money from land", from no human labor, 18th century Ireland***
 > ## ***"The agent was one of your middlemen, who grind the face of the poor, and can never bear a man with a hat upon his head: he ferreted the tenants out of their lives; not a week without a call for money, drafts upon drafts from Sir Kit; but I laid it all to the fault of the agent; for, says I, what can Sir Kit do with so much cash, and he a single man? But still it went. Rents must be all paid up to the day, and afore; no allowance for improving tenants, no consideration for those who had built upon their farms: no sooner was a lease out, but the land was advertised to the highest bidder; all the old tenants turned out, when they spent their substance in the hope and trust of a renewal from the landlord."***
@@ -462,27 +481,36 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >>> ### ***- <ins>Castle Rackrent</ins>, Maria Edgeworth, 1800***
 
 
+2.24
 # ***THE HOMELESS DOLLAR. Part 20. Trashing human labor. Deploying homeless dollars <ins>WHEREVER IT'S EASY</ins> - WHEREVER IT'S LOW VALUE!!!!! COMES DOWN TO LAND - NO PRODUCT OF HUMAN LABOR, COLLECTING RENT, PAYMENTS GALORE.***<br>
 ## ***ALL IN VAIN. <ins>Wherever it's easy can't escape detection</ins>, REAL MONEY EVER REMAINS THE SERVANT OF HUMAN LABOR, USE IT OR NOT, GOLD MEASURES THE ABSENCE OF HUMAN LABOR, <ins>THE ABNORMALITY RATE,</ins> AS WELL AS IT MEASURES THE ABUNDANCE OF HUMAN LABOR.<br><br>The "gold price" DOESN'T STOP GOLD FROM BEING MONEY, DOESN'T MAKE GOLD A COMMODITY OR ANYTHING ELSE MONEY, <ins>DOESN'T MAKE MONEY A COMMODITY AND PEOPLE NOT MATTER AND MONEY EVERYTHING!!!!!</ins>, no matter how much the money measurers delude themselves it does. <ins>THE "GOLD PRICE"</ins> ONLY CHRONICLES THE LOW VALUE OF MEASURING MONEY AND TRASHING PEOPLE, OF MONEY BEING EVERYTHING, <ins>THE ABNORMALITY RATE.</ins>***
 
+2.25
 # ***THE HOMELESS DOLLAR. Part 21. Clouds of homeless dollar confetti descending on gold. The confetti cloud on the gold standard.***<br>
 ## ***All that glitters is gold, but THE CONFETTI CLOUD WON'T GLITTER, ONLY GETS WORSE, MORE TRANSPARENT, LOOKS EVEN LESS LIKE MONEY THAN BEFORE.<br><br>Always trespassing. THE CONFETTI CLOUD DESCENDING ON HOMES, CRAVING HIGH VALUE. No luck. Land is no product of human labor, ONLY HUMAN LABOR CAN CONFER HIGH VALUE. Human labor in house building hasn't changed all that much in centuries, ages?, ever? ... no reason to build a house if you can't use it in a reasonable amount of time.<br><br>LOW VALUE can't be morphed into anything else. NO PERSONAL RESPONSIBILITY can't pass for the opposite, for A LOT OF HUMAN LABOR, for HIGH VALUE.***
+2.26
 # ***THE HOMELESS DOLLAR. Part 22. Star-spangled banner update.<br> "... BUBBLES bursting in air ... "***
 ## ***The bubble-powered dollar.***
 ## ***INDEPENDENCE FROM HUMAN NEEDS can't last for long, the independence clamored for by the money measurers is nothing else, is entirely independence to waste resources creating bubbles, the only way to put homeless dollars into circulation.***
 ## ***The Fourth of July is for freedom to meet, not trample, human needs.***
+2.27
 # ***THE HOMELESS (FORGET HUMAN NEEDS) DOLLAR. Part 23.***
 ## ***Clearly, PRICES WOULD BE DIFFERENT with gold dollars. For human needs forgetter (currency speculator) Donald Trump, a ways down the road (post-getting elected), <ins>THAT!!!, not such aberrations as decades of homeless people and foreclosures, IS THE TROUBLE!!!</ins> - there's NOT ENOUGH of the stuff (gold), he said. Apparently, if he thought there <ins>WAS</ins> enough gold, <ins>GOLD WOULD CEASE TO BE GOLD (DIFFERENT)!!!, HOUSE PRICES WOULD BE THE SAME AS WITHOUT GOLD!!!</ins>, and decades of homeless people and foreclosures could continue. But every town has a Home Depot, some towns have a Lowe's (different flavor Home Depot) across the street from Home Depot, what those stores sell has nothing to do with house prices, blue collar labor builds typical houses. So - <ins>WHO NEEDS HOUSE PRICES THAT HAVE NOTHING TO DO WITH LEGITIMATE HOUSE COSTS???!!!???</ins> HUMAN NEEDS DOESN'T!!! <ins>There's NEVER ENOUGH!!! gold dollars to forget human needs, to have the PHONY PRICES!!! that currency speculators sport with. That's EXACTLY THE WHOLE IDEA, THE WHOLE PURPOSE OF MONEY, THE BEAUTY OF A MONEY ECONOMY, OF MEASURING VALUE, OF GOLD DOLLARS!!!</ins> THERE'S NOTHING WRONG WITH GOLD DOLLARS, EVERYTHING WRONG WITH PHONY HOUSE PRICES FROM FORGET-HUMAN-NEEDS (HOMELESS) DOLLARS, HOUSE PRICES SACRIFICED TO THE SPORT OF CURRENCY SPECULATORS SUCH AS MR. TRUMP.***
+2.28
 # ***childsplay in 19th century Fourth-of-July land***
 > ## ***"Pa taught him to set snares and to sta!k game, AS WELL AS TO <ins>BUILD QUICK SHELTERS IN THE WOODS FROM ANY MATERIAL AT HAND.</ins> ... ... He could even HELP WITH HOISTING THE BEAMS INTO PLACE WHEN THEY WERE READY TO BUILD THE HOUSE. Using oxen, ropes, and a greased log over which the ropes could slide, <ins>THE HUGE LOGS COULD BE LIFTED INTO PLACE.</ins>"***
 [formatting added]
 > ### ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 1***
+2.29
 # ***The Fourth of July was invented in a cold-winter climate. Life, liberty and the pursuit of happiness in a cold-winter climate surely does mean, a person who knows nothing will get a roof over their head within the warm season of the year.***
+2.30
 # ***THE HOMELESS DOLLAR. Part 24. NUKING the bubble standard (phony price standard, SLACKER DOLLAR standard).***
 ## ***GOLD will buy 1,958 homeless dollars/troy ounce from CURRENCY SPECULATORS (Donald Trump et al, July 12, 2023) and Trump is SO ALIENATED FROM MEASURING VALUE he calls it a SHORTAGE OF GOLD!!!, instead of SHORTAGE OF VALUE OF THE HOMELESS DOLLARS!!!, HENCE SHORTAGE OF VALUE-MEASURING CAPABILITY. Homeless dollars are SLACKERS!!!, attract so much less private property to market than gold dollars, it's only bubble pedlers like Trump that keeps them alive. So far from Trump's delusion of DUPLICATING LOW VALUE, ELIMINATING IT!!!!! IS THE WHOLE IDEA OF THE GOLD STANDARD!!!!! <ins>Less-productive gold mines opening up</ins> in a HIGH-VALUE ENVIRONMENT!!! Bringing back PRODUCTS <ins>at least on the ENDANGERED SPECIES LIST!!!</ins> under Trump's bubble standard (SLACKER DOLLAR standard!!!), <ins>if not aleady EXTINCT!!!, SUCH AS HOUSING!!!!!</ins>, flooding the HUMAN-NEEDS DRIVEN MARKET with wealth, instead of Trump's world of an <ins>EVER-ENLARGING MORASS of "unaffordablity" crises, scarcities, goods and services fleeing</ins> the BUBBLE-DRIVEN, PHONY-PRICE DRIVEN MARKET.***
+2.31
 # ***THE HOMELESS DOLLAR. Part 25. DOMUM AEDIFICO (I build a house). TE SENTENTIAM ROGO (I ask you your opinion).***
 ## ***Homeowners and fine-tuning their opinions is all the gold standard lives for. Resource use OPTIMIZED, care of the earth OPTIMIZED, NO ENVIRONMENTAL MOVEMENT.<br><br>Donald Trump's "gold standard", a confetti cloud of HOT-AIR POWERED (WHO CAN TELL THE BIGGEST WHOPPER!!!), <ins>HOMELESS GOLD DOLLARS!!!, indistinguishable from homeless dollars (HIGH VALUE EQUALS LOW VALUE!!!, NO DIFFERENCE BETWEEN NIGHT AND DAY!!!, BETWEEN BLACK AND WHITE!!!), DOESN'T EXIST!!!</ins> Gold dollars always have a home, always demand personal responsibility and what children are taught, EARNING!!! money, never sabotage homeowners and their opinions.<br><br>Confetti cloud sportsmen¹, Donald Trumps, their <ins>HOT-AIR BALLOONS BURSTING IN AIR!!!, schemes for sabotaging homeowners and their opinions, sabotaging human needs.</ins>***
 > ***¹ Currency speculators.***
+2.32
 # ***THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 ## ***Low value gets WORSE!!!, <ins>bad merchandise (non-competitive, over-priced) becomes " affordable "</ins> on the installment plan. Calling the payment maker <ins>"owner"</ins> clinches it.***
 ***Resource waste into the <ins>STRATOSPHERE!!!!! AS THE FLOODGATES OPEN!!!!!</ins> putting homeless dollars into "circulation" - hot air balloons and the confetti cloud!!!!!***
@@ -498,6 +526,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 > ***² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor<,/ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
+2.33a
 # ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation".***
 ## ***Bursting bubbles with more of the same. EVERYTHING!!! (in the world of the money measurers) with a facelift.***
 ### ***The entire reason for inventing homeless dollars in the first place is to CREATE BUBBLES!!!  - stop efficient removal of bad merchandise from the marketplace (STOP VALUE MEASUREMENT!!!) AND HAVE BUBBLES INSTEAD!!!***<br><br>***Endless discussion of "INFLATION" IS ALL A FACELIFT!!! suggesting it matters, that <ins>ANYTHING!!!</ins> but bad merchandise and the constant price increases which are the only thing that keeps Donald Trumps interested is involved.***
@@ -505,7 +534,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***No difference between high and low value, between night and day, between black and white, BETWEEN YOURS AND MINE.***
 > ### ***" "I", said the Farmer, " ... it's none of mine, I never take what does not belong to me."***<br><br>***"True, right, very proper, of course," said [Attorney] Mr. Case; "but then you have no interest in life in the land in question?"***<br><br>***"None."***<br><br>***"Then why so stiff about it, Price? all I want of you is to say - "***<br><br>***"To say that black is white, which I won't do, Mr. Case; the ground is a thing not worth talking of, but it's neither yours nor mine;" "***
 >>> #### ***<ins>The Parent's Assistant, Or, Stories For Children</ins>, Maria Edgeworth, 1796. "Simple Susan", Chap 1.***<br><br>
-
+2.33b
 > ### ***"With you I will go. To your land-to your people. To your people ... to whom <ins>DAY IS DAY, AND NIGHT IS NIGHT-nothing more, because you understand all things seen, and despise all else! To your land ... where every man is wise, and alone-and at peace!"</ins>***
 *[formatting added]*<br>
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
