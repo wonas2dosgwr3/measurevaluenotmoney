@@ -281,34 +281,41 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > "Nations have had to face this danger of what is called "inflation" following the recent war. The same thing happened in sixteenth-century Prussia, following the long series of wars between Poland and the Order [of Teutonic Knights]. ...<br><br>***The trouble in Prussia was that the coinage had become very debased, the various authorities seeking a temporary financial advantage by putting less and less gold and silver into the coins that they issued. This drove up prices and made foreign trade almost impossible, as foreigners would not take the worthless coins ... Common action was called for to  put things right; but each state - the Poles, the Prussians, the Order, and even each big city, such as Torun and Danzig - clung jealously to its own right to coin it's own money. Attempts to get agreement had always broken down.***<br><br>**Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ...**<br>***Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."***<br>
 >> ### ***- <ins>The World of Copernicus (Sun, Stand Thou Still)</ins>, Angus Armitage, 1947, Chap. 24. The Diseases of Money***
 
+2.01
 > # ***two bits***
 > ## ***"<ins>the Spanish milled dollar, or piece of eight</ins>*** ... **remained as a standard money unit throughout the entire [US] colonial period. Even after the Revolutionary War, the Spanish dollar and its fractional parts continued to circulate in this country with official sanction until 1857.** ***<ins>One real equalled 12 1/2 cents and was known as a "bit." A quarter of the dollar thus became known as "two bits," a term still in common use."</ins>***
 >[formatting added]
 > ## ***- <ins>A Guide Book Of United States Coins</ins>}, 6th Edition, R. S. Yeoman, MCMLII (1952), p5***
 
+2.01a
 > # ***two bits a hide, two bits a day***<br>
 > ## ***making money (measuring value), jovial hospitality***<br>
 > #### **"They appeared to be merry fellows, ... They were** ***making money [measuring value] which no doubt accounted for their jovial hospitality.***<br><br>"Want a job skinnin' buffs or peggin' hides?" asked the leader. ***<ins>"Two bits a hide."</ins>***<br><br>"Thanks. I don't believe I do," replied Wade, resisting a desire to accept.<br><br>"Did ye ever skin a buff?" asked another.<br><br>"No."<br><br>"Wal, if you haven't, you'd make about ***<ins>two bits a day</ins>*** for a month."<br><br>They all laughed at the joke."<br><br>
 > [formatting added]
 >> ### ***- <ins>Shadow On The Trail</ins>, Zane Grey, 1946, Chap. 5***
 
+2.01b
 > # ***two-bit poker, and ...***<br>
 > "He'll play ***two-bit poker*** but nothin' higher"<br><br>"stealin' cattle but in ***a two-bit way"***<br><br>"Rustle, you ***two-bit brand blotters!"***<br><br>"He and his ***two-bit outfit"***<br><br>"Then that'll be the end of your ***two-bit rustling."***<br><br>"Ranchers on this range ***wouldn't give two-bits for our cattle or our lives."***<br><br>"you dirty, low-down, ***two-bit of a bluff!"***<br><br>"If I ain't hoodooed I'm ***a two-bit of a gambler!"<br><br>"A two-bit cow-punchin' rustler!"***<br><br>"If they hit the river in a wedge like thet [herd of 4500 cattle on Chisholm Trail] ***they'll make Moses crossin' the Red Sea only <ins>a two-bit procession."</ins>***
 > [formatting added]
 >> **- <ins>Shadow On The Trail</ins>, Zane Grey, 1946. Chaps. 7, 11, 12, 14<br>- <ins>The Man of the Forest</ins>, Zane Grey, 1919. Chaps. 20, 22<br>- <ins>Raiders Of Spanish Peaks</ins>, Zane Grey, 1931, 1932, 1938. Chap. 7<br>- <ins>The Trail Driver</ins>, Zane Grey, 1931, 1936. Chap. 8**
 
+2.01c
 > "Can't ***this two-bit cop*** keep order?"<br>
 > [formatting added]
 >> **- <ins>Buchanan's Stolen Railway</ins>, Jonas Ward, 1978, Chap. 3**
 
+2.01d
 > "Clean broke, boss. ***Not a two-bit piece."***<br>
 > [formatting added]
 >> **- <ins>The Trail Driver</ins>, Zane Grey, 1931, 1936. Chap. 16**
 
+2.01e
 > "no ***four-bit cowhand*** is going to outsmart me"
 > [formatting added]
 >> **- <ins>The Rider Of The Ruby Hills</ins>, Chap 11, the first version of <ins>Where The Long Grass Blows</ins> (1976), Louis L'Amour. (In the 4-novel collection <ins>The Rider Of The Ruby Hills</ins>, 1986).**
 
+2.02
 # ***THE HOMELESS DOLLAR. Part 14a. <ins>Legislating a double standard. The 1913 Federal Reserve Act.</ins><br><br>MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD.<br><br>Wholesale resource wasting as far as the eye can see.***<br>
 ***ELASTIC CURRENCY SPECULATORS <ins>INVEST IN LOW VALUE AND CALL IT THE MONEY SUPPLY INSTEAD.</ins><br><br>NOBODY KNOWS BETTER IT'S LOW VALUE, NOTHING TO TAKE CREDIT OR PERSONAL RESPONSIBILITY FOR, NOT WHAT CHILDREN ARE TAUGHT. <br><br>TO THE EXTENT SUCH DISTRACTIONS AS THE FICTION OF THE MONEY SUPPLY (MEASURING MONEY) DIVERT THE SUBJECT FROM MONEY (MEASURING VALUE) AND LOW VALUE, LOW VALUE CAN BE IMPLEMENTED, THE ELASTIC CURRENCY SPECULATORS GET THEIR HANDS ON RESOURCES THEY COULD NEVER HAVE EARNED, CAN'T KNOW THE VALUE OF, THE RESOURCES VANISH INTO THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)`*`, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - ANY BANKRUPT MISERY-PRODUCER WHO DOESN'T WANT TO CHANGE ...***
 
@@ -320,6 +327,7 @@ with benefit of credit [elastic currency speculators] it went more than four yea
 >>> ### ***- <ins>A Bubble That Broke The World</ins>, Garet Garrett, 1931-2, p3, "Cosmology Of The Bubble".***<br>
 >>>`*`"Most of the matter in this book has appeared in the ***Saturday Evening Post*** during the last twelve months, though not exactly in the same form;"<br><br>
 
+2.03
 # ***Condolences from the German Kaiser,1908 ...***
 
 ## ***... to mother of United States Army Lieutenant Thomas Selfridge, fatally injured in the first airplane crash ...<br>... Orville Wright survives ... Fort Myer, Virginia ...***<br>
@@ -327,13 +335,17 @@ with benefit of credit [elastic currency speculators] it went more than four yea
 ***"Lieutenant Thomas Selfridge of the United States Army*** had obtained permission from President Theodore Roosevelt to observe Mr. [Alexander Graham] Bell's kite experiments, and was already in Baddeck [,Nova Scotia] when we [David Fairchild and wife] arrived. Glenn Curtiss ..., a maker of motorcycle engines, ... arrived a few days after we did. "<br><br>"The War Department had called for bids for a heavier-than-air flying machine, and for a dirigible as well, and ***the trial flights ... were to take place in September, 1908, at Fort Myer, Virginia.*** ... ... But of course the great event was the prospect of  seeing the Wrights' machine.<br>***Tom Selfridge came*** down from Baddeck to be present ...<br>Wilbur Wright had taken one of their machines to France, and Orville had come to Washington to make the flight for the War Department with a similar machine. The secrecy with which the Wright brothers had surrounded their early trials at Kittyhawk, North Carolina, and Dayton, Ohio, had been so complete that it could truly be said that they had not yet flown in public. ...<br>***Tom Selfridge was frequently at our house, and brought Orville Wright out with him the Sunday afternoon before his first flight. ... ...<br>I do not remember how many flights Orville Wright made alone before he took a passenger. ... the War Department demanded that the machine should be able to carry two persons ... ...<br>On September 17, Tom was to be Orville Wright's first passenger,*** ... . Tom  had been up in the air in December, 1907, in one of Mr. Bell's tetrahedral kites ... . I think that he had also made a short hop at Hammondsport with Glenn Curtiss.<br>... we were too occupied ... to go to Fort Myer ... ... a cousin, Mr. C. J. Bell, returned from Fort Myer and ***we ran to the door to hear about the flight.<br>"They had an accident," he said. "The plane crashed and I'm afraid Lieutenant Selfridge is fatally injured." ... ...<br>... a message came that Tom had passed away at the hospital at Fort Myer, but that Wright would soon recover, although his ankle was badly smashed.***<br>There was much difference of opinion with regard to the cause of this accident, ***the first aeroplane "crash" in history.*** ... ...<br>Tom's tragic death and Wright's accident, which resulted in a permanently stiff ankle, cast a cloud over the whole flying program for a time, and ***the repercussions were world-wide. <ins>No less a person than the German Kaiser sent a cablegram of condolence to Tom's mother."</ins>***<br>
 [formatting added]
 ### ***- <ins>The World Was My Garden</ins>, David Fairchild, 1938. Chap XXIV, Baddeck, Nova Scotia and Chap XXV, Mostly Aviation***<br><br><br>
+
+2.04a
 # ***"kamen Studenten aus allen Kontinenten der Erde, um unter den deutschen Wissenschaftlern zu studieren."***
 ### ***"Von der Zeit Liebigs auf dem Gebiet der Chemie und Georg Ohms auf dem Gebiet der Physik bis zu Röntgen, Max Ehrlich, Robert Koch und Albert Einstein <ins>kamen Studenten aus allen Kontinenten der Erde, um unter den deutschen Wissenschaftlern zu studieren.</ins>"***<br>[formatting added]<br>
 >> #### ***<ins>Im Wandel Der Jahre</ins>, Fifth Ed., Harold Von Hofe, 1974, p67***<br><br>
+2.04b
 # ***"Noch im Jahre 1915 ... "***
 ### ***"Noch im Jahre 1915 lernten 29,9 Prozent aller amerikanischen Schüler Deutsch, während nur 9,7 Prozent Französisch und 3 Prozent Spanisch lernten."***<br>
 >> #### ***<ins>Im Wandel Der Jahre</ins>, Fifth Ed., Harold Von Hofe, 1974, p72***<br><br><br>
 
+2.05
 > # ***"the gentry pushing their cravings ..."***
 > "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ... "Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ... "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."***
 >> ## ***-<ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1***<br><br>
