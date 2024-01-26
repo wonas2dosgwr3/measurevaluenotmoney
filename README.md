@@ -169,18 +169,18 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >[formatting added]<br><br>
 >   ***- Aristophanes, <ins>Birds</ins>, 414 BC***
 
-1.26
+1.25
 # ***THE HOMELESS DOLLAR. Part 8. <ins>Not what children are taught.</ins> Forced circulation of play money.***
 
 ### ***Children are taught that MONEY'S VALUE COMES FROM EARNING IT. Earning it changes ITS HOME!!! -  money circulates from HOME TO HOME!!! But <ins>without homes, there can be no circulation,</ins> nothing but oppression, FORCED CIRCULATION VIA THE TIMELESS INSTRUMENTS OF OPPRESSION, MOUNTAINS OF TAXES AND REGULATIONS AND BAD GOVERNMENT, WARS AND MISERY.***<br><br><br>
 
-1.27
+1.26
 > # ***"atraen el oro y la plata de las provincias más distantes."<br>("attract gold and silver from the most distant provinces.")***<br> 
 > ***"una ciudad [Cuzco] que se pudiera contar por la mayor del reino sin disputa alguna, por su situación, terreno y producciones, y rodeada de las provincias más fértiles y más abundantes de frutos y colonos útiles, que son los indios que trabajan en el cultivo de las tierras y obras mecánicas y que <ins>atraen el oro y la plata de las provincias más distantes."</ins><br><br>("a city [Cuzco] that could be counted the best in the kingdom without any doubt, for its situation, terrain and productions, and surrounded by the provinces most fertile and most abundant of fruits and useful colonists, who are the Indians who work in the land cultivation and mechanical works and who <ins>attract the gold and the silver of the most distant provinces."</ins>)***<br>
 > [Formatting added. wonas2dosgwr3 translation]<br>
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
-1.28
+1.27
 ## <br><br>***High house value is (6)***<br>
 > <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
@@ -189,13 +189,13 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ***THE PRICE DISTORTION INVITES THE CURRENCY SPECULATION THE MONEY MEASURERS LIVE FOR, HOUSES ARE FOR SPORTING WITH FOR THEM, NOT MAINLY FOR LIVING IN, NOT FOR GETTING ATTACHED TO, NOT FOR FAMILIES OR ANYONE'S CASTLE.***<br>
 >> ***The real estate speculators (currency speculators labeled according to which particular one of the many distorted prices the money measurers cause has attracted them, diverted them from industrious behavior to a game of chance) said repeatedly most people, when they buy a house, only keep it for 5 years, then move to another one.***`*`<br><br>`*` wonas2dosgwr3 personal encounter.<br><br>
 
-1.29
+1.28
 #  <br><br>***THE HOMELESS DOLLAR. Part 9. <ins>Cultivating UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS</ins>.<br><br>Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT).<br><br>Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES).<br><br>Vastly outnumbered by MONEY EARNERS (PEOPLE MEASURING MONEY'S VALUE ABOVE ZERO).<br><br>Thin ice at the breaking point.***<br>
 
-1.30
+1.29
 ### ***If all the people distracted with earning their dollars realized those dollars originate unearned, it would be the end of the money measurers, <ins>the certainty of what children are taught would prevail, human needs (real investment) would no longer be ignored.</ins>***
 
-1.31
+1.30
 # ***THE HOMELESS DOLLAR. Part 10. <ins>Real estate speculation is currency speculation.</ins> NEGLECTING YOURSELF!!!***
 
 ### ***ADDING VALUE!!! doesn't require money, but it ATTRACTS MONEY!!!, ATTRACTS MEASURING VALUE. THE LAST THING ANY VALUE ADDER (INDUSTRIOUS PERSON) WANTS IS INTERFERENCE WITH MEASURING VALUE, CURRENCY SPECULATION!!!!!***
@@ -205,73 +205,73 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > ### **Land is no product of human labor, everyone has it under their feet, INTERFERENCE WITH IT (REAL ESTATE SPECULATION!!!, RAISING THE MONEY PRICE) can only discourage industrious people, LOWER VALUE, never be an investment. THE ONLY INVESTMENT IS INDUSTRIOUS PEOPLE, NEVER THE LAND UNDER OTHER PEOPLE'S FEET!!!**<br>
 > ### ***THE ONLY LAND INVESTMENT IS THE LAND UNDER YOUR OWN FEET!!!, MINDING YOUR OWN BUSINESS, SPECIALIZING, CULTIVATING WHAT IS YOUR OWN, INVESTING IN YOURSELF!!!<br><br>Minimizing interference with the land under other people's feet means MINIMIZING THE MONEY PRICE OF LAND!!!, is all that can minimize interference and the money price of the land under your own feet - THE GOLDEN RULE!!!***<br>
 
-1.32
+1.31
 ## <br><br>***HIGH LAND VALUE is <ins>YOU ABSOLUTELY OWN IT!!!, MINIMIZED, NOT HIGH, MONEY PRICES OF LAND!!!</ins>,  a nation of ABSOLUTE LAND OWNERS!!!***<br><br><br>
 
-1.33
+1.32
 > # ***real estate developers from New York***<br>
 >> ### ***measuring money, trashing value ...<br><br>"I knew I was in trouble when one of them asked, "Will all this stuff affect my DNA?" "  - Greg Leyh, giant Tesla coil researcher, September  2017<br><br>... promptly kicked out***
 
 >> "However, this photo [of Greg Leyh's new 40 ft Tesla tower] was taken at a key moment ... ah ... the coil is leaving the lab space for the last time and going to a storage facility. ***I recently lost ... a ... my lab space here, that I've had for the last 8 years, ... a ... when <ins>real estate developers from New York bought the entire American Steel site.</ins>*** You might imagine their response upon seeing my workspace for the first time. ***<ins>I knew I was in trouble when one of them asked, "Will all this stuff affect my DNA?</ins>"<br><br>So, ... <ins>I was promptly kicked out, a ... along with many other workshops and artists there</ins>, including ... ... Karen Cusolito, the artist who actually founded American Steel Studios.*** Now, 8 years ago it was pretty easy to find another industrial space. ***But nowadays, even undesirable spots like American Steel are bein' scooped up by developers. So, right now <ins>everything's in storage, and the project is pretty much dead in the water.</ins>*** But, ... I have a plan to replace this lab space ...  The plan is to get a custom cargo trailer, and outfit it with all the tower components, instruments and a workshop. Since the tower itself is fully collapsable, ... a ... the entire system can pack into a single18 ft trailer. There's many great desolate spots around the Bay area that would make perfect test sites, but they don't have usable buildings or utilities. ***However, a self-contained mobile lab could just roll into one of these sites, set up, perform experiments, and then roll out. All without needing any building space, administrative overhead, or hookups. Storing a trailer is also much, much easier than finding reliable lab space in Oakland these days. So right now, ... a ... <ins>the new 40 ft Tesla tower is almost ready to fire up, but everything's in storage until the ...a ... mobile lab is ready."</ins><br>***[formatting added]<br><br>***- Greg Leyh, "The Secret Life of Lightning: The Science of Giant Tesla Coils", September 26, 2017, Conversations at the Interval, The Long Now Foundation***<br><br>https://youtu.be/ntIBDVCfATA
 
-1.34
+1.33
 # ***LEGITIMATE HOUSING COST. Part 1. Covered wagon pioneers decide to put up a town. Those first <ins>THREE DAYS</ins> ... ... always something warming and pleasant ...***
 ## ***"For <ins>THREE DAYS</ins>, life in the new town went on briskly. They named the town Poplar. Kies's Store was the first building up, ... ... Those first <ins>THREE DAYS</ins> were hard, unrelenting labor, yet joyful labor, too. They were building homes, and there is always something warming and pleasant in that. At the end of those first <ins>THREE DAYS [!!!!!], Kies's Store was up, and so were Collins's blacksmith shop, Satterfield's office, and Hardy's Saloon and Theater.</ins>[!!!!!] All of them pitched in and worked."***
 [formatting added]<br>
 > ***- <ins>Showdown Trail</ins>, Chap 3, the original version of <ins>The Tall Stranger</ins> (1957). Louis L'Amour. (In the 4-novel collection <ins>The Rider Of The Ruby Hills</ins>,1986).***
-1.35
+1.34
 # ***THE HOMELESS (<ins>NON-CIRCULATING, DEBT-POWERED, MISERY-POWERED, HUMAN NEEDS-AVOIDING</ins>) DOLLAR. Part 11. Changing HANDS is not enough.***
 ### ***Dollars that <ins>change HANDS BUT NOT HOUSES are NOT CIRCULATING!!! Debt is NON-CIRCULATING!!! money, does not make borrowers owners of houses or anything else, no matter how loudly the money measurers say it does. NO OWNERSHIP, NO TRANSACTION, NO CIRCULATION!!!</ins><br><br>Money needed for housing cost can't circulate, will only leave home after house cost has been paid, WHEN HOUSING IS AFFORDABLE!!! The homeless dollar doesn't move, stagnates building up debt instead of ownership, bogus instead of affordable prices, avoiding instead of addressing human needs.***<br><br><br>
 
-1.36
+1.35
 > # ***"This California ... ... these peoples mus' have things."***
 > **"This California," Marco was telling him ... Once he belong Spain; now Mexico. ... Mexico ver' bad for California. She tell California that she shall buy onlee from her, and then she forget to send things to buy! That's funnee! ... But these peoples mus' have things. They cannot grow them on the trees. So we bring them ... Onlee we mus' not let Mexico catch us! She's against the law. It's bad to go against the law ... but the good *padres*, they come buy. Pret' soon, when she come night, you see a fire on the beach. They light heem. Then we go in wid the boat."**<br>
 >>> ## ***- "Guest's Gold", Stewart Edward White, <ins>The Saturday Evening Post</ins>***<br><br>
 
-1.37
+1.36
 # ***"one thing that's always made me tired"***
 **"Which if thar's one thing that's always made me tired," observed Mr. Hickok, as he talked the subject over with himself, "it's a strange party jumpin' into camp an'** ***<ins>domineerin' 'round as though he owned the yearth an' was thar to let it out on shares."</ins>***<br>
 > [formatting added]
 >>> ## ***- "How Mr. Hickok Came To Cheyenne", Alfred Henry Lewis, <ins>The Saturday Evening Post</ins>***
 
-1.38
+1.37
 # ***THE HOMELESS (<ins>CAN OF WORMS</ins>) DOLLAR. Part 12.***
 
 ***A can of worms. The inch or the ounce should be A CAN OF WORMS??? Money was invented to be A CAN OF WORMS??? A CAN OF WORMS is - A BARTER ECONOMY??? Money was invented to REPLACE A CAN OF WORMS WITH A CAN OF WORMS??? MOVE UP FROM A CAN OF WORMS TO A CAN OF WORMS?????***
 
-1.39
+1.38
 > # ***"that lantern wick will fire the docks."***
 > ***NICARCHUS. ... A lantern wick you are bringing from the foe.***<br>***DICAEOPOLIS. Show him up, would you, for a lantern wick?***<br>***NICARCHUS. Aye, for that lantern wick will fire the docks.***<br>***DICAEOPOLIS. A lantern wick the docks! O dear, and how?***<br>***NICARCHUS. If a Boeotian stuck it in a beetle,<br>And sent it, lighted, down a watercourse<br>Straight to the docks, watching when Boreas blew<br>His stiffest breeze, then if the ships caught fire, <br>They'd blaze up in an instant.***<br>***DICAEOPOLIS. Blaze, you rascal! What, with a beetle and a lantern wick?***<br>***NICARCHUS. Bear witness!***<br>
 >>    ***- Aristophanes, <ins>Acharnians</ins>, around 425 BC***
 
-1.40
+1.39
 > # ***"master of his own establishment"***<br>
 > ***"My own complete happiness, and the <ins>home-centred interests</ins> which rise up around the man who first finds himself master of his own establishment, were sufficient to absorb all my attention."***
 >>    ***- Dr. Watson. <ins>The Adventures and Memoirs of Sherlock Holmes</ins>, "A Scandal In Bohemia", Sir Arthur Conan Doyle, 1892***
 
-1.41
+1.40
 > # ***1938. "Our house ... just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***
 > ## ***Foreclosed? Evicted? 1938. Epidemic of currency speculators "investing" in resource waste. World wars, Great Depression.***<br>
 > *"we saw the house slowly turn around, sail off to the northeast and start down the brook ... It just sailed away - easy as pie - and soon there was nothing at all left on the spot where the house had stood for over sixty years.* <ins>***Our house - ours for twenty-five years - all our possessions - just gone. LOOK - WE LIVE THERE! HEY - WHAT IS HAPPENING!"***</ins><br>
 > [formatting added]
 >> ### ***- <ins>Me: Stories of My Life</ins>, "Hurricane", Katharine Hepburn, 1991***
 
-1.42
+1.41
 > # ***"make themselves to home"***<br>
 > *"Jenkins turned the house over to the ladies. They were to do with it what  they pleased. There was a kitchen stocked with any amount of canned food. They could cook, play the victrola ..., or anything else that took their fancy. ... He wanted them to be sure to* ***<ins>"make themselves to home."</ins> "***<br>
 >[formatting added]
 >> ***- <ins>Captives Of The Desert</ins>, Chap. 2, Zane Grey, 1925-6***
 
-1.43
+1.42
 > # ***"the highest percentage of landowners"***<br>
 > ***1941. Costa Rica "has been remarkably free from revolutions, her elections are orderly and democratic, and her people are not saddled with a ruling military clique. The standing army consists of about 500 men, 220 of whom are musicians. The President of the country receives a salary of $268 a month, a congressman less than $100. The Indian natives have been almost entirely assimilated, and the country has the highest percentage of landowners of any country in Latin America - 89,389 persons hold 198,629 pieces of property." Also "boasts the lowest percentage of illiteracy of any country in Latin America."***<br>
 >> ***- <ins>Spanish American Life</ins>, John A. Crow, 1941, p41***
 
-1.44
+1.43
 # ***More for your money ... ...***<br>
 > ## ***... more <ins>HUMAN LABOR</ins> ...<br><br>More HUMAN LABOR, more concern for <ins>HUMAN NEEDS</ins> ...<br><br>More <ins>HUMAN LABOR</ins> is inseparable from <ins>more concern for HUMAN NEEDS</ins> ...<br><br>Human labor, the thing, the value (in exchange) a standard of value measures (buys).***
 
-1.45
+1.44
 # ***THE HOMELESS DOLLAR. Part 13. <ins>Nothin' to trade on.</ins> Only speculate.***<br><br>***No truth.***<br>
 *" "A feller gets news from Indians and cowboys without knowin' who handed it on to who, an' you take the main idee for truth.* ***All I'd want to make a trade on*** *is that right now Newton's somewhere back toward the border." "*<br>
 [formatting added]<br><br>***- <ins>Captives Of The Desert</ins>, Chap. 15, Zane Grey, 1925-6***<br>
