@@ -465,12 +465,13 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > [formatting added]<br><br>
 > ***- <ins>Ramrod</ins>, Luke Short, Chap 3, 1943***<br><br>
 
-2.21
+2.21a
 # ***THE HOMELESS DOLLAR. Part 19. Counting their money and property values. Getting poor. Bring back the Dark Ages.***<br>
 ## ***Delusions of wealth in WIN-LOSE "TRANSACTIONS", NO TRANSACTIONS AT ALL, NO COST REDUCTIONS, NO SAFETY INCREASE. REAL TRANSACTIONS ARE WIN-WIN, WHAT MONEY BUYS IS EVERYTHING!!!!!, NEVER THE MONEY!!!!!, THE PARAMOUNT IMPORTANCE OF CONCEDING SAFETY (A HOME!!!!!) WITHOUT WHICH TRANSACTIONS ARE IMPOSSIBLE, IS RECOGNIZED.***<br>
-> ***As Plato put it, accounting for the rise and fall of Atlantis`*`, its rise came when:<br><br>
+2.21b
+> ***As Plato put it, accounting for the rise and fall of Atlantis¹, its rise came when:***<br><br>
 > ***"They despised everything but virtue, not caring for their present state of life, and thinking lightly on the possession of gold and other property, which seemed only a burden to them; neither were they intoxicated by luxury; nor did wealth deprive them of their self-control; but they were sober, and SAW CLEARLY THAT ALL THESE GOODS ARE INCREASED BY VIRTUOUS Friendship WITH ONE ANOTHER, AND THAT BY EXCESSIVE ZEAL FOR THEM, AND HONOR OF THEM, THE GOOD OF THEM IS LOST, AND FRIENDSHIP PERISHES WITH THEM."***<br>[formatting added]<br><br>
-> `*`***<ins>Atlantis: The Antediluvian World</ins>, Ignatius Donnelly, 1882, PART I. CHAP II. PLATO'S HISTORY OF ATLANTIS. 1985 reprint.***<br><br>***Homes come BEFORE A BARTER ECONOMY, money is only an IMPROVED METHOD OF COST REDUCTION AND SAFETY INCREASE. Reversing the process, REDUCING SAFETY TO INCREASE COST, is the delusion, the "investment" of the currency speculator.***<br>
+> ***¹<ins>Atlantis: The Antediluvian World</ins>, Ignatius Donnelly, 1882, PART I. CHAP II. PLATO'S HISTORY OF ATLANTIS. 1985 reprint.***<br><br>***Homes come BEFORE A BARTER ECONOMY, money is only an IMPROVED METHOD OF COST REDUCTION AND SAFETY INCREASE. Reversing the process, REDUCING SAFETY TO INCREASE COST, is the delusion, the "investment" of the currency speculator.***<br>
 2.22
 # ***Would anyone believe it???***
 > ## ***The FLOATING INCH or the FLOATING OUNCE. "Fine tuning" <ins>the length of the inch</ins> or <ins>the weight of the ounce</ins> for economic stimulus.***
@@ -645,7 +646,7 @@ Supreme Court Justice William O. Douglas throughout his most interesting natural
 >>>> ***- <ins>The Lhasa Record</ins>, "discovered by Schliemann
  in the old  Buddhist Temple of Lhasa, Tibet. Schliemann deciphered and translated it." <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap IV. RECORDS OF THE LOST CONTINENT***
 
->>> ### ***¹ See THE HOMELESS DOLLAR. Part 19.<br><br>² See 1.11. "Gold in their pockets, paper on their walls"***
+>>> ### ***¹ See 2.21b. THE HOMELESS DOLLAR. Part 19.<br><br>² See 1.11. "Gold in their pockets, paper on their walls"***
 
 3.05c
 # ***Part 31b. NOTHING LEFT.***
