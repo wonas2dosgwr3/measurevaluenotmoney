@@ -621,29 +621,37 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
 >> ***² See "No man's land (the marketplace!!!)." Part 3.***
 
-3.03
+3.03a
 # ***THE HOMELESS (HIGH VISIBILITY) DOLLAR. Part 29. Money never changes, everything else in the marketplace does, how much and for better or worse can always be learned from money.***
-## ***Money the harmless standard of measurement shuns resource waste, leaving resource waste measured "low value".<br><br>MONEY WASTE, on the other hand, CAN'T BE SEPARATED FROM RESOURCE WASTE!!!, AND IS FAR MORE VISIBLE THAN MONEY THE MERE STANDARD OF MEASUREMENT. Homeless dollars are entirely a resource wasting and money wasting scheme, HIGHLY VISIBLE, inviting the delusion of money being "EVERYTHING", ALL THAT MATTERS, BLAMING RESOURCE WASTE ON THE HARMLESS STANDARD OF MEASUREMENT MONEY, instead of on MONEY WASTE!!!<br><br>Supreme Court Justice William O. Douglas throughout his most interesting natural history book <ins>My Wilderness: The Pacific West</ins> laments the damage threatening the wilderness by "money"  [formatting added]:***
+## ***Money the harmless standard of measurement shuns resource waste, leaving resource waste measured "low value".<br><br>MONEY WASTE, on the other hand, CAN'T BE SEPARATED FROM RESOURCE WASTE!!!, AND IS FAR MORE VISIBLE THAN MONEY THE MERE STANDARD OF MEASUREMENT. Homeless dollars are entirely a resource wasting and money wasting scheme, HIGHLY VISIBLE, inviting the delusion of money being "EVERYTHING", ALL THAT MATTERS, BLAMING RESOURCE WASTE ON THE HARMLESS STANDARD OF MEASUREMENT MONEY, instead of on MONEY WASTE!!!<br><br>
+3.03b
+Supreme Court Justice William O. Douglas throughout his most interesting natural history book <ins>My Wilderness: The Pacific West</ins> laments the damage threatening the wilderness by "money"  [formatting added]:***
 > ## ***"The loggers and road builders look at every lovely ridge or basin for QUICK PROFITS. They take heavily from the forests, sometimes destroying everything." (Chap V. Mount Adams).<br><br>"Lumber interests would be served; the man who built the road would make A FORTUNE ... That act of desecration would prove that the powers that be downgrade VALUES THAT CANNOT BE CONVERTED INTO DOLLAR SIGNS." (Chap IX. Glacier Peak).<br><br>"These days people think more and more IN TERMS OF DOLLARS. By those standards all of our wilderness will be chewed up by machines. Yet <ins>DOLLARS DO NOT EXPRESS ALL THE VALUES WHICH WE AMERICANS CHERISH.</ins> ... An attempt to put DOLLAR SIGNS on these natural wonders is, I thought, a mark ... of our great decline. We deal with <ins>VALUES THAT NO DOLLARS CAN MEASURE."</ins>(Chap IX. Glacier Peak).***<br><br>
  
-3.04
+3.04a
 # ***THE HOMELESS DOLLAR. Part 30. "Everything's going up!"¹***
 >>>>>> ### ***¹ Prices. "Inflation" - OF A BUBBLE!!!!! Nothing to manage!!! Only to <ins>STOP THE PROLIFERATION OF HUMAN NEEDS-DEFYING PRICES!!!!!</ins>, which is all there is to inflation management. STOP THE MISERY, THE CONSPICUOUS RESOURCE WASTE, MONEY BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins>***<br><br> ***Money should no more be "everything" than the inch or the ounce should be. Everything should be <ins>CONSPICUOUS MARKETS!!!, CONSPICUOUS INVESTMENT OPPORTUNITIES!!!, CONSPICUOUS HUMAN NEEDS!!!, RAISING THE STANDARD OF LIVING!!!</ins>***<br><br>
+3.04b
 >> ### ***"A nation loses the place which it once held in the world's history <ins>WHEN MONEY BECOMES MORE PRECIOUS TO THE SOULS OF ITS PEOPLE THAN HONESTY AND HONOR.</ins> A universal, widespread greed of gain is the forewarning of some great upheaval and disaster. Civilizations have been born and completed and then forgotten again and again. There is nothing new under the sun."<br>- <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap XIV. The Origin of Savagery#*** [formatting added]
+3.04c
 ## ***Everything's <ins>PLAIN AS DAY!!!!!</ins>, IN A LEGITIMATE FINANCIAL SYSTEM!!<br>Prices are not an issue, no financial complexity, only <ins>PLAIN INFORMATION ABOUT HUMAN NEEDS, VALUE MEASUREMENTS, ALL THAT PROSPEROUS PEOPLE NEED.</ins><br><br>Illegitimate prices (bad merchandise) is ALL THERE IS TO "INFLATION", "DEFLATION", FINANCIAL COMPLEXITY, NO SIGNS OF LIFE (HUMAN NEEDS, HOMELESS PEOPLE) ALLOWED, TRIPLE-REVERSE UPSIDE-DOWN MORTGAGES.***
 
+3.05a
 # ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31a. The next lost continent???¹ (NOTHING VENTURED).***
 ## ***<ins>OUTPUT</ins> - SOMETHING VENTURED!!!, GOOD WILL!!!, MEETING HUMAN NEEDS!!!, COMMITTMENT TO COMMERCE!!!, TO SAFETY!!!, TO HOMES!!!<br><br>Not OSTENTATION!!!, gold and silver for ornament² instead of for money; not HOARDING GOLD AND SILVER!!!, money measurers sitting on it, paranoid of letting gold and silver out of their hands, of letting them BE MONEY!!!, CIRCULATE!!!, well knowing the BAD MERCHANDISE THEY'RE PEDDLING!!! will never bring gold and silver back to them; not HOW BIG!!! the pile of homeless dollars is; not DIVERTING MONEY IN  ANY WAY FROM <ins>OUTPUT</ins>, FROM SOMETHING VENTURED, FROM SERVING HUMAN NEEDS!!!; NOT ANY ADORNMENT, NOT ANYTHING <ins>PUT ON</ins>!!!!!***<br><br>
 
+3.05b
 >> **" "When the star of Bal fell on the place where now is only the sky and the sea, the seven cities ... quivered and shook ... ... and the wise Mu - the** ***Hieratic Ra Mu*** **- arose and said to them: did I not predict all this? And the women and the men in their precious stones and shining garments lamented ... and Mu  replied: 'You shall all [perish] ... and ... new nations shall arise. If they forget they are superior <ins>not because of what they PUT ON but what they PUT OUT</ins> the same will befall them.' ... the land and its inhabitants were torn to pieces and swallowed up by the depths." "**  [formatting added]
 >>>> ***- <ins>The Lhasa Record</ins>, "discovered by Schliemann
  in the old  Buddhist Temple of Lhasa, Tibet. Schliemann deciphered and translated it." <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap IV. RECORDS OF THE LOST CONTINENT***
 
 >>> ### ***¹ See THE HOMELESS DOLLAR. Part 19.<br><br>² See 1.11. "Gold in their pockets, paper on their walls"***
 
+3.05c
 # ***Part 31b. NOTHING LEFT.***
 ## ***<ins>Destroy prices!!!!!</ins><br><br>The money measurers <ins>DESTROY PRICES!!!!!</ins>, calling it anything but - "inflation", "money supply", "controlling ...", "not enough ...", UNTIL THERE'S NOTHING LEFT!!!<br><br>Nothing left but ADORNMENT!!! - what's PUT ON!!! What's PUT OUT!!! - OUTPUT!!! - forgotten.<br><br>Nothing but FINANCIAL COMPLEXITY!!! - <ins>FINANCIAL TARPITS!!! containing FOSSIL REMAINS OF TRANSACTIONS, OF SOMETHINGS VENTURED, OF COMMERCE!!!</ins><br><br>Nothing but BAD MERCHANDISE!!! Good merchandise all driven out or stolen, <ins>THE BIGGEST BUBBLE BURSTS!!!</ins> Poverty and misery (bad merchandise), returned barbarism (bad merchandise), another vanished civilization (bad merchandise), another sunken continent (bad merchandise), nothing but the sky and the sea.***
 
+3.05d
 # ***Part 31c. NOTHING LEFT.***
 ## ***<ins>Destroy CAPITAL!!!</ins>***
 ## ***"Financing" <ins>minus what children are taught</ins> - "financing" resource waste, BAD MERCHANDISE!!!<br><br>Grants, programs, etc, etc doling out ENDLESS AMOUNTS OF <ins>UNEARNED (HOMELESS) DOLLARS!!!</ins> No wonder that product <ins>doesn't work!!!, doesn't last!!!, doesn't serve its intended purpose!!!, is pure waste of resources!!!, why did anyone bother to make it???!!!</ins> No wonder IT'S <ins>BAD MERCHANDISE!!!!!</ins><br><br>Capital starts with the firsthand <ins>KNOWLEDGE OF HUMAN NEEDS!!!!!, OF MONEY'S VALUE!!!!!</ins>, that only comes, as children are taught, from <ins>EARNING!!! money.</ins><br><br>Nothing ventured, NOTHING EARNED!!!, nothing for prices, nothing to save, NOTHING FOR CAPITAL!!! - nothing left but BAD MERCHANDISE!!!***
