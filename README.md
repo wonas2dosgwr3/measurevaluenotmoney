@@ -546,30 +546,37 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***¹ Inalienable rights!!!***
 >>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***
 
+3.00à
 ## ***Part 1.***
 ### ***No one owns the marketplace. Everyone owns a piece of it.***
+3.00b
 ## ***Part 2.***
 ### ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
 >> ***- Joseph Conrad, "Karain: A Memory", Chap 3. 1897***
 
+3.00c
 ## ***Part 3.***
 ### ***"Nobody ever saw a dog make a fair and deliberate exchange of one bone for another with another dog."***
 >> ### ***- ?***
 
+3.00d
 ## ***Part 4.***
 ### ***"No tengo trono ni reina<br>Ni nadie que me comprenda<br>Pero sigo siendo el rey"<br><br>("I don't have a throne nor a queen<br>Nor anyone who understands me<br>But I continue being the king")***
 >> #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971. See 2009 George Strait album "Twang" for more lyric.***
 
+3.00e
 ## ***Part 5.<br>Even a fool.***
 ### ***"and you must learn not to despise any man. Even a fool can teach you not to be foolish, and there's no telling where you'll hear the thing that  will help you to do a job easier, or the thing that may save your life."***
 >> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
 
+3.00f
 ## ***Part 6.<br>Even Lars K. Ahlstrom.***
 ### ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
 >> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II,"Pacific Beach"***
 
+3.00g
 ## ***Part 7.***<br>***Paranoid of trespassing!!! In banana republic land! Ricardo Güiraldes for President!!!***
->> #### ***"¡Cuánto había andado ese hombre!<br>En todos los pagos tenía amigos, que lo querían y respetaban, aunque poco tiempo paraba en un punto. Su ascendiente sobre los paisanos era tal que una palabra suya podía arreglar el asunto más embrollado. Su popularidad, empero, lejos de servirle parecía fatigarlo después de un tiempo."***
+>> #### ***"¡Cuánto había andado ese hombre!<br>En todos los pagos tenía amigos, que lo querían y respetaban, aunque poco tiempo paraba en un punto. Su ascendiente sobre los paisanos era tal que una palabra suya podía arreglar el asunto más embrolla3do. Su popularidad, empero, lejos de servirle parecía fatigarlo después de un tiempo."***
 > ### ***<ins>-Yo no me puedo quedar mucho en nenguna estancia- decia -porque en seguida estoy queriendo mandar más que los patrones.-</ins>***
 > [formatting added]
 >
@@ -577,10 +584,12 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ### ***<ins>"I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses." "</ins>)***
 >>> #### ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
 
+3.00h
 ## ***Part 8.<br>Even a boy. To save his own labor. One of the greatest improvements.***
 ### ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
 >> ***- ?***<br><br>
 
+3.01a
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
 ## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE!!!!! standard of value</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***
 
@@ -590,10 +599,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***<ins>JACKPOTS</ins> FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), <ins>FOR LOWERING THE STANDARD OF LIVING!!!</ins>***<br><br>
 >> ***<ins>JACKPOTS FOR NO SIGNS OF LIFE.</ins> FOR RETURNED BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.***
 
-## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
->> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
->> ***² See "No man's land (the marketplace!!!)." Part 3.***
-
+3.01b
 # ***Part 28b. Homeless ghosts.***
 >> ***Quotations from Joseph Conrad, "Karain: A Memory", Chap 6. 1897  [formatting added]***
 
@@ -608,14 +614,23 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 >> ##### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>*** 
 > #### ***¹ See end of "THE HOMELESS DOLLAR. Part 27. ... "***
+
+
+3.02
+## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
+>> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
+>> ***² See "No man's land (the marketplace!!!)." Part 3.***
+
+3.03
 # ***THE HOMELESS (HIGH VISIBILITY) DOLLAR. Part 29. Money never changes, everything else in the marketplace does, how much and for better or worse can always be learned from money.***
 ## ***Money the harmless standard of measurement shuns resource waste, leaving resource waste measured "low value".<br><br>MONEY WASTE, on the other hand, CAN'T BE SEPARATED FROM RESOURCE WASTE!!!, AND IS FAR MORE VISIBLE THAN MONEY THE MERE STANDARD OF MEASUREMENT. Homeless dollars are entirely a resource wasting and money wasting scheme, HIGHLY VISIBLE, inviting the delusion of money being "EVERYTHING", ALL THAT MATTERS, BLAMING RESOURCE WASTE ON THE HARMLESS STANDARD OF MEASUREMENT MONEY, instead of on MONEY WASTE!!!<br><br>Supreme Court Justice William O. Douglas throughout his most interesting natural history book <ins>My Wilderness: The Pacific West</ins> laments the damage threatening the wilderness by "money"  [formatting added]:***
 > ## ***"The loggers and road builders look at every lovely ridge or basin for QUICK PROFITS. They take heavily from the forests, sometimes destroying everything." (Chap V. Mount Adams).<br><br>"Lumber interests would be served; the man who built the road would make A FORTUNE ... That act of desecration would prove that the powers that be downgrade VALUES THAT CANNOT BE CONVERTED INTO DOLLAR SIGNS." (Chap IX. Glacier Peak).<br><br>"These days people think more and more IN TERMS OF DOLLARS. By those standards all of our wilderness will be chewed up by machines. Yet <ins>DOLLARS DO NOT EXPRESS ALL THE VALUES WHICH WE AMERICANS CHERISH.</ins> ... An attempt to put DOLLAR SIGNS on these natural wonders is, I thought, a mark ... of our great decline. We deal with <ins>VALUES THAT NO DOLLARS CAN MEASURE."</ins>(Chap IX. Glacier Peak).***<br><br>
 
+3.04
 # ***THE HOMELESS DOLLAR. Part 30. "Everything's going up!"¹***
 >>>>>> ### ***¹ Prices. "Inflation" - OF A BUBBLE!!!!! Nothing to manage!!! Only to <ins>STOP THE PROLIFERATION OF HUMAN NEEDS-DEFYING PRICES!!!!!</ins>, which is all there is to inflation management. STOP THE MISERY, THE CONSPICUOUS RESOURCE WASTE, MONEY 
 BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins> Money should no more be "everything" than the inch or the ounce should be. Everything should be <ins>CONSPICUOUS MARKETS!!!, CONSPICUOUS INVESTMENT OPPORTUNITIES!!!, CONSPICUOUS HUMAN NEEDS!!!, RAISING THE STANDARD OF LIVING!!!</ins>***
-
+>> ### ***"A nation loses the place which it once held in the world's history <ins>WHEN MONEY BECOMES MORE PRECIOUS TO THE SOULS OF ITS PEOPLE THAN HONESTY AND HONOR.</ins> A universal, widespread greed of gain is the forewarning of some great upheaval and disaster. Civilizations have been born and completed and then forgotten again and again. There is nothing new under the sun."<br>- <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap XIV. The Origin of Savagery#***
 ## ***Everything's <ins>PLAIN AS DAY!!!!!</ins>, IN A LEGITIMATE FINANCIAL SYSTEM!!<br>Prices are not an issue, no financial complexity, only <ins>PLAIN INFORMATION ABOUT HUMAN NEEDS, VALUE MEASUREMENTS, ALL THAT PROSPEROUS PEOPLE NEED.</ins><br><br>Illegitimate prices (bad merchandise) is ALL THERE IS TO "INFLATION", "DEFLATION", FINANCIAL COMPLEXITY, NO SIGNS OF LIFE (HUMAN NEEDS, HOMELESS PEOPLE) ALLOWED, TRIPLE-REVERSE UPSIDE-DOWN MORTGAGES.***
 
 # ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31a. The next lost continent???¹ (NOTHING VENTURED).***
