@@ -660,3 +660,6 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***Part 31c. NOTHING LEFT.***
 ## ***<ins>Destroy CAPITAL!!!</ins>***
 ## ***"Financing" <ins>minus what children are taught</ins> - "financing" resource waste, BAD MERCHANDISE!!!<br><br>Grants, programs, etc, etc doling out ENDLESS AMOUNTS OF <ins>UNEARNED (HOMELESS) DOLLARS!!!</ins> No wonder that product <ins>doesn't work!!!, doesn't last!!!, doesn't serve its intended purpose!!!, is pure waste of resources!!!, why did anyone bother to make it???!!!</ins> No wonder IT'S <ins>BAD MERCHANDISE!!!!!</ins><br><br>Capital starts with the firsthand <ins>KNOWLEDGE OF HUMAN NEEDS!!!!!, OF MONEY'S VALUE!!!!!</ins>, that only comes, as children are taught, from <ins>EARNING!!! money.</ins><br><br>Nothing ventured, NOTHING EARNED!!!, nothing for prices, nothing to save, NOTHING FOR CAPITAL!!! - nothing left but BAD MERCHANDISE!!!***
+
+3.06
+# ***THE HOMELESS (PRICE-DESTROYING, CURRENCY SPECULATING INSTEAD) DOLLAR. Part 32. The high cost of no prices (of currency speculation).***
