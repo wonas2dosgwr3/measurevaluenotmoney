@@ -663,3 +663,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.06
 # ***THE HOMELESS (PRICE-DESTROYING, CURRENCY SPECULATING INSTEAD) DOLLAR. Part 32. The high cost of no prices (of currency speculation).***
+## *** •NEEDLESS PROBLEMS!!! galore!!! Human needs (EARNING!!! money, the biggest threat to homeless dollars) ignored/avoided in favor of currency speculation.
