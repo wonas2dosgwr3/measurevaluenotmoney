@@ -662,7 +662,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***"Financing" <ins>minus what children are taught</ins> - "financing" resource waste, BAD MERCHANDISE!!!<br><br>Grants, programs, etc, etc doling out ENDLESS AMOUNTS OF <ins>UNEARNED (HOMELESS) DOLLARS!!!</ins> No wonder that product <ins>doesn't work!!!, doesn't last!!!, doesn't serve its intended purpose!!!, is pure waste of resources!!!, why did anyone bother to make it???!!!</ins> No wonder IT'S <ins>BAD MERCHANDISE!!!!!</ins><br><br>Capital starts with the firsthand <ins>KNOWLEDGE OF HUMAN NEEDS!!!!!, OF MONEY'S VALUE!!!!!</ins>, that only comes, as children are taught, from <ins>EARNING!!! money.</ins><br><br>Nothing ventured, NOTHING EARNED!!!, nothing for prices, nothing to save, NOTHING FOR CAPITAL!!! - nothing left but BAD MERCHANDISE!!!***
 
 3.06
-# ***THE HOMELESS (PRICE-DESTROYING, CURRENCY SPECULATING INSTEAD) DOLLAR. Part 32. The high cost of no prices (of currency speculation).***<br><br>
+# ***THE HOMELESS (PRICE-DESTROYING, CURRENCY SPECULATING INSTEAD) DOLLAR. Part 32. The high cost of no prices (of currency speculation).***
+
 ## *** •NEEDLESS PROBLEMS!!! galore!!! Human needs (EARNING!!! money, the biggest threat to homeless dollars) ignored/avoided in favor of currency speculation.***<br><br>***• UNAFFORDABLE everything!!!<br>NO PRICES IS OVERPRICED!!!, IS BAD MERCHANDISE!!!, IS - NO COMMERCE!!!!!***<br><br>***• INSECURITY!!! - HOMELESS!!!!!***<br><br>***Homeless dollars <ins>CAMPED OUT EVERYWHERE!!!!!, BAITING SPECULATORS!!!, SMOTHERING EVERYTHING ELSE (HUMAN NEEDS)!!!</ins>***<br><br>***Exorbitant housing cost that only RESELLERS!!! (CURRENCY SPECULATORS!!!) will pay.<br>That buys <ins>THE OPPOSITE!!! - A PIRATE MAGNET!!!, NOT A HOME!!! Jackpots for resellers!!!, NOT A HOME!!!***</ins><br><br><ins>* **Living in A BUBBLE!!!, NOT A HOME!!!</ins>***
 
 
