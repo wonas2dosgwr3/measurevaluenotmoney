@@ -666,4 +666,5 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## ***• <ins>NEEDLESS PROBLEMS!!! galore!!!</ins><br>Human needs (EARNING!!! money, the biggest threat to homeless dollars) ignored/avoided in favor of currency speculation.***<br><br>***• <ins>UNAFFORDABLE everything!!!</ins><br>NO PRICES IS OVERPRICED!!!, IS BAD MERCHANDISE!!!, IS - NO COMMERCE!!!!!***<br><br>***• <ins>INSECURITY!!! - HOMELESS!!!!!</ins>***<br><br>***Homeless dollars <ins>CAMPED OUT EVERYWHERE!!!!!, BAITING SPECULATORS!!!, SMOTHERING EVERYTHING ELSE (HUMAN NEEDS)!!!</ins>***<br><br>***Exorbitant housing cost that only RESELLERS!!! (CURRENCY SPECULATORS!!!) will pay.<br>That buys <ins>THE OPPOSITE!!! - A PIRATE MAGNET!!!, NOT A HOME!!! Jackpots for resellers!!!, NOT A HOME!!!</ins><br><br><ins>Living in A BUBBLE!!!, NOT A HOME!!!</ins>***
 
-
+3.07
+# ***THE HOMELESS (SAFETY-DESTROYING) DOLLAR. Part 33. Goods and services for a bubble makes them part of it - makes a bigger bubble. Goods and services LESS SAFE, less likely to come to market, OVERPRICED, bad merchandise compared to  SAFETY FOR SAFETY, goods and services in exchange for SAFETY, FOR A STANDARD OF MEASUREMENT INSTEAD OF UNCERTAINTY.***
