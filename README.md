@@ -641,6 +641,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## ***Everything's <ins>PLAIN AS DAY!!!!!</ins>, IN A LEGITIMATE FINANCIAL SYSTEM!!<br>Prices are not an issue, no financial complexity, only <ins>PLAIN INFORMATION ABOUT HUMAN NEEDS, VALUE MEASUREMENTS, ALL THAT PROSPEROUS PEOPLE NEED.</ins><br><br>Illegitimate prices (bad merchandise) is ALL THERE IS TO "INFLATION", "DEFLATION", FINANCIAL COMPLEXITY, NO SIGNS OF LIFE (HUMAN NEEDS, HOMELESS PEOPLE) ALLOWED, TRIPLE-REVERSE UPSIDE-DOWN MORTGAGES.***
 
+3.04d
+
+Everything's going up BECAUSE UNCERTAINTY CONTINUES!!! <ins>NO MANAGEMENT OF UNCERTAINTY STOPS IT!!!, THE ONLY THING THAT MATTERS,</ins> STOPS THE LIVING IN A NEEDLESS BUBBLE INSTEAD OF A HOME.
+
 3.05a
 # ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31a. The next lost continent???¹ (NOTHING VENTURED).***
 ## ***<ins>OUTPUT</ins> - SOMETHING VENTURED!!!, GOOD WILL!!!, MEETING HUMAN NEEDS!!!, COMMITTMENT TO COMMERCE!!!, TO SAFETY!!!, TO HOMES!!!<br><br>Not OSTENTATION!!!, gold and silver for ornament² instead of for money; not HOARDING GOLD AND SILVER!!!, money measurers sitting on it, paranoid of letting gold and silver out of their hands, of letting them BE MONEY!!!, CIRCULATE!!!, well knowing the BAD MERCHANDISE THEY'RE PEDDLING!!! will never bring gold and silver back to them; not HOW BIG!!! the pile of homeless dollars is; not DIVERTING MONEY IN  ANY WAY FROM <ins>OUTPUT</ins>, FROM SOMETHING VENTURED, FROM SERVING HUMAN NEEDS!!!; NOT ANY ADORNMENT, NOT ANYTHING <ins>PUT ON</ins>!!!!!***<br><br>
@@ -667,6 +671,6 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***• <ins>NEEDLESS PROBLEMS!!! galore!!!</ins><br>Human needs (EARNING!!! money, the biggest threat to homeless dollars) ignored/avoided in favor of currency speculation.***<br><br>***• <ins>UNAFFORDABLE everything!!!</ins><br>NO PRICES IS OVERPRICED!!!, IS BAD MERCHANDISE!!!, IS - NO COMMERCE!!!!!***<br><br>***• <ins>INSECURITY!!! - HOMELESS!!!!!</ins>***<br><br>***Homeless dollars <ins>CAMPED OUT EVERYWHERE!!!!!, BAITING SPECULATORS!!!, SMOTHERING EVERYTHING ELSE (HUMAN NEEDS)!!!</ins>***<br><br>***Exorbitant housing cost that only RESELLERS!!! (CURRENCY SPECULATORS!!!) will pay.<br>That buys <ins>THE OPPOSITE!!! - A PIRATE MAGNET!!!, NOT A HOME!!! Jackpots for resellers!!!, NOT A HOME!!!</ins><br><br><ins>Living in A BUBBLE!!!, NOT A HOME!!!</ins>***
 
 3.07
-# ***THE HOMELESS (SAFETY-DESTROYING) DOLLAR. Part 33. Goods and services for a bubble makes them part of it - makes a bigger bubble. Goods and services LESS SAFE, less likely to come to market, OVERPRICED, bad merchandise compared to  SAFETY FOR SAFETY, goods and services in exchange for SAFETY, FOR A STANDARD OF MEASUREMENT INSTEAD OF UNCERTAINTY.***
+# ***THE HOMELESS (SAFETY-DESTROYING) DOLLAR. Part 33. Goods and services for a bubble makes them part of it - makes a bigger bubble. Goods and services LESS SAFE, less likely to come to market, OVERPRICED, bad merchandise compared to  <ins>SAFETY FOR SAFETY, goods and services in exchange for SAFETY, FOR A STANDARD OF MEASUREMENT INSTEAD OF UNCERTAINTY.</ins>***
 
-## ***Safety for safety ,STARTS WITH HOMES!!!, MINIMIZES LAND COST, PROLIFERATES LAND-HOME OWNERSHIP.<br><br>The first transaction, the first thing ventured: SAFETY FOR SAFETY. YOUR HOME AND MY HOME. Without it no others can happen; life in a NEEDLESS BUBBLE INSTEAD OF A MET HUMAN NEED, A HOME.***
+## ***Safety for safety ,<ins>STARTS WITH HOMES!!!, MINIMIZES LAND COST, PROLIFERATES LAND-HOME OWNERSHIP.</ins>***<br><br>***The first transaction, the first thing ventured: <ins>SAFETY FOR SAFETY. YOUR HOME AND MY HOME.</ins> Without it no others can happen; life in a <ins>NEEDLESS BUBBLE INSTEAD OF A MET HUMAN NEED, A HOME.</ins>***
