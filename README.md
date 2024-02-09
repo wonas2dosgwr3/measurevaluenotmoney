@@ -669,4 +669,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.07
 # ***THE HOMELESS (SAFETY-DESTROYING) DOLLAR. Part 33. Goods and services for a bubble makes them part of it - makes a bigger bubble. Goods and services LESS SAFE, less likely to come to market, OVERPRICED, bad merchandise compared to  SAFETY FOR SAFETY, goods and services in exchange for SAFETY, FOR A STANDARD OF MEASUREMENT INSTEAD OF UNCERTAINTY.***
 
-## ***Safety for safety ,STARTS WITH HOMES!!!, MINIMIZES LAND COST, PROLIFERATES LAND-HOME OWNERSHIP.<br><br>The first transaction, the first thing ventured: SAFETY FOR SAFETY. YOUR HOME AND MY HOME. Without it no others can happen; life in a NEEDLESS BUBBLE INSTEAD OF A MET HUMAN NEED, A HOME.
+## ***Safety for safety ,STARTS WITH HOMES!!!, MINIMIZES LAND COST, PROLIFERATES LAND-HOME OWNERSHIP.<br><br>The first transaction, the first thing ventured: SAFETY FOR SAFETY. YOUR HOME AND MY HOME. Without it no others can happen; life in a NEEDLESS BUBBLE INSTEAD OF A MET HUMAN NEED, A HOME.***
