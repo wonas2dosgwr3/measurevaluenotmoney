@@ -512,7 +512,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***THE HOMELESS DOLLAR. Part 25. DOMUM AEDIFICO (I build a house). TE SENTENTIAM ROGO (I ask you your opinion).***
 ## ***Homeowners and fine-tuning their opinions is all the gold standard lives for. Resource use OPTIMIZED, care of the earth OPTIMIZED, NO ENVIRONMENTAL MOVEMENT.<br><br>Donald Trump's "gold standard", a confetti cloud of HOT-AIR POWERED (WHO CAN TELL THE BIGGEST WHOPPER!!!), <ins>HOMELESS GOLD DOLLARS!!!, indistinguishable from homeless dollars (HIGH VALUE EQUALS LOW VALUE!!!, NO DIFFERENCE BETWEEN NIGHT AND DAY!!!, BETWEEN BLACK AND WHITE!!!), DOESN'T EXIST!!!</ins> Gold dollars always have a home, always demand personal responsibility and what children are taught, EARNING!!! money, never sabotage homeowners and their opinions.<br><br>Confetti cloud sportsmen¹, Donald Trumps, their <ins>HOT-AIR BALLOONS BURSTING IN AIR!!!, schemes for sabotaging homeowners and their opinions, sabotaging human needs.</ins>***
 > ***¹ Currency speculators.***
+
 2.32
+
 # ***THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 ## ***Low value gets WORSE!!!, <ins>bad merchandise (non-competitive, over-priced) becomes " affordable "</ins> on the installment plan. Calling the payment maker <ins>"owner"</ins> clinches it.***
 ***Resource waste into the <ins>STRATOSPHERE!!!!! AS THE FLOODGATES OPEN!!!!!</ins> putting homeless dollars into "circulation" - hot air balloons and the confetti cloud!!!!!***
