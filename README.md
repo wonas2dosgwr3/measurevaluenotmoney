@@ -457,7 +457,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > # ***"Easy come, easy go"***<br>
 >> ## ***- Homeless fellow commenting about a tent that hadn't worked as well as he hoped.¹***<br>
 > ## ***More wisdom than anyone in the government has???***<br>***More wisdom than any money measurer has.***<br><br>***<ins>Costs remain no matter what, inalienable private property!!!!!</ins>, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins>² instead of coming to market, poverty returning, returning barbarism.***<br>
-> ***¹ wonas2dosgwr3 personal encounter.***<br>
+> ***¹ wonas2dosgwr3 personal encounter.***<br><br>
 > ***² <ins>PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins><br><br>
 2.20
 # ***THE HOMELESS DOLLAR. Part 18. Freedom is YOUR HOME. Your home is FREEDOM.***<br><br>***Life, liberty, and the pursuit of happiness: <ins>YOUR HOME</ins>.***<br><br>***HOMES the <ins>only access to money</ins>. FREEDOM the <ins>only access to money</ins>.***<br><br>***Private property will ever have its home, its freedom, its power to ENRICH OTHER HOMES, to DESERT AND DESTROY the Roman Empire and all other <ins>TRESPASSERS!!!</ins>***<br><br>***When <ins>MONEY IS EVERYTHING</ins>: EARNING IT <ins>ISN'T</ins>, FREEDOM <ins>ISN'T</ins>, HOMES <ins>AREN'T</ins>, HUMAN NEEDS <ins>AREN'T</ins>.***<br>
@@ -520,9 +520,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ***The HALF-LIFE of homeless dollars is SO SHORT!!!, they barely have time to change hands at all, GROCERIES is pretty much the first and last use, then they're <ins>RECYCLING BACK INTO THE HUMAN LABOR VACUUM!!!¹, HOUSE (LAND) "PAYMENTS", NO TRANSACTION AT ALL!!!²</ins>***
 
 ***The money measurers all the while <ins>MINDING OTHER PEOPLE'S BUSINESS WITH ALL THEIR MIGHT!!!, THEIR ONLY BEHAVIOR OPTION!!!</ins>, creating bubbles, searching in vain for <ins>stability where none can ever be.</ins> MINDING THEIR OWN BUSINESS WOULD BE <ins>HUMAN LABOR, SPECIALIZING, COMMITTMENT TO COMMERCE!!!, TO ABSOLUTE HOME-LAND OWNERSHIP FOR EVERYONE!!!, <ins>TO SAVING MONEY!!!!!</ins>, GIVING MONEY A HOME!!!!!</ins> - incompatible with homeless dollars.***<br>
-> ***"Take it home right away***<br>
+ vo> ***"Take it home right away***<br>
       ***You've got three years to pay"***
->> ***- song lyric - "Sin City", R. B. Scott, A. Young, M. Young. 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
+>> ***- song lyric - "Sin City", Chris Hillman and Gram Parsons (see Chris Hillman at the Library of Congress video for extended discussion). 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
 
 > ***¹ Land is no product of human labor, neither are homeless dollars.***<br>
 
