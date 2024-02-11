@@ -458,8 +458,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > # ***"Easy come, easy go"***<br>
 >> ## ***- Homeless fellow commenting about a tent that hadn't worked as well as he hoped.¹***<br>
 > ## ***More wisdom than anyone in the government has???***<br>***More wisdom than any money measurer has.***<br><br>***<ins>Costs remain no matter what, inalienable private property!!!!!</ins>, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins>² instead of coming to market, poverty returning, returning barbarism.***<br>
-> ***¹ wonas2dosgwr3 personal encounter.<br>
-> ² <ins>PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins><br><br>
+> ***¹ wonas2dosgwr3 personal encounter.***<br>
+> ***² <ins>PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins><br><br>
 
 2.20
 # ***THE HOMELESS DOLLAR. Part 18. Freedom is YOUR HOME. Your home is FREEDOM.***<br><br>***Life, liberty, and the pursuit of happiness: <ins>YOUR HOME</ins>.***<br><br>***HOMES the <ins>only access to money</ins>. FREEDOM the <ins>only access to money</ins>.***<br><br>***Private property will ever have its home, its freedom, its power to ENRICH OTHER HOMES, to DESERT AND DESTROY the Roman Empire and all other <ins>TRESPASSERS!!!</ins>***<br><br>***When <ins>MONEY IS EVERYTHING</ins>: EARNING IT <ins>ISN'T</ins>, FREEDOM <ins>ISN'T</ins>, HOMES <ins>AREN'T</ins>, HUMAN NEEDS <ins>AREN'T</ins>.***<br>
@@ -528,9 +528,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
       ***You've got three years to pay"***
 >> ***- song lyric - "Sin City", Chris Hillman and Gram Parsons (see Chris Hillman at the Library of Congress video for extended discussion). 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
 
-> ***¹ Land is no product of human labor, neither are homeless dollars.<br>
+> ***¹ Land is no product of human labor, neither are homeless dollars.***<br>
 
-> ² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor<,/ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
+> ***² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor<,/ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
 2.33a
 # ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation".***
