@@ -458,7 +458,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > # ***"Easy come, easy go"***<br>
 >> ## ***- Homeless fellow commenting about a tent that hadn't worked as well as he hoped.¹***<br>
 > ## ***More wisdom than anyone in the government has???***<br>***More wisdom than any money measurer has.***<br><br>***<ins>Costs remain no matter what, inalienable private property!!!!!</ins>, ignore them or not, measure them or not. Measuring money is sure to make costs harder, not easier. Easy money, abnormal costs moving to unaffordable, <ins>private property STAYING HOME!!!!!</ins>² instead of coming to market, poverty returning, returning barbarism.***<br>
-> ***¹ wonas2dosgwr3 personal encounter.***<br>
+> ***¹ wonas2dosgwr3 personal encounter.***<br><br>
 > ***² <ins>PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins><br><br>
 
 2.20
@@ -528,7 +528,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
       ***You've got three years to pay"***
 >> ***- song lyric - "Sin City", Chris Hillman and Gram Parsons (see Chris Hillman at the Library of Congress video for extended discussion). 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
 
-> ***¹ Land is no product of human labor, neither are homeless dollars.***<br>
+> ***¹ Land is no product of human labor, neither are homeless dollars.***<br><br>
 
 > ***² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor<,/ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
