@@ -643,8 +643,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.04d
 
-## ***Everything's going up BECAUSE <ins>NEEDLESS UNCERTAINTY</ins> CONTINUES!!!!!***<br>***<ins>NO MANAGEMENT OF <ins>NEEDLESS UNCERTAINTY</ins> MATTERS!!!!!. <ins>ACCURATE MEASUREMENTS!!!!!</ins> is what matters!!!!!***br><br>***23,000 plus "employees" at resource-waste headquarters¹ (earth-destruction headquarters), the Federal Reserve, "employed" in DENYING THE NATION <ins>ACCURATE MEASUREMENT!!!!!</ins> DENYING IN VAIN <ins>THE EXISTENCE OF INALIENABLE RIGHTS AND OTHER PEOPLE'S BUSINESS.</ins>***
-
+## ***Everything's going up BECAUSE <ins>NEEDLESS UNCERTAINTY</ins> CONTINUES!!!!!***<br><br>***<ins>NO MANAGEMENT OF <ins>NEEDLESS UNCERTAINTY</ins> MATTERS!!!!!. <ins>ACCURATE MEASUREMENTS!!!!!</ins> is what matters!!!!!***br><br>***23,000 plus "employees" at resource-waste headquarters¹ (earth-destruction headquarters), the Federal Reserve, "employed" in DENYING THE NATION <ins>ACCURATE MEASUREMENT!!!!!</ins> OF VALUE, DENYING IN VAIN <ins>THE EXISTENCE OF INALIENABLE RIGHTS AND OTHER PEOPLE'S BUSINESS.</ins>***
+>> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth
+By Howard Schneider
+September 22, 20233:13 AM PDTUpdated 5 months ago"
 3.05a
 # ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31a. The next lost continent???¹ (NOTHING VENTURED).***
 ## ***<ins>OUTPUT</ins> - SOMETHING VENTURED!!!, GOOD WILL!!!, MEETING HUMAN NEEDS!!!, COMMITTMENT TO COMMERCE!!!, TO SAFETY!!!, TO HOMES!!!<br><br>Not OSTENTATION!!!, gold and silver for ornament² instead of for money; not HOARDING GOLD AND SILVER!!!, money measurers sitting on it, paranoid of letting gold and silver out of their hands, of letting them BE MONEY!!!, CIRCULATE!!!, well knowing the BAD MERCHANDISE THEY'RE PEDDLING!!! will never bring gold and silver back to them; not HOW BIG!!! the pile of homeless dollars is; not DIVERTING MONEY IN  ANY WAY FROM <ins>OUTPUT</ins>, FROM SOMETHING VENTURED, FROM SERVING HUMAN NEEDS!!!; NOT ANY ADORNMENT, NOT ANYTHING <ins>PUT ON</ins>!!!!!***<br><br>
