@@ -643,7 +643,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.04d
 
-## ***Everything's going up BECAUSE UNCERTAINTY CONTINUES!!!***<br>***<ins>NO MANAGEMENT OF UNCERTAINTY STOPS IT!!!, THE ONLY THING THAT MATTERS,</ins> STOPS THE LIVING IN A NEEDLESS BUBBLE INSTEAD OF A HOME.***
+## ***Everything's going up BECAUSE <ins>NEEDLESS UNCERTAINTY</ins> CONTINUES!!!!!***<br>***<ins>NO MANAGEMENT OF <ins>NEEDLESS UNCERTAINTY</ins> MATTERS!!!!!. <ins>ACCURATE MEASUREMENTS!!!!!</ins> is what matters!!!!!***br><br>***23,000 plus "employees" at resource-waste headquarters¹ (earth-destruction headquarters), the Federal Reserve, "employed" in DENYING THE NATION <ins>ACCURATE MEASUREMENT!!!!!</ins> DENYING IN VAIN <ins>THE EXISTENCE OF INALIENABLE RIGHTS AND OTHER PEOPLE'S BUSINESS.</ins>***
 
 3.05a
 # ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31a. The next lost continent???¹ (NOTHING VENTURED).***
