@@ -643,7 +643,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.04d
 
-## ***Everything's going up BECAUSE <ins>NEEDLESS UNCERTAINTY</ins> CONTINUES!!!!!***<br><br>***NO MANAGEMENT OF <ins>NEEDLESS UNCERTAINTY</ins> MATTERS!!!!!.*** ***<ins>ACCURATE MEASUREMENTS!!!!!</ins> is what matters!!!!!***<br><br>***23,000 plus "employees" at resource-waste headquarters¹ (earth-destruction headquarters), the Federal Reserve, "employed" in DENYING THE NATION <ins>ACCURATE MEASUREMENT!!!!!</ins> OF VALUE, DENYING IN VAIN <ins>THE EXISTENCE OF INALIENABLE RIGHTS AND OTHER PEOPLE'S BUSINESS.</ins>***
+## ***Everything's going up BECAUSE <ins>NEEDLESS UNCERTAINTY</ins> CONTINUES!!!!!***<br><br>***NO MANAGEMENT OF <ins>NEEDLESS UNCERTAINTY</ins> MATTERS!!!!!.***<br><br> ***<ins>ACCURATE MEASUREMENTS!!!!!</ins> is what matters!!!!!***<br><br>***23,000 plus "employees" at resource-waste headquarters¹ (earth-destruction headquarters), the Federal Reserve, "employed" in DENYING THE NATION <ins>ACCURATE MEASUREMENT!!!!!</ins> OF VALUE, DENYING IN VAIN <ins>THE EXISTENCE OF INALIENABLE RIGHTS AND OTHER PEOPLE'S BUSINESS.</ins>***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
 
