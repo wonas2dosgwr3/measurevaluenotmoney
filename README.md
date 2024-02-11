@@ -526,7 +526,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
       ***You've got three years to pay"***
 >> ***- song lyric - "Sin City", Chris Hillman and Gram Parsons (see Chris Hillman at the Library of Congress video for extended discussion). 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
 
-> ***¹ Land is no product of human labor, neither are homeless dollars.***<br>
+> ***¹ Land is no product of human labor, neither are homeless dollars.***<br><br
 
 > ***² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor<,/ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
