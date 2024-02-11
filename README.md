@@ -531,7 +531,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 > ### ***¹ Land is no product of human labor, neither are homeless dollars.***<br><br>
 
-> ### ***² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor<,/ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
+> ### ² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars). <ins>No human labor<,/ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
 2.33a
 # ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation".***
