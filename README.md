@@ -630,7 +630,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.03a
 # ***THE HOMELESS (HIGH VISIBILITY) DOLLAR. Part 29. Money never changes, everything else in the marketplace does, how much and for better or worse can always be learned from money.***
-## ***Money the harmless standard of measurement shuns resource waste, leaving resource waste measured "low value".***<br><br>***MONEY WASTE, on the other hand, CAN'T BE SEPARATED FROM RESOURCE WASTE!!!, AND IS FAR MORE VISIBLE THAN MONEY THE MERE STANDARD OF MEASUREMENT. Homeless dollars are entirely a resource wasting and money wasting scheme, HIGHLY VISIBLE, inviting the delusion of money being "EVERYTHING", ALL THAT MATTERS, BLAMING RESOURCE WASTE ON THE HARMLESS STANDARD OF MEASUREMENT MONEY, instead of on MONEY WASTE!!!<br><br>***
+## ***Money the harmless standard of measurement shuns resource waste, leaving resource waste measured "low value".***<br><br>***MONEY WASTE, on the other hand, CAN'T BE SEPARATED FROM RESOURCE WASTE!!!, AND IS FAR MORE VISIBLE THAN MONEY THE MERE STANDARD OF MEASUREMENT. Homeless dollars are entirely a resource wasting and money wasting scheme, HIGHLY VISIBLE, inviting the delusion of money being "EVERYTHING", ALL THAT MATTERS, BLAMING RESOURCE WASTE ON THE HARMLESS STANDARD OF MEASUREMENT MONEY, instead of on MONEY WASTE!!!***<br><br>
 
 3.03b
 
