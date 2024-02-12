@@ -526,9 +526,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ***The money measurers all the while <ins>MINDING OTHER PEOPLE'S BUSINESS WITH ALL THEIR MIGHT!!!, THEIR ONLY BEHAVIOR OPTION!!!</ins>, creating bubbles, searching in vain for <ins>stability where none can ever be.</ins> MINDING THEIR OWN BUSINESS WOULD BE <ins>HUMAN LABOR, SPECIALIZING, COMMITTMENT TO COMMERCE!!!, TO ABSOLUTE HOME-LAND OWNERSHIP FOR EVERYONE!!!, <ins>TO SAVING MONEY!!!!!</ins>, GIVING MONEY A HOME!!!!!</ins> - incompatible with homeless dollars.***<br><br>
 >> ***"Take it home right away***<br>
-      ***You've got three years to pay"***
+      ***You've got three years to pay"
 
->> ***- song lyric - "Sin City", Chris Hillman and Gram Parsons (see Chris Hillman at the Library of Congress video, Oct 16,2009, for extended discussion). 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins><br><br> 
+>> - song lyric - "Sin City", Chris Hillman and Gram Parsons (see Chris Hillman at the Library of Congress video, Oct 16,2009, for extended discussion). 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins><br><br> 
 
 > ### ¹ Land is no product of human labor, neither are homeless dollars.***<br><br>
 
