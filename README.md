@@ -682,3 +682,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***THE HOMELESS (SAFETY-DESTROYING) DOLLAR. Part 33. Goods and services for a bubble makes them part of it - makes a bigger bubble. Goods and services LESS SAFE, less likely to come to market, OVERPRICED, bad merchandise compared to  <ins>SAFETY FOR SAFETY, goods and services in exchange for SAFETY, FOR A STANDARD OF MEASUREMENT INSTEAD OF UNCERTAINTY.</ins>***
 
 ## ***Safety for safety ,<ins>STARTS WITH HOMES!!!, MINIMIZES LAND COST, PROLIFERATES LAND-HOME OWNERSHIP.</ins>***<br><br>***The first transaction, the first thing ventured: <ins>SAFETY FOR SAFETY. YOUR HOME AND MY HOME.</ins> Without it no others can happen; life in a <ins>NEEDLESS BUBBLE INSTEAD OF A MET HUMAN NEED, A HOME.</ins>***
+
+3.08
+
+# ***THE HOMELESS (MIDAS TOUCH, BUBBLE-TRAFFICKING) DOLLAR. Part 34. Makes <ins>everything it touches HOMELESS</ins> - A BUBBLE, UNCERTAIN.***
+## ***UNCERTAIN goods and services.<br>MONEY IS EVERYTHING!!!!! EVERYTHING IS MONEY!!!!!<br><br><ins>CAN'T EAT GOLD!!!!!</ins> Goods and services is THE WHOLE IDEA!!!!!, meeting human needs, commerce, EVERYBODY WINNING!!!!!; GAINING, NOT LOSING, resources. Not uncertainty, not bubbles, not winning at the expense of losers; NOT MONEY!!!!! - NOT GREED!!!!!
