@@ -532,7 +532,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***- song lyric - "Sin City", Chris Hillman and Gram Parsons (see Chris Hillman at the Library of Congress video, Oct 16,2009, for extended discussion). 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
 
 > ### ***¹ Land is no product of human labor, neither are homeless dollars.***
-> ###² <ins>No human labor***</ins> ***(land) for*** <ins>***no human labor***</ins> ***(homeless dollars).***<br><ins>***No human labor***</ins> ***(homeless dollars) presuming in vain to get rich from*** <ins>***no human labor***</ins>*** (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
+> ###² <ins>No human labor</ins> ***(land) for*** <ins>***no human labor***</ins> ***(homeless dollars).***<br><ins>***No human labor***</ins> ***(homeless dollars) presuming in vain to get rich from*** <ins>***no human labor***</ins>*** (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
 2.33a
 # ***THE HOMELESS DOLLAR. Part 27. Bubbles with a facelift: "Inflation".***
