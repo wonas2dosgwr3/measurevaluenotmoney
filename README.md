@@ -686,4 +686,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.08
 
 # ***THE HOMELESS (MIDAS TOUCH, BUBBLE-TRAFFICKING) DOLLAR. Part 34. Makes <ins>everything it touches HOMELESS</ins> - A BUBBLE, UNCERTAIN.***
-## ***UNCERTAIN goods and services.<br>MONEY IS EVERYTHING!!!!! EVERYTHING IS MONEY!!!!!<br><br><ins>CAN'T EAT GOLD!!!!!</ins> Goods and services is THE WHOLE IDEA!!!!!, meeting human needs, commerce, EVERYBODY WINNING!!!!!; GAINING, NOT LOSING, resources. Not uncertainty, not bubbles, not winning at the expense of losers; NOT MONEY!!!!! - NOT GREED!!!!!
+## ***UNCERTAIN goods and services.<br>MONEY IS EVERYTHING!!!!! EVERYTHING IS MONEY!!!!!<br><br><ins>CAN'T EAT GOLD!!!!!</ins> Goods and services is THE WHOLE IDEA!!!!!, meeting human needs, commerce, EVERYBODY WINNING!!!!!; GAINING, NOT LOSING, resources. Not uncertainty, not bubbles, not winning at the expense of losers; NOT MONEY!!!!! - NOT GREED!!!!!***
