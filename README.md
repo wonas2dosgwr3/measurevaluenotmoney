@@ -461,6 +461,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 > ### ***¹ wonas2dosgwr3 personal encounter.<br><br>² <ins>***PRIVATE PROPERTY WILL EVER HAVE ITS HOME!!!!!***</ins>
 
+
 2.20
 
 # ***THE HOMELESS DOLLAR. Part 18. Freedom is YOUR HOME. Your home is FREEDOM.***<br><br>***Life, liberty, and the pursuit of happiness: <ins>YOUR HOME</ins>.***<br><br>***HOMES the <ins>only access to money</ins>. FREEDOM the <ins>only access to money</ins>.***<br><br>***Private property will ever have its home, its freedom, its power to ENRICH OTHER HOMES, to DESERT AND DESTROY the Roman Empire and all other <ins>TRESPASSERS!!!</ins>***<br><br>***When <ins>MONEY IS EVERYTHING</ins>: EARNING IT <ins>ISN'T</ins>, FREEDOM <ins>ISN'T</ins>, HOMES <ins>AREN'T</ins>, HUMAN NEEDS <ins>AREN'T</ins>.***<br>
