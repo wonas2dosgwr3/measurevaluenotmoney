@@ -632,8 +632,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.03b
 
-***Supreme Court Justice William O. Douglas throughout his most interesting natural history book <ins>My Wilderness: The Pacific West</ins> laments the damage threatening the wilderness by "money"  [formatting added]:***
+***Supreme Court Justice¹ William O. Douglas throughout his most interesting natural history book <ins>My Wilderness: The Pacific West</ins> laments the damage threatening the wilderness by "money"  [formatting added]:***
 > ## ***"The loggers and road builders look at every lovely ridge or basin for QUICK PROFITS. They take heavily from the forests, sometimes destroying everything." (Chap V. Mount Adams).<br><br>"Lumber interests would be served; the man who built the road would make A FORTUNE ... That act of desecration would prove that the powers that be downgrade VALUES THAT CANNOT BE CONVERTED INTO DOLLAR SIGNS." (Chap IX. Glacier Peak).<br><br>"These days people think more and more IN TERMS OF DOLLARS. By those standards all of our wilderness will be chewed up by machines. Yet <ins>DOLLARS DO NOT EXPRESS ALL THE VALUES WHICH WE AMERICANS CHERISH.</ins> ... An attempt to put DOLLAR SIGNS on these natural wonders is, I thought, a mark ... of our great decline. We deal with <ins>VALUES THAT NO DOLLARS CAN MEASURE."</ins>(Chap IX. Glacier Peak).***<br><br>
+>>> ***1939-1975***
  
 3.04a
 # ***THE HOMELESS DOLLAR. Part 30. "Everything's going up!"¹***
