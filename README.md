@@ -1,4 +1,4 @@
- 1.00 
+1.00 
 measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
@@ -695,4 +695,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.09
 
 ## <br>***High house value is (7)***<br>
-> <ins>***HOME SAFETY.***</ins><br><br>***Measuring value greatly increases home safety, because it GREATLY INCREASES DEPENDENCE ON HOME SAFETY - INVITES MORE MORE VALUE TO MEASURE, SPECIALIZATION.<br><br>Legitimate prices (measured value) INCREASE SAFETY!!!!! The purpose of commerce is to INCREASE SAFETY!!!!!***
+> <ins>***HOME SAFETY.***</ins><br><br>***Measuring value greatly increases home safety, because it <ins>GREATLY INCREASES DEPENDENCE ON HOME SAFETY</ins> - INVITES MORE MORE VALUE TO MEASURE, SPECIALIZATION.<br><br>Legitimate prices (measured value) INCREASE SAFETY!!!!! The purpose of commerce is to INCREASE SAFETY!!!!!***
