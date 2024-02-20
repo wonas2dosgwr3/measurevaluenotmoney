@@ -1,4 +1,4 @@
-1.00 
+ 1.00 
 measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
@@ -11,7 +11,8 @@ measurevaluenotmoney
 ***Evict*** measured money, NOT TENANTS (not VALUE!).
 ***Foreclose*** against measured money, NOT AGAINST PEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
 
-* ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in and destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contras7t, vanished civilizations are monuments to interference with 5 housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
+* ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in an. , 
+d.  destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contras7t, vanished civilizations are monuments to interference with 5 housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
 
 * # ***Land ownership***
 
@@ -693,5 +694,6 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.09
 
-## <br>***High house value is (7)***<br> 
-
+## <br>***High house value is (7)
+>***<br> 
+<ins>***HOME SAFETY.***</ins><br><br>***Measuring value greatly increases home safety, because it GREATLY INCREASES DEPENDENCE ON HOME SAFETY - INVITES MORE MORE VALUE TO MEASURE, SPECIALIZATION.<br><br>Legitimate prices (measured value) INCREASE SAFETY!!!!! The purpose of commerce is to INCREASE SAFETY!!!!!***
