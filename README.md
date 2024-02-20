@@ -691,4 +691,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***THE HOMELESS (MIDAS TOUCH, BUBBLE-TRAFFICKING) DOLLAR. Part 34. Makes <ins>everything it touches HOMELESS</ins> - A BUBBLE, UNCERTAIN, UNSAFE.***
 ## ***UNSAFE goods and services is a <ins>BUBBLE EXPANDING!!!</ins>, relentless gravitation toward <ins>NO GOODS AND SERVICES!!!, TOWARD THE MIDAS TOUCH!!!, NOTHING BUT MONEY LEFT</ins>, NO REASON FOR MONEY, MONEY USELESS!!!***<br><br>***NOTHING AT ALL INDEED LEFT!!! - ANOTHER VANISHED CIVILIZATION!!!***
 
- 
+3.09
+
+## <br>***High house value is (7)***<br> 
+
