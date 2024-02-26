@@ -701,3 +701,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## <br>***High house value is (7)***<br>
 > <ins>***HOME SAFETY.***</ins><br><br>***Measuring value greatly increases home safety, because it <ins>GREATLY INCREASES DEPENDENCE ON HOME SAFETY</ins> - INVITES MORE VALUE TO MEASURE, SPECIALIZATION.<br><br>Legitimate prices (measured value) INCREASE SAFETY!!!!! The purpose of commerce is to INCREASE SAFETY!!!!!***
+
+3.10
+
+
+# ***THE HOMELESS (NON-RECYCLABLE, BUCK-PASSING, POVERTY-RATIONING INSTEAD OF CIRCULATING) DOLLAR. Part 35. Unanimous verdict at poverty headquarters, the Federal Reserve, 23,000 plus THUMBS DOWN!!!, the ENTIRE STAFF!!! refusing to measure value, to give the dollar a HOME!!!!! - RISK ANYTHING OF MINDING THEIR OWN BUSINESS!!!!! on a dollar.***<br><br>***PASSING THE BUCK!!!, MINDING OTHER PEOPLE'S BUSINESS!!!!! is all they will do, useless. Passing the buck to win-lose "investors"¹, who do the same, THE BUCK NEVER STOPPING UNTIL CREDIT RATINGS FAIL!!! and all that's left is the people EARNING!!! dollars, producing the goods and services, the real wealth, the standard of living. 
+
