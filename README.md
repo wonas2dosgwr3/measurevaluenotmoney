@@ -629,9 +629,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 
 3.02
-## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.¹,²***<br>
->> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
->> ***² See "No man's land (the marketplace!!!)." Part 3.***
+## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.¹***<br>
+>> ***¹ See "No man's land (the marketplace!!!)." Part 3.***
 
 3.03a
 # ***THE HOMELESS (HIGH VISIBILITY) DOLLAR. Part 29. Money never changes, everything else in the marketplace does, how much and for better or worse can always be learned from money.***
