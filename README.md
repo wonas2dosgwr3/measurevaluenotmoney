@@ -583,7 +583,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.00g
 ## ***Part 7.***<br>***Paranoid of trespassing!!! In banana republic land! Ricardo Güiraldes for President!!!***
->> #### ***"¡Cuánto había andado ese hombre!<br>En todos los pagos tenía amigos, que lo querían y respetaban, aunque poco tiempo paraba en un punto. Su ascendiente sobre los paisanos era tal que una palabra suya podía arreglar el asunto más embrolla3do. Su popularidad, empero, lejos de servirle parecía fatigarlo después de un tiempo."***
+>> #### ***"¡Cuánto había andado ese hombre!<br>En todos los pagos tenía amigos, que lo querían y respetaban, aunque poco tiempo paraba en un punto. Su ascendiente sobre los paisanos era tal que una palabra suya podía arreglar el asunto más embrollado. Su popularidad, empero, lejos de servirle parecía fatigarlo después de un tiempo."***
 > ### ***<ins>-Yo no me puedo quedar mucho en nenguna estancia- decia -porque en seguida estoy queriendo mandar más que los patrones.-</ins>***
 > [formatting added]
 >
@@ -624,7 +624,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 
 3.02
-## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.²***<br>
+## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.¹,²***<br>
 >> ***¹ No real winners, EVERYBODY LOSING because no commerce.***<br>
 >> ***² See "No man's land (the marketplace!!!)." Part 3.***
 
@@ -701,7 +701,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## <br>***High house value is¹ (7)***<br>
 > <ins>***HOME SAFETY.***</ins><br><br>***Measuring value greatly increases home safety, because it <ins>GREATLY INCREASES DEPENDENCE ON HOME SAFETY</ins> - INVITES MORE VALUE TO MEASURE, SPECIALIZATION.<br><br>Legitimate prices (measured value) INCREASE SAFETY!!!!! The purpose of commerce is to INCREASE SAFETY!!!!!***
->>>> #### ***More at 
+>>>> #### ***More at 1.01, 1.09, 1.16, 1.27.***
 
 3.10
 
