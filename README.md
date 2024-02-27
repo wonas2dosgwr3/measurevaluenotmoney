@@ -28,7 +28,7 @@ measurevaluenotmoney
 1.01c
 ## ***<br>High house value is (3)***<br>
 > ***A CUSTOM HOME. Very CREATIVE. Great CRAFTSMANSHIP. As EARTHQUAKE-, TORNADO-, HURRICANE-RESISTANT as possible. <ins>But never, BEING A SLAVE!!!</ins> The American Dream <ins>is not to be A SLAVE!!!</ins> The Fourth of July <ins>is not to be A SLAVE!!!</ins>***
->>>> #### ***¹ See more at 1.09, 1.16, 1.27, 3.09.***
+>>>> #### ***¹ More at 1.09, 1.16, 1.27, 3.09.***
 
 1.02a
 ## <br>***Real stimulus***<br> 
@@ -78,8 +78,9 @@ measurevaluenotmoney
 [Formatting added. wonas2dosgwr3 personal encounter]<br><br>
 
 1.09
-## ***<br>High house value is (4)***<br>
-> ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***<br>
+## ***<br>High house value is¹ (4)***<br>
+> ***LIVING IN ONE - <ins>WITHOUT INTERFERENCE</ins>!!!!! Ask anyone who's been foreclosed against!!!!!***
+>>>> #### ***¹ More at 1.01, 1.16, 1.27, 3.09.***<br>
 
 1.10
 # <br>***THE HOMELESS DOLLAR. Part 3<br><br><ins>Without an ID,</ins>***<br>
@@ -118,13 +119,14 @@ measurevaluenotmoney
 *No one will take personal responsibility for challenging the dictionary, so the" money measurers TAKE IT FOR GRANTED clamoring for* <ins>***the RIGHT AMOUNT!!! of their dollars with no ID, ANY AMOUNT GOOD FOR NOTHING BUT ROBBERY AND BOGUS PRICES!!!***</ins> *The entire subject of inflation and deflation (the right amount) is WINDMILLS AND SMOKESCREEN, THERE IS* <ins>***NO RIGHT AMOUNT OF ROBBERY AND BOGUS PRICES AND HOMELESS DOLLARS!!!***</ins><br>
 
 1.16
-## <br>***High house value is (5)***<br>
+## <br>***High house value is¹ (5)***<br>
 > <ins>***YOU ABSOLUTELY OWN IT!!!!!***</ins><br><br>
 > <ins>***NO PAYMENTS ABOUT IT!!!!!***</ins><br><br>
 > ***No being too busy making payments to have much time to <ins>LIVE</ins> in "your"????? house, to believe <ins>A MAN'S HOUSE IS HIS CASTLE!!!</ins>***<br><br>
 > <ins>***WHO COULD ASK FOR MORE?????***</ins>`*`<br><br>
 > ***Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins>***<br><br>
 > ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***<br><br> `*` *Currency speculators ask for more, but* <ins>***only get less - enlarged bubbles (more-distorted prices) that only increase and sustain diversion of resources from human needs, impoverishing everyone.***</ins>
+>>>> #### ***¹ More at 1.01, 1.09, 1.27, 3.09.***
 
 1.17
 # <br>***"That hope never died ... "***<br>
@@ -184,13 +186,14 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 >>> ###   ***- <ins>El Lazarillo De Ciegos Caminantes</ins>, Alonzo Carrio de la Vandera, 1773, Capitulo XVII***
 
 1.27
-## <br><br>***High house value is (6)***<br>
+## <br><br>***High house value is¹ (6)***<br>
 > <ins>***LOW HOUSING COST!!!!!***</ins><br><br>
 > ***Nothing to worry about but <ins>LEGITIMATE HOUSING COST</ins>, same as all other prices determined by measuring VALUE!!!***<br><br>
 > ***ACCURATE MEASUREMENTS are of very high value, are for everyone, invite competition, better use of resources, <ins>LOWER COSTS, RISING STANDARD OF LIVING!!!</ins>***<br><br>
 > ***<ins>MEASURED "MONEY" CAN'T STAND FOR HUMAN LABOR!!!, NEITHER CAN LAND!!!</ins> - so the money measurers, seeking cover, make their <ins>MEASURED "MONEY" STAND FOR LAND!!!!! A HUGE PRICE DISTORTION!!!!!</ins> Because without measured "money" LAND (NO <ins>PRODUCT</ins> OF HUMAN LABOR) MUST <ins>SERVE</ins> HUMAN LABOR, <ins>must be affordable</ins>, because <ins>housing must be affordable</ins>, because <ins>exchanging things (commerse) can only happen between homeowners.</ins>***<br><br>
 > ***THE PRICE DISTORTION INVITES THE CURRENCY SPECULATION THE MONEY MEASURERS LIVE FOR, HOUSES ARE FOR SPORTING WITH FOR THEM, NOT MAINLY FOR LIVING IN, NOT FOR GETTING ATTACHED TO, NOT FOR FAMILIES OR ANYONE'S CASTLE.***<br>
->> ***The real estate speculators (currency speculators labeled according to which particular one of the many distorted prices the money measurers cause has attracted them, diverted them from industrious behavior to a game of chance) said repeatedly most people, when they buy a house, only keep it for 5 years, then move to another one.***`*`<br><br>`*` wonas2dosgwr3 personal encounter.<br><br>
+>> ***The real estate speculators (currency speculators labeled according to which particular one of the many distorted prices the money measurers cause has attracted them, diverted them from industrious behavior to a game of chance) said repeatedly most people, when they buy a house, only keepit for 5 years, then move to another one.²***
+>>>> #### ***¹ More at 1.01, 1.09, 1.16, 3.09.***<br><br>***² wonas2dosgwr3 personal encounter.<br><br>
 
 1.28
 #  <br><br>***THE HOMELESS DOLLAR. Part 9. <ins>Cultivating UNCERTAINTY, THE ENTIRE LIFE SUPPORT SYSTEM of measuring MONEY'S VALUE AS ZERO, THE STARTING POINT OF THE MONEY MEASURERS</ins>.<br><br>Monetary policy (CULTIVATING UNCERTAINTY) vs. CERTAINTY (WHAT CHILDREN ARE TAUGHT).<br><br>Human needs (real investment) replaced by CURRENCY SPECULATION (DISTORTED PRICES).<br><br>Vastly outnumbered by MONEY EARNERS (PEOPLE MEASURING MONEY'S VALUE ABOVE ZERO).<br><br>Thin ice at the breaking point.***<br>
