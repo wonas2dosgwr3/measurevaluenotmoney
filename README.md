@@ -126,7 +126,6 @@ measurevaluenotmoney
 > <ins>***WHO COULD ASK FOR MORE?????²***</ins><br><br>
 > ***Want <ins>OTHER PEOPLE TO HAVE LESS - HAVE LOW VALUE?????</ins>***<br><br>
 > ***Fail to realize their absolute ownership is only by the CONSENT AND GOODWILL of other people committed to LIVING BY EXCHANGING THINGS (commerce, specialization), with ITS IMPLICIT SANCTIONING OF HOMES WITHOUT WHICH THEIR CAN BE NO EXCHANGING OF THINGS?????***
->>>> #### *² Currency speculators ask for more, but* <ins>***only get less - enlarged bubbles (more-distorted prices) that only increase and sustain diversion of resources from human needs, impoverishing everyone.***</ins>
 >>>> #### ***¹ More at 1.01, 1.09, 1.27, 3.09.***<br><br>***² Currency speculators ask for more, but* <ins>***only get less - enlarged bubbles (more-distorted prices) that only increase and sustain diversion of resources from human needs, impoverishing everyone.***</ins>
 
 1.17
