@@ -11,15 +11,14 @@ measurevaluenotmoney
 ***Evict*** measured money, NOT TENANTS (notVALUE!).
 ***Foreclose*** against measured money, NOT AGAINST PEOPLE WHO WANT TO OWN HOUSES (not against VALUE!).
 
-* ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in an. , 
-d.  destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contras7t, vanished civilizations are monuments to interference with 5 housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
+* ### ***VALUE IN EXCHANGE is the FOREMOST HOME SECURITY SYSTEM,*** is specialization value, value originating in and destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</ins>.*** By contras7t, vanished civilizations are monuments to interference with 5 housing, to ***<ins>RAISING HOUSE COST AND LOWERING HOUSE VALUE - A HOUSE OF CARDS!!! (THE HIGH COST OF SLAVE LABOR)</ins>.*** Only slaves would live in a house of cards, ***<ins>but the palaces the slave drivers lived in turned out to be the same</ins> ...***
 
 * # ***Land ownership***
 
   ## Land is no product of human labor, ***LAND OWNERSHIP CAN ONLY BE BY MUTUAL CONSENT, BY THE ACKNOWLEDGMENT OF IT IMPLICIT IN <ins>HUMAN NATURE, EXCHANGING THINGS</ins>,*** the human capability which separates humans from the jungle. ***WITHOUT A <ins>SAFE HAVEN, A HOME!!!!!</ins>, FOR GOODS EXCHANGED, THERE COULD BE NO EXCHANGES, ONLY THE LAW OF THE JUNGLE.***<br>
 
 1.01a
-## ***<br>High house value is (1)***<br>
+## ***<br>High house value is¹ (1)***<br>
 > ***<ins>LIVING IN ONE!!!!!</ins> - ASK ANY HOMELESS PERSON.***<br>
 
 1.01b
@@ -29,6 +28,7 @@ d.  destined for homes, thus ***<ins>LOWERING HOME COST AND RAISING HOME VALUE</
 1.01c
 ## ***<br>High house value is (3)***<br>
 > ***A CUSTOM HOME. Very CREATIVE. Great CRAFTSMANSHIP. As EARTHQUAKE-, TORNADO-, HURRICANE-RESISTANT as possible. <ins>But never, BEING A SLAVE!!!</ins> The American Dream <ins>is not to be A SLAVE!!!</ins> The Fourth of July <ins>is not to be A SLAVE!!!</ins>***
+>>>> #### ***¹ See more at 1.09, 1.16, 1.27, 3.09.***
 
 1.02a
 ## <br>***Real stimulus***<br> 
