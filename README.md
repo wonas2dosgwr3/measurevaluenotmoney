@@ -715,8 +715,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***<br><br>***² See Lionel Barrymore and Donald Meek (Mr. Poppins) in movie "You Can't Take It With You", 1938, for extended discussion.***<br><br>***³ <ins>Win-lose "investors"</ins> only "win" at the expense of other people losing, <ins>take no real risks</ins>; unlike real investors, win-win investors, who take real risks and only win if everyone does, if the standard of living rises - commerce!!!***
 
 3.11
-# ***Nobody ever saw a dog make aCI measurement.***
+# ***Nobody ever saw a dog make a measurement.***
 >>> ### ***See 3.00c. No man's land (the marketplace!!!). Part 3.***
 
 3.12
-# ***THE HOMELESS (PRICE-DESTROYING, FINANCIAL COMPLEXITY-RESTORING) DOLLAR. Part 36. Duking it out with money.***<br><br>***Powerless to <ins>CHANGE ANYTHING!!!!!</ins> about money, nothing to work with but <ins>THEMSELVES!!!!!,</ins> 23,000 plus people¹ <ins>UNANIMOUSLY CHOOSE TO <ins>PRODUCE NOTHING!!!!!</ins>, ABANDON THE EFFICIENCY (CLOSE SCRUTINY!!!) OF A MONEY ECONOMY ALTOGETHER, and seek refuge in the <ins>QUAGMIRE OF THE PRIMITIVE CONDITION - FINANCIAL COMPLEXITY, INEQUALITY, BORROWING AND LENDING, DESTROYED PRICES (NO PRICETAGS)!!!!!</ins>***<br><br>***Nothing (bad merchandise) leaving the hands of 23,000 plus people.***<br><br>***Money wins again, as always, ever on the job, always the servant, the informant, of people of good will.***
+# ***THE HOMELESS (PRICE-DESTROYING, FINANCIAL COMPLEXITY-RESTORING) DOLLAR. Part 36. Duking it out with money.***
+## ***Powerless to <ins>CHANGE ANYTHING!!!!!</ins> about money, nothing to work with but <ins>THEMSELVES!!!!!,</ins> 23,000 plus people¹ <ins>UNANIMOUSLY CHOOSE TO <ins>PRODUCE NOTHING!!!!!</ins>, ABANDON THE EFFICIENCY (CLOSE SCRUTINY!!!) OF A MONEY ECONOMY ALTOGETHER, and seek refuge in the <ins>QUAGMIRE OF THE PRIMITIVE CONDITION - FINANCIAL COMPLEXITY, INEQUALITY, BORROWING AND LENDING, DESTROYED PRICES (NO PRICETAGS)!!!!!</ins>***<br><br>***Nothing (bad merchandise) leaving the hands of 23,000 plus people.***<br><br>***Money wins again, as always, ever on the job, always the servant, the informant, of people of good will.***
+>> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***<br><br>***
