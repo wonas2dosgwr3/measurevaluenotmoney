@@ -723,3 +723,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Powerless to <ins>CHANGE ANYTHING!!!!!</ins> about money, nothing to work with but <ins>THEMSELVES!!!!!,</ins> 23,000 plus people¹ <ins>UNANIMOUSLY!!!!! CHOOSE TO PRODUCE NOTHING!!!!!</ins>, ABANDON THE EFFICIENCY (CLOSE SCRUTINY!!!!!) OF A MONEY ECONOMY ALTOGETHER, and seek refuge in the <ins>QUAGMIRE OF THE PRIMITIVE CONDITION - FINANCIAL COMPLEXITY, INEQUALITY, BORROWING AND LENDING, DESTROYED PRICES (NO PRICETAGS)!!!!!</ins>***<br><br>***Nothing (bad merchandise) leaving the hands of 23,000 plus Mr. Poppinses, pre-Grandpa Vanderhoff².***
 # ***Money wins again, as always, ever on the job, <ins>always the servant, the informant, of people of good will.</ins>***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***<br><br>***² Grandpa Vanderhoff (Lionel Barrymore), Mr. Poppins (Donald Meek), 1938 movie "You Can't Take It With You".***
+
+
+3.13
+# ***Should the inch or the ounce require a staff of 23,000 plus people to operate???<br><br>23,000 plus people to CLARIFY OR OBSCURE things???***
