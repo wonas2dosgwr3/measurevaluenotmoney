@@ -732,4 +732,5 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.14
 
 # ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES. Part A.***
-## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br<<br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, TO CREATE PRICES!!!!!
+## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br<<br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, TO CREATE PRICES!!!!!***
+## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value), instead regarding all value measurement (LAND REQUIREMENT REDUC
