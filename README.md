@@ -1,4 +1,4 @@
-1.00 
+71.00 
 measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
@@ -732,7 +732,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.14
 
 # ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES. Part A.***
-## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br<<br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, TO CREATE PRICES!!!!!***
+## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br><br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, TO CREATE PRICES!!!!!***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
 ## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value), instead regarding all value measurement (LAND REQUIREMENT REDUCTION) by other people as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). Sight of legitimate costs disappears, as hunters and gatherers engaged in LEGAL TENDER SPECULATION DESTROY PRICES, robbing consumers and producers.***
