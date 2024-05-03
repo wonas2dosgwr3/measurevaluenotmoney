@@ -322,11 +322,13 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 > [formatting added]
 >> **- <ins>The Rider Of The Ruby Hills</ins>, Chap 11, the first version of <ins>Where The Long Grass Blows</ins> (1976), Louis L'Amour. (In the 4-novel collection <ins>The Rider Of The Ruby Hills</ins>, 1986).**
 
-2.02
+2.02a
 # ***THE HOMELESS DOLLAR. Part 14a. <ins>Legislating a double standard. The 1913 Federal Reserve Act.</ins><br><br>MEASURING A STANDARD OF MEASUREMENT SABOTAGES THE STANDARD.<br><br>Wholesale resource wasting as far as the eye can see.***<br>
 ***ELASTIC CURRENCY SPECULATORS <ins>INVEST IN LOW VALUE AND CALL IT THE MONEY SUPPLY INSTEAD.</ins><br><br>NOBODY KNOWS BETTER IT'S LOW VALUE, NOTHING TO TAKE CREDIT OR PERSONAL RESPONSIBILITY FOR, NOT WHAT CHILDREN ARE TAUGHT. <br><br>TO THE EXTENT SUCH DISTRACTIONS AS THE FICTION OF THE MONEY SUPPLY (MEASURING MONEY) DIVERT THE SUBJECT FROM MONEY (MEASURING VALUE) AND LOW VALUE, LOW VALUE CAN BE IMPLEMENTED, THE ELASTIC CURRENCY SPECULATORS GET THEIR HANDS ON RESOURCES THEY COULD NEVER HAVE EARNED, CAN'T KNOW THE VALUE OF, THE RESOURCES VANISH INTO THE WAR TO END ALL WARS, COMMUNISM (Bolsheviks), ANTI-BOLSHEVIKS (Tsar, Mensheviks, Kerensky, Admiral Kolchak)¹, PROHIBITION, THE GREAT DEPRESSION, AN EVEN BIGGER WAR, MORE WARS - ANY BANKRUPT MISERY-PRODUCER WHO DOESN'T WANT TO CHANGE ...***
 
 >>> ***¹ <ins>The Creature From Jekyll Island: A Second Look At The Federal Reserve</ins>, 3rd Ed., G. Edward Griffin, 1994, 1995, 1998. Chap. 13 "Masquerade in Moscow," Chap. 14 "The Best Enemy Money Can Buy"***
+
+2.02b
 
 "Debt in the present order of magnitude began with the [First] World War. Without credit [elastic currency speculators], the war [to end all wars]<br> 
 ## <ins>***could not have continued above four months [!!!!!]***</ins>;<br>
@@ -729,10 +731,12 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***
 
-3.14
+3.14a
 
 # ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES. Part A.***
 ## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br><br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, <ins>TO CREATE PRICES!!!!!</ins>***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
+
+3.14b
 
 ## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION)</ins> by other people as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears, as hunters and gatherers engaged in LEGAL TENDER SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
