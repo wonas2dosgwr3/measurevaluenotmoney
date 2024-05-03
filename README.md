@@ -738,5 +738,11 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
 3.14b
+⁰
+## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION) BY OTHER PEOPLE!!!!!</ins> as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears!!!!!, as hunters and gatherers engaged in LEGAL TENDER" SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
 
-## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION) BY OTHER PEOPLE!!!!!</ins> as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears, as hunters and gatherers engaged in LEGAL TENDER SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
+3.15
+
+# ***Nobody's ever at home.***
+## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, WHO WILL???***
+>> ### ***
