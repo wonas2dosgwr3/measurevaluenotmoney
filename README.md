@@ -747,7 +747,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
 >>> #### ***¹ "Independence."***<br><br>
 
->> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. Campbell; 'wise folks buy and sell,*** # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
+>> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. Campbell; 'wise folks buy and sell,***
+# ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
 [formatting added]
 >>>> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***
 
