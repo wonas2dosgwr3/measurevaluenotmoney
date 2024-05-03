@@ -739,4 +739,4 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.14b
 
-## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION)</ins> by other people as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears, as hunters and gatherers engaged in LEGAL TENDER SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
+## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION) BY OTHER PEOPLE!!!!!</ins> as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears, as hunters and gatherers engaged in LEGAL TENDER SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
