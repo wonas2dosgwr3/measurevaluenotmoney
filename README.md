@@ -537,8 +537,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***"Take it home right away***<br>
       ***You've got three years to pay"***
 
->> ***- song lyric - "Sin City", Chris Hillman and Gram Parsons. See Chris Hillman at the Library of Congress video, Oct 16, 2009, for extended discussion (https://youtu.be/AcEjCnMlxfY?feature=shared). Also "Point Loma Writers: Chris Hillman, Herb Pedersen", Feb 17, 2011 (https://youtu.be/TjAwkq_vwGU?feature=shared).
- 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
+>> ***- song lyric - "Sin City", Chris Hillman and Gram Parsons. See Chris Hillman at the Library of Congress video, Oct 16, 2009, for extended discussion (https://youtu.be/AcEjCnMlxfY?feature=shared). Also "Point Loma Writers: Chris Hillman, Herb Pedersen", Feb 17, 2011 (https://youtu.be/TjAwkq_vwGU?feature=shared). 1969. The Flying Burrito Brothers, album <ins>The Gilded Palace of Sin</ins>***<br><br> 
 
 > ### ***¹ Land is no product of human labor, neither are homeless dollars.<br>² <ins>No human labor</ins> (land) for <ins>no human labor</ins> (homeless dollars).<br><ins>No human labor</ins> (homeless dollars) presuming in vain to get rich from <ins>no human labor</ins> (land) - "rent-seeking", OBSTRUCTION OF COMMERCE.***
 
