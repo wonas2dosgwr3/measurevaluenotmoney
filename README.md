@@ -729,7 +729,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.13
 
-# ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***
+# ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring length or weight should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***
 
 3.14a
 
