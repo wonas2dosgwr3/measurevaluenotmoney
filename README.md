@@ -356,9 +356,10 @@ with benefit of credit [elastic currency speculators] it went more than four yea
 
 2.05
 > # ***"the gentry pushing their cravings ..."***
-> "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ...***<br><br>
+> "The country is claimed by both Mingos and Mohicans, and is a sort of common territory to fish and hunt through, in time of peace ...<br><br>
 > ## ***"Common territory!" exclaimed Hurry, laughing aloud. "I should like to know what Floating Tom Hutter would say to that? He claims the lake as his own property, in vartue of fifteen years' possession, ...***<br><br> 
-> "And what will the Colony say to such a quarrel? All this country must have some owner, ***the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."***
+> "And what will the Colony say to such a quarrel? All this country must have some owner, ***<ins>the gentry pushing their cravings into the wilderness, even where they never dare to venture', in their own persons, to look at the land they own."</ins>***
+[formatting added]
 >> ## ***-<ins>The Deerslayer</ins>, James Fenimore Cooper, 1841, Chap. 1***<br><br>
 
 2.06
