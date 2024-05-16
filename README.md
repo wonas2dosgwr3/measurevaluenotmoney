@@ -738,8 +738,12 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
 3.14b
-⁰
+
 ## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION) BY OTHER PEOPLE!!!!!</ins> as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears!!!!!, as hunters and gatherers engaged in LEGAL TENDER" SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
+
+3.14c
+
+## ***World WITHOUT PRICES. Part C. Payments and poverty-rationing, instead of buying and selling and recycling of bad merchandise.<br><br>Bad merchandise doesn't sell, the main reason for obstructing commerce and demanding rent (enlarging instead of reducing land requirement). As long as buying and selling controls the government, bad merchandise is removed from the marketplace and recycled. But when bad merchandise controls the  government, currency speculation REPLACES PRICES WITH FINANCIAL COMPLEXITY!!!!! (ANYBODY'S GUESS WHAT THE LEGITIMATE COST OF ANYTHING IS!!!!!), good merchandise deserts the marketplace, and government with no resource but bad merchandise, DISPENCING EVER-BIGGER JACKPOTS OF BAD MERCHANDISE TO THE CURRENCY SPECULATORS, AND RATIONING WHAT'S LEFT OF IT (POVERTY) TO EVERYONE ELSE, goes under, the biggest bubble bursts.***
 
 3.15
 
