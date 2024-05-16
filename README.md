@@ -754,7 +754,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. Campbell¹; 'wise folks buy and sell,***
 >> # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
 [formatting added]
->>>>>> ***¹ Rob Roy
+>>>>>> ***¹ Rob Roy***<br><br>
 >>>> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***
 
 
