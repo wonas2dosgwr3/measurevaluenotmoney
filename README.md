@@ -748,10 +748,17 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## ***World WITHOUT PRICES. Part C.<br><br> <ins>Payments (RENT!!!) and poverty-rationing, instead of buying and selling and recycling of bad merchandise.</ins><br><br>Bad merchandise doesn't sell, <ins>the main reason for obstructing commerce and DEMANDING RENT!!! (PAYMENTS!!!; ENLARGING INSTEAD OF REDUCING LAND REQUIREMENT).</ins> As long as buying and selling controls the government, bad merchandise is removed from the marketplace and recycled. But when bad merchandise controls the  government, <ins>currency speculation REPLACES PRICES WITH FINANCIAL COMPLEXITY!!!!! (ANYBODY'S GUESS WHAT THE LEGITIMATE COST OF ANYTHING IS!!!!!)</ins>, good merchandise deserts the marketplace, and government with no resource but bad merchandise (poverty), DISPENCING EVER-BIGGER <ins>JACKPOTS OF POVERTY (BAD MERCHANDISE)</ins> TO THE CURRENCY SPECULATORS, DEMANDING <ins>EVER MORE PAYMENTS (POVERTY!!!), AND RATIONING POVERTY</ins> TO EVERYONE ELSE TO THE BITTER END, goes under, <ins>the biggest bubble bursts.</ins>***
 
+3.14d
+
+## ***World WITHOUT PRICES. Part D.<br><br>Where's the money trail???***<br><br>***A dog chasing its tail. Every bend in the money trail leads to a wooden Indian pointing his finger somewhere else. This can't be it ...***<br><br>El Dorado??? Wooden Indians with STREETS PAVED WITH GOLD!!! under their feet!!! But if streets paved with gold were money, there'd soon be a SHORTAGE OF STREETS!!!, and much else, a la energy shortage, etc, etc, as people in need of money HELPED THEMSELVES TO THE STREETS!!! instead of buying and selling - HELPED THEMSELVES TO THE SHORTAGES!!!!!, but not money, which comes only of buying and selling. Streets paved with gold can't be the money trail ...<br><br>What if I gave TWO GUINEAS to a wooden Indian??? Worked on a natural-born idiot ...***
+>> ### ***"the Bailie, turning to me, observed that the 'creature was a natural-born idiot.' I testified my own gratitude in a way which Dougal much better relished, by slipping a couple of guineas into his hand. He no sooner felt the touch of the gold than he sprung twice or thrice from the earth with the agility of a wild buck, flinging out first one heel and then another, in a manner which would have astonished a French dancing-master. He ran to the boatmen to show them the prize, and a small gratuity made them take part in his raptures. He then, to use a favourite expression of the dramatic John Bunyan, 'went on his way, and I saw him no more.'"***<br>
+>>>> #### ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***
+
+
 3.15
 
 # ***Nobody's ever at home.¹***
-## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
+## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't minwod their own businto a ess, <ins>WHO WILL?????</ins>***
 >>>> #### ***¹ "Independence." Always at YOUR home. Always trespassing.***<br><br>
 
 >> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. Campbell¹; 'wise folks buy and sell,***
