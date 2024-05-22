@@ -755,8 +755,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >>>> #### ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***<br><br>
 ## ***Sure doesn't sound like minding MY business!!!!! ... SIGNS OF LIFE!!!!! ... No wonder I couldn't find the money trail, I was looking in the wrong place - <ins>no signs of life, wooden Indians, financial complexity, no prices, BARTER ECONOMY DOESN'T HAVE MONEY, can't have a money trail</ins> ... The money trail is ALWAYS ALIVE AND WELL!!!, but it <ins>starts with ME!!!, MY TWO GUINEAS!!!, goes from me to the wooden Indians, THINK I'LL KEEP MY TWO GUINEAS!!!</ins>***
 
-¹ https://www.newyorkfed.org/aboutthefed/goldvault.html
-
+¹ https://www.newyorkfed.org/aboutthefed/goldvault.html<br><br>
 
 
 3.15
