@@ -754,7 +754,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***"the Bailie, turning to me, observed that <ins>the 'creature was a natural-born idiot.'</ins> I testified my own gratitude [for Dougal's great services in dire straits] in a way which Dougal much better relished [than principal beneficiary Bailie's offer of a day job], by <ins>SLIPPING A COUPLE OF GUINEAS INTO HIS HAND. He no sooner felt the touch of the gold than he sprung twice or thrice from the earth with the agility of a wild buck, flinging out first one heel and then another, in a manner which would have astonished a French dancing-master</ins>. He ran to the boatmen to show them the prize, and a small gratuity made them take part in <ins>his raptures</ins>. He then, to use a favourite expression of the dramatic John Bunyan, <ins>'went on his way, and I saw him no more.'</ins>"***<br>[formatting added]
 >>>> #### ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***<br><br>
 ## ***Sure doesn't sound like minding MY business!!!!! ... SIGNS OF LIFE!!!!! ... No wonder I couldn't find the money trail, I was looking in the wrong place - <ins>no signs of life, wooden Indians, financial complexity, no prices, BARTER ECONOMY DOESN'T HAVE MONEY, can't have a money trail</ins> ... The money trail is ALWAYS ALIVE AND WELL!!!, but it <ins>starts with ME!!!, MY TWO GUINEAS!!!, goes from me to the wooden Indians, THINK I'LL KEEP MY TWO GUINEAS!!!</ins>***<br><br>
-<< ***¹ https://www.newyorkfed.org/aboutthefed/goldvault.html
+<< ***¹ https://www.newyorkfed.org/aboutthefed/goldvault.html***
 
 
 3.15
