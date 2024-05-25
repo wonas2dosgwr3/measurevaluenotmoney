@@ -761,11 +761,11 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.14e
 
 ## ***World WITHOUT PRICES. Part E. Drain Loch Lomond for farming, 1817 (LAND VALUE).***
-### ***153 years before Earth Day.***<br><br>The largest lake in Great Britain by surface area (27.5 sq mi).¹***<br><br>
+### ***153 years before Earth Day.<br><br>The largest lake in Great Britain by surface area (27.5 sq mi).¹***<br><br>
 >> ### ***" ... and Loch Lomond opened before us. I will spare you the attempt to describe what you would hardly comprehend without going to see it; but certainly this noble lake, boasting innumerable beautiful islands, of every varying form and outline which fancy can frame, ... affords one of the most surprising, beautiful, and sublime spectacles in nature."²***<br><br>
 ## ***Besides not knowing the value of TWO GUINEAS (TO HIS TWICE LIFE-SAVER DOUGAL!!!!!), the Bailie proposed DRAINING LOCH LOMOND FOR FARMLAND!!!!!, saying he knew "something o' the different values of land."²***<br><br>
 # ***Indeed!!! - land value WITHOUT DOUGAL TWICE SAVING HIS LIFE!!!!! - LAND VALUE IF HE (THE BAILIE) WAS DEAD!!!!!***<br><br>***But land value if he's alive includes THE VALUE OF MONEY TO DOUGAL (OTHER PEOPLE)!!!!!, ALWAYS HIGHER THE LESS LAND COST IS!!!!!***<br><br>
-## *** ... natural-born idiot Bailie.***
+## ***... natural-born idiot Bailie.***
 
 
 
