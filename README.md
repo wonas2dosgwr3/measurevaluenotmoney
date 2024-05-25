@@ -765,7 +765,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***" ... and Loch Lomond opened before us. I will spare you the attempt to describe what you would hardly comprehend without going to see it; but certainly this noble lake, boasting innumerable beautiful islands, of every varying form and outline which fancy can frame, ... affords one of the most surprising, beautiful, and sublime spectacles in nature."²***<br><br>
 ## ***Besides not knowing the value of TWO GUINEAS (TO HIS TWICE LIFE-SAVER DOUGAL!!!!!), the Bailie proposed DRAINING LOCH LOMOND FOR FARMLAND!!!!!, saying he knew "something o' the different values of land."²***<br><br>
 # ***Indeed!!! - land value WITHOUT DOUGAL TWICE SAVING HIS LIFE!!!!! - LAND VALUE WITH THE BAILIE DEAD!!!!!***<br><br>***But land value if he's alive includes <ins>THE VALUE OF MONEY TO DOUGAL (OTHER PEOPLE)!!!!!, ALWAYS HIGHER THE LESS LAND COST IS!!!!!</ins>***<br><br>
-## ***No law you have to measure value, remember having your life saved, even if government recognizes such a thing ... natural-born idiot Bailie.***<br><br>
+## ***No law you have to measure value, remember having your life saved, even if government recognizes such a thing ... ... natural-born idiot Bailie.***<br><br>
 >>>> #### ***¹ Loch Lomond (Wikipedia). https://en.m.wikipedia.org/wiki/Loch_Lomond***<br><br><br>***² <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***<br><br><br>
 
 
