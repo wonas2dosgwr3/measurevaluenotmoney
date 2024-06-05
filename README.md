@@ -772,8 +772,8 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 3.14f
 
 ## ***World WÌTHOUT PRICES. Part F. Except LAND!!!!!***
-### ***Tyrants (bad merchandise) pay WITH THE LAND UNDER THEIR OWN FEET!!!!! - the glory that was Rome, etc, etc, etc ...***<br><br>***GOOD WILL¹ squares it for everyone else.***<br><br>***NO MAN'S LAND² (NO TRESPASSING) strictly enforced!!!!! - the glory that was Rome, etc, etc, etc ...***<br><br>***Goods and services (COMPETITION!!!) in full retreat (world without goods and services!!!, WITHOUT COMPETITION!!!), NOTHING IN SIGHT BUT LAND (ALL MINE!!!!!)!!!, bad merchandise feels safe - until THE PLUNDER RUNS OUT, THEN THE LAND UNDERFOOT RUNS OUT!!!!!; bad merchandise SUBMERGES IN THE FINANCIAL TARPIT IT REPLACED PRICES WITH, EVICTED!!!!! - the glory that was Rome, etc, etc, etc. ANOTHER EXTINCT DINASOUR.***
->>> #### ***¹ Good will: The LONG-NEGLECTED LEGITIMATE BUSINESS OF THE PETTIFOGGING (US JUDICIAL) BRANCH OF GOVERNMENT. NATURAL LAW. Common sense.***<br><br>***² No man's land. See 3.00***
+### ***Tyrants (bad merchandise) pay WITH THE LAND UNDER THEIR OWN FEET!!!!! - the glory that was Rome, etc, etc, etc ...***<br><br>***GOOD WILL¹ squares it for everyone else.***<br><br>***NO MAN'S LAND² (NO TRESPASSING) strictly enforced!!!!! - the glory that was Rome, etc, etc, etc ...***<br><br>***Goods and services (COMPETITION!!!) in full retreat (world without goods and services!!!, WITHOUT COMPETITION!!!), NOTHING IN SIGHT BUT LAND (ALL MINE!!!!!)!!!, bad merchandise feels safe - until THE PLUNDER RUNS OUT, THEN THE LAND UNDERFOOT RUNS OUT!!!!!; bad merchandise SUBMERGES IN THE FINANCIAL TARPIT IT REPLACED PRICES WITH, EVICTED, THE SAME AS EVERY OTHER BUBBLE!!!!! - the glory that was Rome, etc, etc, etc. ANOTHER EXTINCT DINASOUR.***
+>>> #### ***¹ Good will: The LONG-NEGLECTED LEGITIMATE BUSINESS OF THE PETTIFOGGING (US JUDICIAL) BRANCH OF GOVERNMENT. NATURAL LAW. Common sense. Commerce. The marketplace. NO MAN'S LAND.***<br><br>***² No man's land. See 3.00***
 
 3.15
 
