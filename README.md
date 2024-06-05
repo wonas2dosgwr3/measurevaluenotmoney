@@ -769,7 +769,11 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ## ***No law you have to measure value, remember having your life saved, even if government recognizes such a thing ... ... natural-born idiot Bailie.***<br><br>
 >>>> #### ***¹ Loch Lomond (Wikipedia). https://en.m.wikipedia.org/wiki/Loch_Lomond***<br><br><br>***² <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***<br><br><br>
 
+3.14f
 
+## ***World WÌTHOUT PRICES. Part F. Except LAND!!!!!***
+### ***Tyrants (bad merchandise) pay WITH THE LAND UNDER THEIR OWN FEET!!!!! - the glory that was Rome, etc, etc, etc ...***<br><br>***GOOD WILL¹ squares it for everyone else.***<br><br>***NO MAN'S LAND² (NO TRESPASSING) strictly enforced!!!!! - the glory that was Rome, etc, etc, etc ...***<br><br>***Goods and services (COMPETITION!!!) in full retreat (world without goods and services!!!, WITHOUT COMPETITION!!!), NOTHING IN SIGHT BUT LAND (ALL MINE!!!!!)!!!, bad merchandise feels safe - until THE PLUNDER RUNS OUT, THEN THE LAND UNDERFOOT RUNS OUT!!!!!; bad merchandise SUBMERGES IN THE FINANCIAL TARPIT IT REPLACED PRICES WITH, EVICTED!!!!! - the glory that was Rome, etc, etc, etc. ANOTHER EXTINCT DINASOUR.***
+>>> #### ***¹ Good will: The LONG-NEGLECTED LEGITIMATE BUSINESS OF THE PETTIFOGGING (US JUDICIAL) BRANCH OF GOVERNMENT. NATURAL LAW. Common sense.***<br><br>***² No man's land. See 3.00***
 
 3.15
 
