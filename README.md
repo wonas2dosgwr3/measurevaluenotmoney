@@ -775,6 +775,10 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ### ***<ins>Tyrants (bad merchandise) pay WITH THE LAND UNDER THEIR OWN FEET!!!!!</ins> - the glory that was Rome, etc, etc, etc ...***<br><br>***GOOD WILL¹ squares it for everyone else.***<br><br>***NO MAN'S LAND² (NO TRESPASSING) <ins>strictly enforced!!!!!</ins> - the glory that was Rome, etc, etc, etc ...***<br><br>***Goods and services (COMPETITION!!!) in full retreat (world without goods and services!!!, WITHOUT COMPETITION!!!), <ins>NOTHING IN SIGHT BUT LAND (ALL MINE!!!!!)!!!, bad merchandise feels safe</ins> - until THE PLUNDER RUNS OUT, THEN THE LAND UNDERFOOT RUNS OUT!!!!!; <ins>bad merchandise SUBMERGES</ins> IN THE FINANCIAL TARPIT IT REPLACED PRICES WITH, <ins>EVICTED</ins>, THE SAME AS EVERY OTHER BUBBLE!!!!! - the glory that was Rome, etc, etc, etc. <ins>ANOTHER EXTINCT DINASOUR</ins>.***
 >>> #### ***¹ Good will: The LONG-NEGLECTED LEGITIMATE BUSINESS OF THE PETTIFOGGING (US JUDICIAL) BRANCH OF GOVERNMENT. NATURAL LAW. Common sense. Commerce. The marketplace. NO MAN'S LAND.***<br><br>***² No man's land. See 3.00***
 
+3.14g
+
+## ***World WITHOUT PRICES. Part G. JACKPOTS AND POVERTY instead (SAVING BAD MERCHANDISE).***
+
 3.15
 
 # ***Nobody's ever at home.¹***
