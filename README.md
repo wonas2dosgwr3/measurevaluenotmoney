@@ -780,7 +780,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ## ***World WITHOUT PRICES. Part G. JACKPOTS AND POVERTY instead (SAVING BAD MERCHANDISE).***
 ### ***Trafficking in jackpots.***<br><br>
 >> ### ***ONE SIZE FITS ALL!!!!! (no signs of life).<br>SUPPLIES ARE LIMITED!!!!! (same as everything else).<br>POVERTY HURTS LESS!!!!! if there's a jackpot on the horizen.***<br><br>
-### ***Goods and services getting scarcer (full retreat), NOT TO BE BOUGHT, BECOME JACKPOTS!!!!!***
+### ***Goods and services getting scarcer (full retreat), NOT TO BE BOUGHT, BECOME JACKPOTS!!!!!***<br><br>***Poverty is ALWAYS ON THE INSTALLMENT PLAN -IT WOULD END IF IT WASN'T!!!!! - BUYING AND SELLING (HUMAN NATURE, GOOD WILL) DOES AWAY WITH IT!!!!!<br>Under buying and selling, BAD MERCHANDISE IS RECYCLED!!!!!, NOT SAVED!!!!!***
 
 3.15
 
