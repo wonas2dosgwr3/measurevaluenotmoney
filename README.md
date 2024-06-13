@@ -782,7 +782,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> ### ***ONE SIZE FITS ALL!!!!! (no signs of life).<br>SUPPLIES ARE LIMITED!!!!! (same as everything else).<br><ins>POVERTY HURTS LESS!!!!!</ins> if there's a jackpot on the horizen.***<br><br>
 ### ***Goods and services getting scarcer (full retreat), NOT TO BE BOUGHT, BECOME JACKPOTS!!!!!***<br><br>
 ## ***Poverty is <ins>ALWAYS ON THE INSTALLMENT PLAN - IT ENDS IF IT ISN'T!!!!! - BUYING AND SELLING (HUMAN NATURE, GOOD WILL) DOES AWAY WITH IT!!!!!</ins>***<br><br>***Under buying and selling, BAD MERCHANDISE IS <ins>RECYCLED!!!!!, NOT SAVED!!!!!</ins>***<br><br>
-### ***Take it home right away, you've got three years to pay¹ - and <ins>NO HOME!!!!! - AND STOPPED RECYCLING OF BAD MERCHANDISE FOR THREE YEARS!!!!! - AND PUT OUT THE WELCOME MAT FOR POVERTY!!!!!</ins>***<br><br>
+>> ### ***Take it home right away, you've got three years to pay¹ - and <ins>NO HOME!!!!! - AND STOPPED RECYCLING OF BAD MERCHANDISE FOR THREE YEARS!!!!! - AND PUT OUT THE WELCOME MAT FOR POVERTY!!!!!</ins>***<br><br>
 ## ***SAVING BAD MERCHANDISE INSTEAD OF YOUR HOME!!!!!***<br><br>
 >>> #### ***¹ See 2.32. THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 
