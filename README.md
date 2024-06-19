@@ -791,6 +791,12 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 >>> #### ***¹ See 2.32. THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 
+3.14h
+
+## ***World WITHOUT PRICES. Part H. Homeless dollar DISPENSERS. Can't be a HOME!!!!!***
+### ***Houses are not for living in, if you can help it.***<br><br>***Living in a homeless dollar dispenser you own, TURNS IT OFF!!!!!***<br><br>***MOVING OUT!!!!! - SOMEBODY ELSE!!!!! living in it - TURNS IT ON!!!!!***<br><br>***REVERSING THE AMERICAN DREAM!!!!!¹ HITS THE JACKPOT!!!!! Owning a house SOMEBODY ELSE!!!!! lives in, instead of owning YOUR OWN house, PREVENTS IT FROM BEING EITHER THEIR HOME OR YOURS!!!!! - the only requirement (no signs of life, installment plan, poverty) for a homeless dollar dispenser to turn on.***<br><br>***A "very smart investor" owns FIFTEEN houses - FIFTEEN homeless dollar dispensers!!!!! - FIFTEEN HOMELESS HOUSES!!!!!²***<br><br>***Living ON WHEELS (TRAVELING) instead: Shopping carts to RVs for people who EARN homeless dollars; luxury modes (liners, etc) for those who DON'T - CURRENCY SPECULATORS, till the plunder runs out.***
+>>> #### ***¹ Returning barbarism.***<br><br>***² wonas2dosgwr3 firsthand report.***
+
 3.15
 
 # ***Nobody's ever at home.¹***
