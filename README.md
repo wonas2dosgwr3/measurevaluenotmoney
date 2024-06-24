@@ -606,6 +606,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
 >> ***- ?***<br><br>
 
+3.00i
+## ***Part 9.<br>Even a bluejay***
+### *** ... steals <ins>my</ins> food ... looks down its beak at me 'cause <ins>I can't fly</ins> ... got news for that bluejay ... got an agenda ... when that bird least expects it ... gonna get a <ins>trade secret</ins> from that bird ... that bird's gonna have an attack when it sees <ins>me flyin' by</ins> ...
+
 3.01a
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
 ## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE!!!!! standard of value</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***
