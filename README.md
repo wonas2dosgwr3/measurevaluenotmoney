@@ -812,13 +812,13 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 3.16
 
 # ***Natural law (signs of life). Part 1.***
->> ## ***"Who's that stomping all over my face***<br>
->> ## ***Where's that silhouette I'm trying to trace***<br>
->> ## ***Who's putting sponge in the bells I once rung***<br>
->> ## ***And taking my gypsy before she's begun***<br>
->> ## ***To singing in the meaning of what's in my mind***<br>
->> ## ***Before I can take home what's rightfully mine***<br>
->> ## ***Joinin' and listenin' and talkin' in rhymes***<br>
->> ## ***Stoppin' the feeling to wait for the times"***<br><br>
+>> ***"Who's that stomping all over my face***<br>
+>> ***Where's that silhouette I'm trying to trace***<br>
+>> ***Who's putting sponge in the bells I once rung***<br>
+>> ***And taking my gypsy before she's begun***<br>
+>> ***To singing in the meaning of what's in my mind***<br>
+>> ***Before I can take home what's rightfully mine***<br>
+>> ***Joinin' and listenin' and talkin' in rhymes***<br>
+>> ***Stoppin' the feeling to wait for the times"***<br><br>
 
 >>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared
