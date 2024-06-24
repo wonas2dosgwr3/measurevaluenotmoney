@@ -607,7 +607,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***- ?***<br><br>
 
 3.00i
-## ***Part 9.<br>Even a bluejay***
+## ***Part 9.<br>Even a bluejay***<br>
 ### *** ... steals <ins>my</ins> food ... looks down its beak at me 'cause <ins>I can't fly</ins> ... got news for that bluejay ... got an agenda ... when that bird least expects it ... gonna get a <ins>trade secret</ins> from that bird ... that bird's gonna have an attack when it sees <ins>me flyin' by</ins> ...***
 
 3.01a
