@@ -58,7 +58,7 @@ measurevaluenotmoney
 > ## ***the dollar is <ins>homeless</ins>, no one will take personal responsibility for it as such.***<br>
 > **Nor as measured money either.** The measuring of money is conducted entirely as a<br>
 > # ***<ins>very deep subject which even the experts can never agree upon. PRICE HAGGLING AT ITS WORST!!!, NO AGREEMENT EVER REACHED!!!</ins>***<br>
-> The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place.<br><br>***BUYING AND SELLING (REAL TRANSACTIONS, PROSPERITY!!!) can't work for dollars with no ID, for measuring money - people and houses are safe, no turmoil, no distractions, <ins>nowhere for ID-less dollars to hide.</ins><br><br>BORROWING AND LENDING, and CHARITY, <ins>MISERY!!!, is the only way, transactions abandoned,</ins> replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
+> The Federal Reserve has never even duplicated BUYING GROCERIES WITH A COW!, where at least a real transaction takes place.<br><br>***BUYING AND SELLING (REAL TRANSACTIONS, PROSPERITY!!!) can't work for dollars with no ID, ,for measuring money - people and houses are safe, no turmoil, no distractions, <ins>nowhere for ID-less dollars to hide.</ins><br><br>BORROWING AND LENDING, and CHARITY, <ins>MISERY!!!, is the only way, transactions abandoned,</ins> replaced with distracted captive audiences, only an endless quest for accomplices, for more people to pass the buck to.***<br><br>
 
 1.07
 # ***"continual dissension and debate"***
@@ -811,8 +811,8 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 3.16
 
-# ***Natural law. Part 1.***
-## >> ***"Who's that stomping all over my face***<br>
+# ***Natural law. Part 1.
+>> ## ***"Who's that stomping all over my face***<br>
 ***Where's that silhouette I'm trying to trace***<br>
 ***Who's putting sponge in the bells I once rung***<br>
 ***And taking my gypsy before she's begun***<br>
@@ -821,5 +821,4 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ***Joinin' and listenin' and talkin' in rhymes***<br>
 ***Stoppin' the feeling to wait for the times"***<br><br>
 
->>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. <ins>Buffalo Springfield</ins> album ***
-
+>>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared
