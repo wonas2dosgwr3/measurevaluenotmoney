@@ -809,4 +809,17 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >>>>>> ***¹ Rob Roy***<br><br>
 >>>> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***
 
+3.16
+
+# ***Natural law. Part 1.***
+## >> ***"Who's that stomping all over my face<br>
+Where's that silhouette I'm trying to trace<br>
+Who's putting sponge in the bells I once rung<br>
+And taking my gypsy before she's begun<br>
+To singing in the meaning of what's in my mind<br>
+Before I can take home what's rightfully mine<br>
+Joinin' and listenin' and talkin' in rhymes<br>
+Stoppin' the feeling to wait for the times"***<br><br>
+
+>>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. <ins>Buffalo Springfield</ins> album ***
 
