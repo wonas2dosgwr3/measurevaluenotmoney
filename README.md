@@ -801,6 +801,20 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ### ***Houses are not for living in, if you can help it.***<br><br>***Living in a homeless dollar dispenser you own, <ins>TURNS IT OFF!!!!!</ins>***<br><br>***MOVING OUT!!!!! - SOMEBODY ELSE!!!!! living in it - <ins>TURNS IT ON!!!!!</ins>***<br><br>***<ins>REVERSING THE AMERICAN DREAM!!!!!¹</ins> HITS THE JACKPOT!!!!! Owning a house <ins>SOMEBODY ELSE!!!!!²</ins> lives in¹, instead of owning YOUR OWN house, PREVENTS IT FROM BEING EITHER <ins>THEIR HOME OR YOURS!!!!!</ins> - the only requirement (no signs of life, installment plan, poverty) for a homeless dollar dispenser to <ins>turn on.</ins>***<br><br>***A "very smart investor" owns FIFTEEN houses - FIFTEEN homeless dollar dispensers!!!!! - FIFTEEN <ins>HOMELESS HOUSES!!!!!³</ins>***<br><br>***Living ON WHEELS⁴ (TRAVELING) instead: Shopping carts to RVs for people who EARN homeless dollars; luxury modes (liners, etc) for those who DON'T - CURRENCY SPECULATORS ... till the plunder runs out.***
 >>> #### ***¹ Returning barbarism.***<br><br>***² You lose, I win!!!!!***<br><br>***³ wonas2dosgwr3 firsthand report.***<br><br>***⁴ <ins>One-quarter of US population</ins> living on wheels? - wonas2dosgwr3 guestimate. One dissenter, career 18-wheeler driver Paul, said MORE, he'd guess.***
 
+3.14i
+
+## ***World WITHOUT PRICES. Part I. Who needs prices if you're NOT REALLY BUYING ANYTHING¹??? Nothing but payments, instead.***
+>> ***Bad merchandise has done me wrong***<br>
+>> ***I can't sleep night or day***<br>
+>> ***Bought it on sale, on lay-awake, 15 years to pay***
+>> ***Never did work, repairs galore, obsolete at the store [out the door?]***<br>
+>> ***Payments is all bad merchandise, not buyin' nothin' at all!!!***<br><br>
+
+>>>> #### ***Song lyric daydream. Inspired, adapted, from the DEFINITIVE DISCUSSION of bad merchandise milestone - Prohibition. See Jorma Kaukonen: 
+
+
+>>>> #### ***¹ Except groceries, and thrift stores.
+
 3.15
 
 # ***Nobody's ever at home.¹***
