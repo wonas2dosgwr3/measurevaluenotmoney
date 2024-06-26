@@ -803,7 +803,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 3.14i
 
-## ***World WITHOUT PRICES. Part I. Who needs prices if you're NOT REALLY BUYING ANYTHING¹??? Nothing but payments, instead.***
+## ***World WITHOUT PRICES. Part I. Who needs prices if you're NOT REALLY BUYING ANYTHING???¹ Nothing but payments, instead.***
 >> ***Bad merchandise has done me wrong***<br>
 >> ***I can't sleep night or day***<br>
 >> ***Bought it on sale, on lay-awake, 15 years to pay***<br>
