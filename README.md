@@ -806,12 +806,13 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ## ***World WITHOUT PRICES. Part I. Who needs prices if you're NOT REALLY BUYING ANYTHING¹??? Nothing but payments, instead.***
 >> ***Bad merchandise has done me wrong***<br>
 >> ***I can't sleep night or day***<br>
->> ***Bought it on sale, on lay-awake, 15 years to pay***
+>> ***Bought it on sale, on lay-awake, 15 years to pay***<br>
 >> ***Never did work, repairs galore, obsolete at the store [out the door?]***<br>
 >> ***Payments is all bad merchandise, not buyin' nothin' at all!!!***<br><br>
 
->>>> #### ***Song lyric daydream. Inspired, adapted, from the DEFINITIVE DISCUSSION of bad merchandise milestone - Prohibition. See Jorma Kaukonen: 
+>>>> #### ***Song lyric daydream. Inspired, adapted, from the DEFINITIVE DISCUSSION of bad merchandise milestone - Prohibition. See Jorma Kaukonen:***
 
+https://youtu.be/pOMP2MvuGeM?feature=shared
 
 >>>> #### ***¹ Except groceries, and thrift stores.
 
