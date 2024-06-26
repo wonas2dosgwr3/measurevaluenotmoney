@@ -811,7 +811,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> ***Payments is all bad merchandise, not buyin' nothin' at all!!!***<br><br>
 
 >>>> #### ***Song lyric daydream. Inspired, adapted, from the DEFINITIVE DISCUSSION of <ins>bad merchandise milestone - Prohibition.</ins> See Jorma Kaukonen:***<br>
->>>> ####https://youtu.be/pOMP2MvuGeM?feature=shared
+>>>> https://youtu.be/pOMP2MvuGeM?feature=shared
 
 >>>> #### ***¹ Except groceries, and thrift stores.***
 
