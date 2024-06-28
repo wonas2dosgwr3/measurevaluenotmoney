@@ -608,7 +608,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.00i
 ## ***Part 9.<br>Even a bluejay***
-### ***... steals <ins>my</ins> food ... looks down its beak at me 'cause I <ins>can't fly</ins> ... got news for that bluejay ... got an agenda ... when that bird least expects it ... gonna get a <ins>trade secret</ins> from that bird ... that bird's gonna have an attack when it sees <ins>ME flyin' by</ins> ...***
+### ***... steals <ins>my</ins> food ... looks down its beak at me 'cause I <ins>can't fly</ins> ... got news for that bluejay ... got an agenda ... noticed that bird was comin' around fairly often ... just bein' friendly I figured ... wasn't til I realized <ins>half my important food was gone!!!</ins>, I found out what was goin' on!!! ... got news for that bird ... when that bird least expects it ... gonna get a <ins>trade secret</ins> from that bird ... that bird's gonna have an attack when it sees <ins>ME flyin' by</ins> ...***
 
 3.01a
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
