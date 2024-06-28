@@ -824,7 +824,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >>>> #### ***¹ Wonas2dosgwr3 recollection, gist of a conversation, near TWO DECADES ago.***<br><br>
 
 
->> ***Going through an affluent neighborhood, near TWO DECADES ago², enough stuff - a la windows, doors, appliences, all manner of supplies, lumber, etc, etc, etc - by the street with "FREE" signs, to build - <ins>HOW MANY????? tiny homes - 4????? - 10????? - !!!!!?????!!!!!***</ins><br><br>
+>> ### ***Going through an affluent neighborhood, near TWO DECADES ago², enough stuff - a la windows, doors, appliences, all manner of supplies, lumber, etc, etc, etc - by the street with "FREE" signs, to build - <ins>HOW MANY????? tiny homes - 4????? - 10????? - !!!!!?????!!!!!***</ins><br><br>
 >>>> #### ***² Wonas2dosgwr3 recollection.***
 
 3.15
