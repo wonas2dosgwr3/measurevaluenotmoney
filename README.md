@@ -819,9 +819,9 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 ## ***World WITHOUT PRICES. Part J. Who needs prices, if half the useful stuff in the world (that's not in thrift stores) is <ins>out by the street with a "FREE" sign</ins> on it, or in the <ins>overflowing dumpster</ins> (nearist thrift store's a mile away, can't be bothered)?????***
 >> ### ***"Is the front door still around? I been watching this project [house remodel demolition], was hoping I could get the front door."***<br>
->> ***"It's in the dumpster [hugest size - holds TWO!!! tiny homes???]. You could have it, if you can get it out. Might take some work."***<br>
->> ***Thanks. I'll come by later, see if I can get it."¹***<br><br>
->>>> #### ***¹ Wonas2dosgwr3 recollection, gist of a conversation, near TWO DECADES ago.***
+>> ### ***"It's in the dumpster [hugest size - holds TWO!!! tiny homes???]. You could have it, if you can get it out. Might take some work."***<br>
+>> ### ***Thanks. I'll come by later, see if I can get it."¹***<br><br>
+>>>> #### ***¹ Wonas2dosgwr3 recollection, gist of a conversation, near TWO DECADES ago.***<br>
 
 >> ***Going through an affluent neighborhood, near TWO DECADES ago², enough stuff - a la windows, doors, appliences, all manner of supplies, lumber, etc, etc, etc - by the street with "FREE" signs, to build - <ins>HOW MANY????? tiny homes - 4????? - 10????? - !!!!!?????!!!!!***</ins><br><br>
 >>>> #### ***² Wonas2dosgwr3 recollection.***
