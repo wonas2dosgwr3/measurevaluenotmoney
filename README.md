@@ -815,6 +815,15 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 >>>> #### ***¹ Except groceries, and thrift stores.***
 
+3.14j
+
+## ***World WITHOUT PRICES. Part J. Who needs prices, if half the useful stuff in the world (that's not in thrift stores) is out by the street with a "FREE" sign on it, or in the overflowing dumpster (nearist thrift store's a mile away, can't be bothered)?????***
+>> ### ***"Is the front door still around? I been watching this project [house remodel demolition], was hoping I could get the front door."***<br>
+>> ***"It's in the dumpster [hugest size - holds TWO!!! tiny homes]. You could have it, if you can get it out. Might take some work."***<br>
+>> ***Thanks. I'll come by later, see if I can get it."¹***<br>
+
+>> ***Going through an affluent neighborhood, near TWO DECADES ago², enough stuff - a la windows, doors, appliences, all manner of supplies, lumber, etc, etc, etc - by the street with "FREE" signs, to build - HOW MANY????? tiny homes - 4????? - 10????? - !!!!!?????!!!!!
+
 3.15
 
 # ***Nobody's ever at home.¹***
@@ -829,7 +838,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 3.16
 
-# ***Natural law (signs of life). Part 1.***
+# ***Natural law (signs of life). Version 1.***
 >> ***"Who's that stomping all over my face***<br>
 >> ***Where's that silhouette I'm trying to trace***<br>
 >> ***Who's putting sponge in the bells I once rung***<br>
