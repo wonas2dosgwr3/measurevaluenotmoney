@@ -818,7 +818,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 3.14j
 
-## ***World WITHOUT PRICES. Part J. Who needs prices, if half the useful stuff in the world (that's not in thrift stores) is <ins>out by the street with a "FREE" sign</ins> on it, or in the <ins>overflowing dumpster</ins> (nearist thrift store's a mile away, can't be bothered)?????***
+## ***World WITHOUT PRICES. Part J. Who needs prices, if half the useful stuff in the world (that's nsot in thrift stores) is <ins>out by the street with a "FREE" sign</ins> on it, or in the <ins>overflowing dumpster</ins> (nearist thrift store's a mile away, can't be bothered)?????***
 >> ### ***"Is the front door still around? I been watching this project [house remodel demolition], was hoping I could get the front door."***<br>
 >> ### ***"It's in the dumpster [hugest size - holds TWO!!! tiny homes???]. You could have it, if you can get it out. Might take some work."***<br>
 >> ### ***Thanks. I'll come by later, see if I can get it."¹***<br><br>
@@ -826,6 +826,13 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 >> ### ***Going through an affluent neighborhood, near TWO DECADES ago², enough stuff - a la windows, doors, appliances, all manner of supplies, lumber, etc, etc, etc - by the street with "FREE" signs, to build - <ins>HOW MANY????? tiny homes - 4????? - 10????? - !!!!!?????!!!!!</ins>***<br><br>
 >>>> #### ***² Wonas2dosgwr3 information.***
+
+3.14k
+
+## ***World WITHOUT PRICES. Part K. A SINKING SHIP (human labor) labeled "INFLATION" ("everything's going up").***
+### ***As long as COMPETITION GOING DOWN!!!!! is called "everything's going up", bad merchandise is safe (from everything except natural law, inalienable rights). The BUBBLE'S!!!!! going up!!!!!<br><br>Paycheck blight - EVERGREEN TO DECIDUOUS!!!!!¹ - paychecks no longer include housing cost - homeless greenbacks (homeless dollars) turn brown all year around.²***<br><br>
+>> #### ***¹ Non-seasonal, ALL YEAR AROUND!!!!!<br><br>² Definitive discussion by The Silhouettes:***
+https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.15
 
