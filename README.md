@@ -811,10 +811,11 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> ***Never did work, repairs galore, obsolete at the store [out the door?]***<br>
 >> ***Payments is all bad merchandise, not buyin' nothin' at all!!!***<br><br>
 
->>>> #### ***Song lyric daydream. Inspired, adapted, from the DEFINITIVE DISCUSSION of <ins>bad merchandise milestone - Prohibition.</ins> See Jorma Kaukonen:***<br>
+>>>> #### ***Song lyric daydream. Inspired, adapted, from the DEFINITIVE DISCUSSION² of <ins>bad merchandise milestone - Prohibition.</ins> See Jorma Kaukonen:***<br>
 >>>> https://youtu.be/pOMP2MvuGeM?feature=shared
 
->>>> #### ***¹ Except groceries, and thrift stores.***
+>>>> #### ***¹ Except groceries, and thrift stores.***<br><br>
+>>>> #### ***² By Clayton Mcmichen***
 
 3.14j
 
