@@ -831,7 +831,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 3.14k
 
 ## ***World WITHOUT PRICES. Part K. <ins>SINKING!!!!!</ins> ship (human labor) labeled "inflation" ("everything's <ins>GOING UP"!!!!!</ins>).***
-### ***As long as competition <ins>GOING DOWN!!!!!</ins> is called "everything's <ins>GOING UP"!!!!!</ins>, bad merchandise is safe (from everything except natural law, inalienable rights). The <ins>BUBBLE'S!!!!! going up!!!!!</ins> <br><br>Paycheck blight - EVERGREEN TO DECIDUOUS!!!!!¹ - paychecks <ins>no longer include housing cost</ins> - homeless greenbacks (homeless dollars) <ins>turn brown all year around.²</ins>***<br><br>
+### ***As long as competition <ins>GOING DOWN!!!!! is called</ins> "everything's <ins>GOING UP"!!!!!</ins>, bad merchandise is safe (from everything except natural law, inalienable rights). The <ins>BUBBLE'S!!!!! going up!!!!!</ins> <br><br>Paycheck blight - EVERGREEN TO DECIDUOUS!!!!!¹ - paychecks <ins>no longer include housing cost</ins> - homeless greenbacks (homeless dollars) <ins>turn brown all year around.²</ins>***<br><br>
 >> #### ***¹ Non-seasonal, ALL YEAR AROUND!!!!!<br><br>² Definitive discussion by The Silhouettes:***
 https://youtu.be/R97L-nkgrxo?feature=shared
 
