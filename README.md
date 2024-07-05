@@ -838,7 +838,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14l
 
 ## ***World WITHOUT PRICES. Part L. Measuring <ins>length or weight</ins> by means of the INCH OR OUNCE SUPPLY (updated daily, first thing on news); or by LENGTH AND WEIGHT CONTROLS; or by LATEST NEWS EVENTS (second thing on news - riots,  droughts, earthquakes, UFOs); or - ?????***
-### ***<ins>RATIONING</ins> inches and ounces to meet the crisis.***
+### ***<ins>RATIONING</ins> inches and ounces to meet the crisis.***<br><br>
 
 
 3.15
