@@ -835,6 +835,11 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> #### ***¹ Non-seasonal, ALL YEAR AROUND!!!!!<br><br>² Definitive discussion by The Silhouettes:***
 https://youtu.be/R97L-nkgrxo?feature=shared
 
+3.14l
+
+## ***World WITHOUT PRICES. Part L. Measuring length or weight by means of the INCH OR OUNCE SUPPLY (updated daily, first thing on news); or by LENGTH AND WEIGHT CONTROLS; or by LATEST NEWS EVENTS (second thing on news - riots,  droughts, earthquakes, UFOs); or - ?????***
+### ***RATIONING inches and ounces to meet the crisis.***
+
 3.15
 
 # ***Nobody's ever at home.¹***
