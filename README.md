@@ -609,7 +609,15 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00i
 ## ***Part 9.<br>Even a bluejay***
 ### ***... steals <ins>my</ins> food ... looks down its beak at me 'cause I <ins>can't fly</ins> ... got news for that bluejay ... got an agenda ... noticed that bird was comin' 'round fairly often ... just bein' friendly I figured ... wasn't til I realized <ins>half my important food was gone!!!</ins>, I found out what was <ins>GOIN' ON!!!</ins> ... got news for that bird ... when that bird <ins>least expects</ins> it ... gonna get a <ins>trade secret</ins> from that bird ... that bird's gonna have <ins>an attack</ins> when it sees <ins>ME flyin' by</ins> ...***<br>
->>> #### ***Wonas2dosgwr3 firsthand experience***
+>>> #### ***Wonas2dosgwr3 firsthand ex745__=+2"[$perience***
+
+3.00j
+## ***Part 10.<br>Even a marshal***
+### ***"Like you know, I've been marshal here and there, but never had much trouble with folks. I leave their politics and religion be. Folks can think the way they want, act the way they please, even to acting the fool. All I ask is they don't make too much noise and don't interfere with other people."***<br><br>
+>> #### ***"Elisha Comes To Red Horse", Louis L'Amour, <ins>The Collected Short Stories Of Louis L'Amour</ins>, Frontier Stories, Vol. 1. 
+2003***<br><br>
+
+
 
 3.01a
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
