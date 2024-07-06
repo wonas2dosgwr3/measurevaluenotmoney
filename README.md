@@ -845,7 +845,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14l
 
 ## ***World WITHOUT PRICES. Part L. Measuring <ins>length or weight</ins> by means of the INCH OR OUNCE SUPPLY (updated daily, first thing on news); or by LENGTH AND WEIGHT CONTROLS; or by LATEST NEWS EVENTS (second thing on news - riots,  droughts, earthquakes, UFOs); or - ?????***
-### ***<ins>RATIONING</ins> inches and ounces to meet the crisis.***<br><br>
+### ***<ins>RATIONING</ins> inches and ounces to meet the crisis.***<br><br>***Notwithstanding a 1980 paint-stirring stick is now 10 ft of lumber, and a peanut weighs 10 pounds, no one doubts the accuracy of length and weight measuements. 23,000 plus trained experts¹ monitoring the inch and ounce supplies, surely keep "inflation" (UP!!!!!) of measurements within the acceptable annual range of 2-3 percent. Human labor relentlessly going DOWN!!!!! - measurable stuff (EVERYTHING!!!!!) fleeing - real markets (human needs) ignored, forgotten - houses for renting and resale only, the fewer the better, don't build any more, live on wheels instead - not noticed (YET!!!!!).***<br><br>***RATIONING inches and ounces to meet the crisis.***
 
 
 3.15
