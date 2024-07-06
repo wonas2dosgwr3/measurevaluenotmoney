@@ -609,7 +609,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00i
 ## ***Part 9.<br>Even a bluejay***
 ### ***... steals <ins>my</ins> food ... looks down its beak at me 'cause I <ins>can't fly</ins> ... got news for that bluejay ... got an agenda ... noticed that bird was comin' 'round fairly often ... just bein' friendly I figured ... wasn't til I realized <ins>half my important food was gone!!!</ins>, I found out what was <ins>GOIN' ON!!!</ins> ... got news for that bird ... when that bird <ins>least expects</ins> it ... gonna get a <ins>trade secret</ins> from that bird ... that bird's gonna have <ins>an attack</ins> when it sees <ins>ME flyin' by</ins> ...***<br>
->>> #### ***Wonas2dosgwr3 firsthand ex745__=+2"[$perience***
+>>> #### ***Wonas2dosgwr3 firsthand experience***
 
 3.00j
 ## ***Part 10.<br>Even a marshal***
