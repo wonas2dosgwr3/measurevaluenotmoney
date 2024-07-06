@@ -614,8 +614,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00j
 ## ***Part 10.<br>Even a marshal***
 ### ***"Like you know, I've been marshal here and there, but never had much trouble with folks. I leave their politics and religion be. Folks can think the way they want, act the way they please, even to acting the fool. All I ask is they don't make too much noise and don't interfere with other people."***<br><br>
->> #### ***"Elisha Comes To Red Horse", Louis L'Amour, <ins>The Collected Short Stories Of Louis L'Amour</ins>, Frontier Stories, Vol. 1. 
-2003***<br><br>
+>> #### ***"Elisha Comes To Red Horse", Louis L'Amour, <ins>The Collected Short Stories Of Louis L'Amour</ins>, Frontier Stories, Vol. 1. 2003***<br><br>
 
 
 
