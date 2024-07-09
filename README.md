@@ -857,8 +857,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***- ¿Qué le vamos a hacer? Aunque no me conviene cambiarlo hoy, me hace falta el dinero. [Nothing can be done about it. Although it's not advisable for me to change it today, I need the money.]***
 >> #### ***- Ya sabe usted que <ins>EL CAMBIO SUBE Y BAJA SEGÚN LAS ÚLTIMAS NOTICIAS POLÍTICAS Y FINANCIERAS.</ins> [Of course you know that <ins>THE RATE RISES AND FALLS ACCORDING TO THE LATEST POLITICAL AND FINANCIAL NEWS.]</ins>***
 >> #### ***- <ins>LA NOTICIA DE LA GUERRA HABRÁ PRODUCIDO LA BAJA DE HOY. [THE WAR NEWS MUST HAVE CAUSED TODAY'S FALL.]</ins>***
->> #### ***- Eso es. (Contando) Ðiez, veinte ... [That's right. (Counting) Ten, twenty ...]***<br><br>
-     [formatting added]
+>> #### ***- Eso es. (Contando) Ðiez, veinte ... [That's right. (Counting) Ten, twenty ...]***<br>
+   [formatting added]
 >>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***
  
 
