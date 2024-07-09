@@ -859,7 +859,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***- <ins>LA NOTICIA DE LA GUERRA HABRÁ PRODUCIDO LA BAJA DE HOY. [THE WAR NEWS MUST HAVE CAUSED TODAY'S FALL.]</ins>***
 >> #### ***- Eso es. (Contando) Diez, veinte ... [That's right. (Counting) Ten, twenty ...]***<br>
  [formatting added]
->>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***
+>>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***<br><br>
  
 
 3.14l-b
