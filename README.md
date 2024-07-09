@@ -842,26 +842,27 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> #### ***¹ Non-seasonal, ALL YEAR AROUND!!!!!<br><br>² Definitive discussion by The Silhouettes:***
 https://youtu.be/R97L-nkgrxo?feature=shared
 
-3.14l
+3.14l-a
 
-## ***World WITHOUT PRICES. Part L. Measuring <ins>length or weight</ins> by means of the INCH OR OUNCE SUPPLY (updated daily, first thing on news); or by LENGTH AND WEIGHT CONTROLS; or by LATEST NEWS EVENTS (second thing on news - riots,  droughts, earthquakes, UFOs); or - ?????***
+## ***World WITHOUT PRICES. Part L-a. Measuring <ins>length or weight</ins> by means of the INCH OR OUNCE SUPPLY (updated daily, first thing on news); or by LENGTH AND WEIGHT CONTROLS; or by LATEST NEWS EVENTS (second thing on news - riots,  droughts, earthquakes, UFOs); or - ?????***
 ### ***<ins>RATIONING</ins> inches and ounces to meet the crisis.***<br><br>
 
->> #### ***EN EL BANCO***<br><br>
->> #### ***- ¿Es este banco sucursal del Banco Nacional?***<br>
->> #### ***- Sí, señor. A sus órdenes.***<br>
->> #### ***- Aquí traigo una carta de crédito.***<br>
->> #### ***- ¿Qué cantidad quiere usted retirar?***<br>
->> #### ***- Quiero retirar cien dolares. ¿Cuál es EL TIPO DE CAMBIO?***<br>
->> #### ***- HOY EL CAMBIO NO ES FAVORABLE PARA  USTED.***<br>
->> #### ***- ¿Qué le vamos a hacer? Aunque no me conviene cambiarlo hoy, me hace falta el dinero.***<br>
->> #### ***- Ya sabe usted que EL CAMBIO SUBE Y BAJA SEGÚN LAS ÚLTIMAS NOTICIAS POLÍTICAS Y FINANCIERAS.***<br>
->> #### ***- LA NOTICIA DE LA GUERRA HABRÁ PRODUCIDO LA BAJA DE HOY.***<br>
->> #### ***- Eso es. (Contando) Ðiez, veinte ... ***<br><br>
+>> #### ***EN EL BANCO [IN THE BANK]***<br><br>
+>> #### ***- ¿Es este banco sucursal del Banco Nacional? [Is this bank a branch of the National Bank?]***
+>> #### ***- Sí, señor. A sus órdenes. [Yes, sir. What can I do for you?]***
+>> #### ***- Aquí traigo una carta de crédito. [I have a letter of credit here.]***
+>> #### ***- ¿Qué cantidad quiere usted retirar? [What amount do you wish to withdraw?]***
+>> #### ***- Quiero retirar cien dolares. ¿Cuál es EL TIPO DE CAMBIO? [I'd like to withdraw a hundred dollars. What is the RATE OF EXCHANGE?]***
+>> #### ***- HOY EL CAMBIO NO ES FAVORABLE PARA  USTED. [THE EXCHANGE IS NOT FAVORABLE TO YOU TODAY.]***
+>> #### ***- ¿Qué le vamos a hacer? Aunque no me conviene cambiarlo hoy, me hace falta el dinero. [Nothing can be done about it. Although it's not advisable for me to change it today, I need the money.]***
+>> #### ***- Ya sabe usted que EL CAMBIO SUBE Y BAJA SEGÚN LAS ÚLTIMAS NOTICIAS POLÍTICAS Y FINANCIERAS. [Of course you know that THE RATE RISES AND FALLS ACCORDING TO THE LATEST POLITICAL AND FINANCIAL NEWS.]***
+>> #### ***- LA NOTICIA DE LA GUERRA HABRÁ PRODUCIDO LA BAJA DE HOY. [THE WAR NEWS MUST HAVE CAUSED TODAY'S FALL.]***
+>> #### ***- Eso es. (Contando) Ðiez, veinte ... [That's right. (Counting) Ten, twenty ...]***<br><br>
      [formatting added]
 >>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***
  
 
+3.14l-b
 
 ***Notwithstanding <ins>a 1980 paint-stirring stick is now 10 ft of lumber, and a peanut weighs 10 pounds</ins>, no one doubts the accuracy of length and weight measurements. 23,000 plus trained experts¹ monitoring the inch and ounce supplies, surely keep "inflation" (<ins>UP!!!!!</ins>) of measurements within the acceptable annual range of 2-3 percent, and <ins>more visible than</ins> human labor relentlessly going <ins>DOWN!!!!!</ins> - measurable stuff (EVERYTHING!!!!!) fleeing - real markets (human needs) ignored, forgotten - houses for renting and resale only, the fewer the better, don't build any more, live on wheels instead - <ins>not noticed (YET!!!!!).</ins>***<br><br>***<ins>RATIONING</ins> inches and ounces to meet the crisis.***
 
