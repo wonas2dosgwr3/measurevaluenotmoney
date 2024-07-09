@@ -864,7 +864,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.14l-b
 
-***Notwithstanding <ins>a 1980 paint-stirring stick is now 10 ft of lumber, and a peanut weighs 10 pounds</ins>, no one doubts the accuracy of length and weight measurements. 23,000 plus trained experts¹ monitoring the inch and ounce supplies, surely keep "inflation" (<ins>UP!!!!!</ins>) of measurements within the acceptable annual range of 2-3 percent, and <ins>more visible than</ins> human labor relentlessly going <ins>DOWN!!!!!</ins> - measurable stuff (EVERYTHING!!!!!) fleeing - real markets (human needs) ignored, forgotten - houses for renting and resale only, the fewer the better, don't build any more, live on wheels instead - <ins>not noticed (YET!!!!!).</ins>***<br><br>***<ins>RATIONING</ins> inches and ounces to meet the crisis.***
+## ***Part L-b.***
+### ***Notwithstanding <ins>a 1980 paint-stirring stick is now 10 ft of lumber, and a peanut weighs 10 pounds</ins>, no one doubts the accuracy of length and weight measurements. 23,000 plus trained experts¹ monitoring the inch and ounce supplies, surely keep "inflation" (<ins>UP!!!!!</ins>) of measurements within the acceptable annual range of 2-3 percent, and <ins>more visible than</ins> human labor relentlessly going <ins>DOWN!!!!!</ins> - measurable stuff (EVERYTHING!!!!!) fleeing - real markets (human needs) ignored, forgotten - houses for renting and resale only, the fewer the better, don't build any more, live on wheels instead - <ins>not noticed (YET!!!!!).</ins>***<br><br>***<ins>RATIONING</ins> inches and ounces to meet the crisis.***
 
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
