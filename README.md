@@ -845,7 +845,25 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14l
 
 ## ***World WITHOUT PRICES. Part L. Measuring <ins>length or weight</ins> by means of the INCH OR OUNCE SUPPLY (updated daily, first thing on news); or by LENGTH AND WEIGHT CONTROLS; or by LATEST NEWS EVENTS (second thing on news - riots,  droughts, earthquakes, UFOs); or - ?????***
-### ***<ins>RATIONING</ins> inches and ounces to meet the crisis.***<br><br>***Notwithstanding <ins>a 1980 paint-stirring stick is now 10 ft of lumber, and a peanut weighs 10 pounds</ins>, no one doubts the accuracy of length and weight measurements. 23,000 plus trained experts¹ monitoring the inch and ounce supplies, surely keep "inflation" (<ins>UP!!!!!</ins>) of measurements within the acceptable annual range of 2-3 percent, and <ins>more visible than</ins> human labor relentlessly going <ins>DOWN!!!!!</ins> - measurable stuff (EVERYTHING!!!!!) fleeing - real markets (human needs) ignored, forgotten - houses for renting and resale only, the fewer the better, don't build any more, live on wheels instead - <ins>not noticed (YET!!!!!).</ins>***<br><br>***<ins>RATIONING</ins> inches and ounces to meet the crisis.***
+### ***<ins>RATIONING</ins> inches and ounces to meet the crisis.***<br><br>
+
+>> #### ***EN EL BANCO***<br><br>
+>> #### ***- ¿Es este banco sucursal del Banco Nacional?***<br>
+>> #### ***- Sí, señor. A sus órdenes.***<br>
+>> #### ***- Aquí traigo una carta de crédito.***<br>
+>> #### ***- ¿Qué cantidad quiere usted retirar?***<br>
+>> #### ***- Quiero retirar cien dolares. ¿Cuál es EL TIPO DE CAMBIO?***<br>
+>> #### ***- HOY EL CAMBIO NO ES FAVORABLE PARA  USTED.***<br>
+>> #### ***- ¿Qué le vamos a hacer? Aunque no me conviene cambiarlo hoy, me hace falta el dinero.***<br>
+>> #### ***- Ya sabe usted que EL CAMBIO SUBE Y BAJA SEGÚN LAS ÚLTIMAS NOTICIAS POLÍTICAS Y FINANCIERAS.***<br>
+>> #### ***- LA NOTICIA DE LA GUERRA HABRÁ PRODUCIDO LA BAJA DE HOY.***<br>
+>> #### ***- Eso es. (Contando) Ðiez, veinte ... ***<br><br>
+     [formatting added]
+>>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***
+ 
+
+
+***Notwithstanding <ins>a 1980 paint-stirring stick is now 10 ft of lumber, and a peanut weighs 10 pounds</ins>, no one doubts the accuracy of length and weight measurements. 23,000 plus trained experts¹ monitoring the inch and ounce supplies, surely keep "inflation" (<ins>UP!!!!!</ins>) of measurements within the acceptable annual range of 2-3 percent, and <ins>more visible than</ins> human labor relentlessly going <ins>DOWN!!!!!</ins> - measurable stuff (EVERYTHING!!!!!) fleeing - real markets (human needs) ignored, forgotten - houses for renting and resale only, the fewer the better, don't build any more, live on wheels instead - <ins>not noticed (YET!!!!!).</ins>***<br><br>***<ins>RATIONING</ins> inches and ounces to meet the crisis.***
 
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
