@@ -869,6 +869,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
+3.14m
+
+## ***World WITHOUT PRICES. Part M. Crossing paths MORE with the land under other people's feet (hunting and gathering).***
+### ***Neglecting LAND USE (the land under your own feet), crossing paths MORE.***<br><br>***Can't be a better mouse trap (specialization) if it's NEGLECTING LAND USE, crossing paths MORE.***<br><br>***Without <ins>LAND USE!!!!! (SPECIALIZATION!!!!!)</ins>, there can only be crossing paths, hunting and gathering, resource waste, BUBBLES.***<br><br>***The RICHEST PERSON has an iota more right to LAND***
+# <ins>***USE***</ins>
+### ***than anyone else?????, should be <ins>CROSSING PATHS MORE?????***</ins>
+
+
 
 3.15
 
