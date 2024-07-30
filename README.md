@@ -1,4 +1,4 @@
-01.00 
+1.00 
 measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
