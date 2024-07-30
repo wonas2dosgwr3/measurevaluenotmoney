@@ -872,7 +872,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14m
 
 ## ***World WITHOUT PRICES. Part M. <ins>Crossing paths MORE</ins> with the land under other people's feet (hunting and gathering).***
-### ***Neglecting <ins>LAND USE!!!!! (THE LAND UNDER YOUR OWN FEET!!!!!)</ins>, crossing paths MORE.***<br><br>***Can't be a better mouse trap (specialization) if it's NEGLECTING LAND USE, crossing paths MORE.***<br><br>***Without <ins>LAND USE!!!!! (SPECIALIZATION!!!!!)</ins>, there can only be crossing paths, hunting and gathering, resource waste, BUBBLES.***<br><br>***The RICHEST PERSON has an iota more right to LAND***
+### ***Neglecting <ins>LAND USE!!!!! (THE LAND UNDER YOUR OWN FEET!!!!!)</ins>, crossing paths MORE.***<br><br>***Can't be <ins>a better mouse trap (specialization)</ins> if it's NEGLECTING LAND USE, crossing paths MORE.***<br><br>***Without <ins>LAND USE!!!!! (SPECIALIZATION!!!!!)</ins>, there can only be crossing paths, hunting and gathering, resource waste, BUBBLES.***<br><br>***The RICHEST PERSON has an iota more right to LAND***
 # ***<ins>USE!!!!!</ins>***
 ### ***than anyone else, would <ins>WANT</ins> an iota more, could <ins>LEGITIMATELY BE!!!!!</ins> the richest with an iota more, would be <ins>CROSSING PATHS MORE?????</ins>***
 
