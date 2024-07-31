@@ -876,6 +876,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***<ins>USE!!!!!</ins>***
 ### ***than anyone else, would <ins>WANT</ins> an iota more, could <ins>LEGITIMATELY BE!!!!!</ins> the richest with an iota more, would be <ins>CROSSING PATHS MORE?????</ins>***
 
+3.14n
+
+## ***World WITHOUT PRICES. Part N. Decades long, ongoing, outrageous, needless, <ins>HUGE MISALLOCATION!!!!!</ins> of resources depriving people of so basic a human need as HOUSING, dating from - WHEN?????***
+### ***<ins>HUGE MISALLOCATION!!!!!</ins> of resources caused by THE INCH, THE OUNCE, LEGITIMATE MEASUREMENT OF ANYTHING?????***<br><br>***MAINSTREAM POPULAR MUSIC about homeless people from - 1988!!!!!***
+>> #### ***"And it wasn’t the exercise [Chris] Hillman got while riding his bike in Ventura that led to “Homeless,” but something he saw along the way: “There was this 30-year-old woman, with a sleeping bag and all of her belongings in a shopping cart. She didn’t have that look of insanity or psychosis or drug addiction. You could see it in her eyes” that she was not demented, only shocked and bewildered by her plight."***
+
 
 
 3.15
