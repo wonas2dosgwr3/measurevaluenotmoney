@@ -888,7 +888,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.14o
 
-## ***World WITHOUT PRICES. Part 0. The REVERSE OF PROSPERITY (<ins>SHORTAGE OF SHORTAGES!!!!!</ins>).***
+## ***World WITHOUT PRICES. Part 0. The REVERSE OF PROSPERITY (shortage of <ins>SHORTAGES!!!!!</ins>).***
 ### ***Shortages of <ins>EVERYTHING (GOODS AND SERVICES)!!!!!</ins>,  and <ins>superabundance</ins> (butterfly nets full of money from showering confetti clouds, money growing on trees, etc) of <ins>"MONEY"!!!!!</ins>.***<br><br>***Instead of PROSPERITY, abundance of <ins>everything EXCEPT</ins> MANDITORY SHORTAGE OF MONEY!!!!!***
 
 
