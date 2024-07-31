@@ -746,21 +746,21 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***
 
-3.14a
+3.14A
 
 # ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES. Part A.***
 ## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br><br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, <ins>TO CREATE PRICES!!!!!</ins>***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
-3.14b
+3.14B. 37wopb
 
 ## ***World WITHOUT PRICES. Part B.<br><br>23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION) BY OTHER PEOPLE!!!!!</ins> as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears!!!!!, as hunters and gatherers engaged in LEGAL TENDER" SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
 
-3.14c
+3.14c. 37wopc
 
 ## ***World WITHOUT PRICES. Part C.<br><br> <ins>Payments (RENT!!!) and poverty-rationing, instead of buying and selling and recycling of bad merchandise.</ins><br><br>Bad merchandise doesn't sell, <ins>the main reason for obstructing commerce and DEMANDING RENT!!! (PAYMENTS!!!; ENLARGING INSTEAD OF REDUCING LAND REQUIREMENT).</ins> As long as buying and selling controls the government, bad merchandise is removed from the marketplace and recycled. But when bad merchandise controls the  government, <ins>currency speculation REPLACES PRICES WITH FINANCIAL COMPLEXITY!!!!! (ANYBODY'S GUESS WHAT THE LEGITIMATE COST OF ANYTHING IS!!!!!)</ins>, good merchandise deserts the marketplace, and government with no resource but bad merchandise (poverty), DISPENCING EVER-BIGGER <ins>JACKPOTS OF POVERTY (BAD MERCHANDISE)</ins> TO THE CURRENCY SPECULATORS, DEMANDING <ins>EVER MORE PAYMENTS (POVERTY!!!), AND RATIONING POVERTY</ins> TO EVERYONE ELSE TO THE BITTER END, goes under, <ins>the biggest bubble bursts.</ins>***
 
-3.14d
+3.14d. 37wopd
 
 ## ***World WITHOUT PRICES. Part D.<br><br>Where's the money trail???***<br><br>***A dog chasing its tail. Every bend in the money trail leads to a <ins>wooden Indian pointing his finger somewhere else</ins>. This can't be it ...***<br><br>***El Dorado??? Wooden Indians with STREETS PAVED WITH GOLD!!! under their feet!!!¹ But if streets paved with gold were money, there'd soon be a <ins>SHORTAGE OF STREETS!!!</ins>, and much else, a la energy shortage, etc, etc, as people in need of money <ins>HELPED THEMSELVES TO THE STREETS!!!</ins> instead of buying and selling - <ins>HELPED THEMSELVES TO THE SHORTAGES!!!!!</ins>, but not money, which comes only of buying and selling. Streets paved with gold can't be the money trail ...<br><br>What if I gave TWO GUINEAS to a wooden Indian??? Worked on a natural-born idiot ...***
 >> ### ***"the Bailie, turning to me, observed that <ins>the 'creature was a natural-born idiot.'</ins> I testified my own gratitude [for Dougal's great services in dire straits] in a way which Dougal much better relished [than principal beneficiary Bailie's offer of a day job], by <ins>SLIPPING A COUPLE OF GUINEAS INTO HIS HAND. He no sooner felt the touch of the gold than he sprung twice or thrice from the earth with the agility of a wild buck, flinging out first one heel and then another, in a manner which would have astonished a French dancing-master</ins>. He ran to the boatmen to show them the prize, and a small gratuity made them take part in <ins>his raptures</ins>. He then, to use a favourite expression of the dramatic John Bunyan, <ins>'went on his way, and I saw him no more.'</ins>"***
@@ -771,7 +771,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ¹ Gold Vault
 Learn about the Federal Reserve Bank of New York's gold vault https://www.newyorkfed.org/aboutthefed/goldvault.html<br><br>
 
-3.14e
+3.14e. 37wope
 
 ## ***World WITHOUT PRICES. Part E. Drain Loch Lomond for farming, 1817. LAND VALUE.***
 ### ***153 years before Earth Day.<br><br>The largest lake in Great Britain by surface area (27.5 sq mi).¹***<br><br>
@@ -781,13 +781,13 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ## ***No law you have to measure value, remember having your life saved, even if government recognizes such a thing ... ... natural-born idiot Bailie.***<br><br>
 >>>> #### ***¹ Loch Lomond (Wikipedia). https://en.m.wikipedia.org/wiki/Loch_Lomond***<br><br><br>***² <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***<br><br><br>
 
-3.14f
+3.14f. 37wopf
 
 ## ***World WÌTHOUT PRICES. Part F. Except LAND!!!!!***
 ### ***<ins>Tyrants (bad merchandise) pay WITH THE LAND UNDER THEIR OWN FEET!!!!!</ins> - the glory that was Rome, etc, etc, etc ...***<br><br>***GOOD WILL¹ squares it for everyone else.***<br><br>***NO MAN'S LAND² (NO TRESPASSING) <ins>strictly enforced!!!!!</ins> - the glory that was Rome, etc, etc, etc ...***<br><br>***Goods and services (COMPETITION!!!) in full retreat (world without goods and services!!!, WITHOUT COMPETITION!!!), <ins>NOTHING IN SIGHT BUT LAND (ALL MINE!!!!!)!!!, bad merchandise feels safe</ins> - until THE PLUNDER RUNS OUT, THEN THE LAND UNDERFOOT RUNS OUT!!!!!; <ins>bad merchandise SUBMERGES</ins> IN THE FINANCIAL TARPIT IT REPLACED PRICES WITH, <ins>EVICTED</ins>, THE SAME AS EVERY OTHER BUBBLE!!!!! - the glory that was Rome, etc, etc, etc. <ins>ANOTHER EXTINCT DINASOUR</ins>.***
 >>> #### ***¹ Good will: The LONG-NEGLECTED LEGITIMATE BUSINESS OF THE PETTIFOGGING (US JUDICIAL) BRANCH OF GOVERNMENT. NATURAL LAW. Common sense. Commerce. The marketplace. NO MAN'S LAND.***<br><br>***² No man's land. See 3.00***
 
-3.14g
+3.14g. 37wopg
 
 ## ***World WITHOUT PRICES. Part G. JACKPOTS AND POVERTY instead (<ins>SAVING BAD MERCHANDISE</ins>).***
 ### ***Trafficking in jackpots.***<br><br>
@@ -803,13 +803,13 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 >>> #### ***¹ See 2.32. THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 
-3.14h
+3.14h. 37woph
 
 ## ***World WITHOUT PRICES. Part H. Homeless dollar DISPENSERS. Can't be a HOME!!!!!***
 ### ***Houses are not for living in, if you can help it.***<br><br>***Living in a homeless dollar dispenser you own, <ins>TURNS IT OFF!!!!!</ins>***<br><br>***MOVING OUT!!!!! - SOMEBODY ELSE!!!!! living in it - <ins>TURNS IT ON!!!!!</ins>***<br><br>***<ins>REVERSING THE AMERICAN DREAM!!!!!¹</ins> HITS THE JACKPOT!!!!! Owning a house <ins>SOMEBODY ELSE!!!!!²</ins> lives in¹, instead of owning YOUR OWN house, PREVENTS IT FROM BEING EITHER <ins>THEIR HOME OR YOURS!!!!!</ins> - the only requirement (no signs of life, installment plan, poverty) for a homeless dollar dispenser to <ins>turn on.</ins>***<br><br>***A "very smart investor" owns FIFTEEN houses - FIFTEEN homeless dollar dispensers!!!!! - FIFTEEN <ins>HOMELESS HOUSES!!!!!³</ins>***<br><br>***Living ON WHEELS⁴ (TRAVELING) instead: Shopping carts to RVs for people who EARN homeless dollars; luxury modes (liners, etc) for those who DON'T - CURRENCY SPECULATORS ... till the plunder runs out.***
 >>> #### ***¹ Returning barbarism.***<br><br>***² You lose, I win!!!!!***<br><br>***³ wonas2dosgwr3 firsthand report.***<br><br>***⁴ <ins>One-quarter of US population</ins> living on wheels? - wonas2dosgwr3 guestimate. One dissenter, career 18-wheeler driver Paul, said MORE, he'd guess.***
 
-3.14i
+3.14i. 37wopi
 
 ## ***World WITHOUT PRICES. Part I. Who needs prices if you're NOT REALLY BUYING ANYTHING???¹ Nothing but payments, instead.***
 >> ***Bad merchandise has done me wrong***<br>
@@ -824,7 +824,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >>>> #### ***¹ Except groceries, and thrift stores.***<br><br>
 >>>> #### ***² By Clayton Mcmichen***
 
-3.14j
+3.14j. 37wopj
 
 ## ***World WITHOUT PRICES. Part J. Who needs prices, if half the useful stuff in the world (that's nsot in thrift stores) is <ins>out by the street with a "FREE" sign</ins> on it, or in the <ins>overflowing dumpster</ins> (nearist thrift store's a mile away, can't be bothered)?????***
 >> ### ***"Is the front door still around? I been watching this project [house remodel demolition], was hoping I could get the front door."***<br>
@@ -835,14 +835,14 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> ### ***Going through an affluent neighborhood, near TWO DECADES ago², enough stuff - a la windows, doors, appliances, all manner of supplies, lumber, etc, etc, etc - by the street with "FREE" signs, to build - <ins>HOW MANY????? tiny homes - 4????? - 10????? - !!!!!?????!!!!!</ins>***<br><br>
 >>>> #### ***² Wonas2dosgwr3 information.***
 
-3.14k
+3.14k. 37wopk
 
 ## ***World WITHOUT PRICES. Part K. <ins>SINKING!!!!!</ins> ship (human labor) labeled "inflation" ("everything's <ins>GOING UP"!!!!!</ins>).***
 ### ***As long as competition <ins>GOING DOWN!!!!! is called</ins> "everything's <ins>GOING UP"!!!!!</ins>, bad merchandise is safe (from everything except natural law, inalienable rights). The <ins>BUBBLE'S!!!!! going up!!!!!</ins> <br><br>Paycheck blight - EVERGREEN TO DECIDUOUS!!!!!¹ - paychecks <ins>no longer include housing cost</ins> - homeless greenbacks (homeless dollars) <ins>turn brown all year around.²</ins>***<br><br>
 >> #### ***¹ Non-seasonal, ALL YEAR AROUND!!!!!<br><br>² Definitive discussion by The Silhouettes:***
 https://youtu.be/R97L-nkgrxo?feature=shared
 
-3.14l-a
+3.14l-a. 37wopl-a
 
 ## ***World WITHOUT PRICES. Part L-a. Measuring <ins>length or weight</ins> by means of the INCH OR OUNCE SUPPLY (updated daily, first thing on news); or by LENGTH AND WEIGHT CONTROLS; or by LATEST NEWS EVENTS (second thing on news - riots,  droughts, earthquakes, UFOs); or - ?????***
 ### ***<ins>RATIONING</ins> inches and ounces to meet the crisis.***<br><br>
@@ -862,21 +862,21 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***<br><br>
  
 
-3.14l-b
+3.14l-b. 37wopl-b
 
 ## ***Part L-b.***
 ### ***Notwithstanding <ins>a 1980 paint-stirring stick is now 10 ft of lumber, and a peanut weighs 10 pounds</ins>, no one doubts the accuracy of length and weight measurements. 23,000 plus trained experts¹ monitoring the inch and ounce supplies, surely keep "inflation" (<ins>UP!!!!!</ins>) of measurements within the acceptable annual range of 2-3 percent, and <ins>more visible than</ins> human labor relentlessly going <ins>DOWN!!!!!</ins> - measurable stuff (EVERYTHING!!!!!) fleeing - real markets (human needs) ignored, forgotten - houses for renting and resale only, the fewer the better, don't build any more, live on wheels instead - <ins>not noticed (YET!!!!!).</ins>***<br><br>***<ins>RATIONING</ins> inches and ounces to meet the crisis.***
 
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
-3.14m
+3.14m. 37wopm
 
 ## ***World WITHOUT PRICES. Part M. <ins>Crossing paths MORE</ins> with the land under other people's feet (hunting and gathering).***
 ### ***Neglecting <ins>LAND USE!!!!! (THE LAND UNDER YOUR OWN FEET!!!!!)</ins>, crossing paths MORE.***<br><br>***Can't be <ins>a better mouse trap (specialization)</ins> if it's NEGLECTING LAND USE, crossing paths MORE.***<br><br>***Without <ins>LAND USE!!!!! (SPECIALIZATION!!!!!)</ins>, there can only be crossing paths, hunting and gathering, resource waste, BUBBLES.***<br><br>***The RICHEST PERSON has an iota more right to LAND***
 # ***<ins>USE!!!!!</ins>***
 ### ***than anyone else, would <ins>WANT</ins> an iota more, could <ins>LEGITIMATELY BE!!!!!</ins> the richest with an iota more, would be <ins>CROSSING PATHS MORE?????</ins>***
 
-3.14n
+3.14n. 37wopn
 
 ## ***World WITHOUT PRICES. Part N. Decades long, ongoing, outrageous, needless, <ins>HUGE MISALLOCATION!!!!!</ins> of resources depriving people of so basic a human need as <ins>HOUSING</ins>, dating from - <ins>WHEN?????</ins>***
 ### ***<ins>HUGE MISALLOCATION!!!!!</ins> of resources caused by THE INCH, THE OUNCE, <ins>LEGITIMATE MEASUREMENT OF ANYTHING?????</ins>***<br><br>***NOBODY <ins>PAYS</ins> TO BE DEPRIVED OF HOUSING.***<br><br>***MAINSTREAM POPULAR MUSIC about homeless people from - <ins>1988?????!!!!!</ins>***
@@ -886,7 +886,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***" "Homeless" tells the story of a woman and her children living on the streets. Hillman told <ins>The Tennessean</ins> in 1988: "I saw a woman who had the look in her, not of a drug addict or a mental patient, but just of a person. Steve Hill and I concocted a scenario based on that."[5]"***<br>
 >>>> ##### ***- Goldsmith, Thomas (October 8, 1988). "'Troubles and trials in three-part harmony'". <ins>The Tennessean</ins>. [From Wikipedia. "Running (The Desert Rose Band album)"]<br>https://en.m.wikipedia.org/wiki/Running_(The_Desert_Rose_Band_album)***
 
-3.14o
+3.14o. 37wopo
 
 ## ***World WITHOUT PRICES. Part 0. The REVERSE OF PROSPERITY (shortage of <ins>SHORTAGES!!!!!</ins>).***
 ### ***Shortages of <ins>EVERYTHING (GOODS AND SERVICES)!!!!!</ins>,  and <ins>superabundance</ins> (butterfly nets full of money from showering confetti clouds, money growing on trees, etc) <ins> of "MONEY"!!!!!</ins>.***<br><br>***Instead of PROSPERITY, abundance of <ins>everything EXCEPT</ins> -  MANDITORY SHORTAGE OF MONEY!!!!!***
