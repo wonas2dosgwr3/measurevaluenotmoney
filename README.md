@@ -886,6 +886,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***" "Homeless" tells the story of a woman and her children living on the streets. Hillman told <ins>The Tennessean</ins> in 1988: "I saw a woman who had the look in her, not of a drug addict or a mental patient, but just of a person. Steve Hill and I concocted a scenario based on that."[5]"***<br>
 >>>> ##### ***- Goldsmith, Thomas (October 8, 1988). "'Troubles and trials in three-part harmony'". <ins>The Tennessean</ins>. [From Wikipedia. "Running (The Desert Rose Band album)"]<br>https://en.m.wikipedia.org/wiki/Running_(The_Desert_Rose_Band_album)***
 
+3.14o
+
+## ***World WITHOUT PRICES. Part 0. The REVERSE OF PROSPERITY (<ins>SHORTAGE OF SHORTAGES</ins>).***
+### ***Shortages of <ins>EVERYTHING (GOODS AND SERVICES)!!!!!</ins>,  and <ins>superabundance</ins> (butterfly nets full of money from showering confetti clouds, money growing on trees, etc) of <ins>MONEY!!!!!</ins>.***<br><br>***Instead of PROSPERITY, abundance of everything EXCEPT MANDITORY SHORTAGE OF MONEY!!!!!***
 
 
 
