@@ -921,9 +921,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.17
 
-# ***Countin' the score ...***
+# ***Countin' the score ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
 >> ### ***Un Savetier chantait du matin jusqu'au soir.***<br>
 >> ### ***C'était merveilles de le voir, merveilles de l'ouïr; il faisait des passages, plus content qu'aucun des Sept Sages;***<br>
->> ### ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance.***
+>> ### ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance. ... ... En son hôtel il fait venir le chantier, et lui dit: 《Ah çà, sire Grégoire, <ins>que gagnez-vous par an?</ins>***<br>***Par an, moi foi, monsieur, dit avec un ton de rieur le gaillard savetier, ce n'est point ma manière de compter de la sorte, et je n'entasse guère un jour sur l'autre: il suffit qu'à la fin j'attrape le bout de l'année; chaque jour amène son pain.***<br>***- Eh bien! <ins>que gagnez-vous, dites-moi, par journée?</ins>
 
