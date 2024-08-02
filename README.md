@@ -917,4 +917,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ***Joinin' and listenin' and talkin' in rhymes***<br>
 >> ***Stoppin' the feeling to wait for the times"***<br><br>
 
->>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared
+>>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br>
+
+3.17
+
+# ***Countin' the score ...***
+>> ## ***Le Savetier Et Le Financier***
+>> ### ***Un Savetier chantait du matin jusqu'au soir.***<br>
+     ***C'était merveilles de le voir, merveilles de l'ouïr; il faisait des passages, plus content qu'aucun des Sept Sages;***<br>
+     ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance.***
+
