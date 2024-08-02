@@ -915,7 +915,23 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ***To singing in the meaning of what's in my mind***<br>
 >> ***Before I can take home what's rightfully mine***<br>
 >> ***Joinin' and listenin' and talkin' in rhymes***<br>
->> ***Stoppin' the feeling to wait for the times"***<br><br>
+>> ***Stoppin' the feeling to wait for the times" ...***<br><br>
+>> ***And who's all hung-up on that happiness thing
+Who's trying to tune all the bells that he rings
+And who's in the corner and down on the floor
+With pencil and paper just counting the score
+Who's trying to act like he's just in between
+The line isn't black, if you know that it's green
+Don't bother looking, you're too blind to see
+Who's coming on like he wanted to be ...***<br><br>
+>> ***And who's coming home on the old nine-to-five
+Who's got the feeling that he came alive
+Though havin' it, sharin' it ain't quite the same
+Painted gold nugget, you can't lay a claim
+Who's seeing eyes through the crack in the floor
+There it is baby, don't you worry no more
+Who should be sleepin', but is writing this song
+Wishin' and a-hopin' he weren't so damned wrong***<br><br>
 
 >>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br>
 
@@ -925,6 +941,6 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ## ***Le Savetier Et Le Financier***<br>
 >> ### ***Un Savetier chantait du matin jusqu'au soir.***<br>
 >> ### ***C'était merveilles de le voir, merveilles de l'ouïr; il faisait des passages, plus content qu'aucun des Sept Sages;***<br>
->> ### ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance. ... ... En son hôtel il fait venir le chantier, et lui dit: 《Ah çà, sire Grégoire, <ins>que gagnez-vous par an?</ins>***<br><br>***Par an, moi foi, monsieur, dit avec un ton de rieur le gaillard savetier, ce n'est point ma manière de compter de la sorte, et je n'entasse guère un jour sur l'autre: il suffit qu'à la fin j'attrape le bout de l'année; chaque jour amène son pain.***<br><br>***- Eh bien! <ins>que gagnez-vous, dites-moi, par journée?</ins>***<br><br>***Tantôt plus, tantôt moins: le mal est que toujours ... le mal est que dans l'an s'entremêlent des jours qu'il faut chômer; on nous ruine en fêtes; l'une fait tort à l'autre, et monsieur le curé de quelque nouveau saint charge toujours son prône.》***<br><br>***Le Financier, riant de sa naïveté, lui dit: 《Je veux vous mettre aujourd'hui sur le trône: Prenez ces cent écus, gardez-les avec soin, pour vous en servir au besoin.***<br><br>***Le Savetier crut voir tout l'argent que la terre avait, depuis plus de cent ans, produit pour l'usage des gens. Il retourne chez lui; dans sa cave il enserre l'argent, et sa joie à la fois. Plus de chant: il perdit la voix du moment qu'il gagna ce qui cause nos peínes. Le sommeil quitta son logis; il eut pour hôtes les soucis les soupçons, les alarmes vaines. Tout le jour il avait l'oeil au guet; et la nuit, si quelque chat faisait du bruit, le chat prenait l'argent. A la fin, le pauvre homme s'encourut chez celui qu'il ne réveillait plus:***<br><br>***《Rendez-moi, lui dit-il, mes chansons et mon somme, et reprenez vos cent écus.》***
+>> ### ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance. ... ... En son hôtel il fait venir le chantier, et lui dit: 《Ah çà, sire Grégoire, <ins>que gagnez-vous par an?</ins>***<br><br>***Par an, moi foi, monsieur, dit avec un ton de rieur le gaillard savetier, ce n'est point ma manière de compter de la sorte, et je n'entasse guère un jour sur l'autre: il suffit qu'à la fin j'attrape le bout de l'année; chaque jour amène son pain.***<br><br>***- Eh bien! <ins>que gagnez-vous, dites-moi, par journée?</ins>***<br><br>***Tantôt plus, tantôt moins: le mal est que toujours ... le mal est que dans l'an s'entremêlent des jours qu'il faut chômer; on nous ruine en fêtes; l'une fait tort à l'autre, et monsieur le curé de quelque nouveau saint charge toujours son prône.》***<br><br>***Le Financier, riant de sa naïveté, lui dit: <ins>《Je veux vous mettre aujourd'hui sur le trône: Prenez ces cent écus, gardez-les avec soin, pour vous en servir au besoin.</ins>***<br><br>***Le Savetier crut voir tout l'argent que la terre avait, depuis plus de cent ans, produit pour l'usage des gens. Il retourne chez lui; dans sa cave il enserre l'argent, et sa joie à la fois. Plus de chant: il perdit la voix du moment qu'il gagna ce qui cause nos peínes. Le sommeil quitta son logis; il eut pour hôtes les soucis les soupçons, les alarmes vaines. Tout le jour il avait l'oeil au guet; et la nuit, si quelque chat faisait du bruit, le chat prenait l'argent. A la fin, le pauvre homme s'encourut chez celui qu'il ne réveillait plus:***<br><br>***<ins>《Rendez-moi, lui dit-il, mes chansons et mon somme, et reprenez vos cent écus.》</ins>***
 >>> #### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***
 
