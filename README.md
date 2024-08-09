@@ -940,7 +940,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***Natural law (signs of life, Fourth of July-mode). Version 2. Part 1.***
 >> ## ***"Quien todo lo quiere, todo lo pierde."<br> ("Want all, lose all.")***<br><br>
->>>> ### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***
+>>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***
 
 3.17a
 
