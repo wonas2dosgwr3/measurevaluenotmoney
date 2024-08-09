@@ -934,9 +934,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ***Wishin' and a-hopin' he weren't so damned wrong***<br><br>
   [formatting added]
 
->>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1965***<br><br>https://en.m.wikipedia.org/wiki/Nowadays_Clancy_Can%27t_Even_Sing<br><br>
-
- 1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br>
+>>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1965***<br><br>https://en.m.wikipedia.org/wiki/Nowadays_Clancy_Can%27t_Even_Sing<br><br>***1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br>
 
 3.17
 
