@@ -936,7 +936,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1965***<br><br>https://en.m.wikipedia.org/wiki/Nowadays_Clancy_Can%27t_Even_Sing<br><br>***1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br>
 
-3.17
+3.16b
+
+# ***Natural law (signs of life, Fourth of July-mode). Version 2. Part 1.***
+>> ## ***"Quien todo lo quiere, todo lo pierde."<br> ("Want all, lose all.")***<br><br>
+>>>> ### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***
+
+3.17a
 
 # ***Counting the score¹ ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
