@@ -613,7 +613,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.00j
 ## ***Part 10.<br>Even a marshal***
-### ***"Like you know, I've been marshal here and there, but never had much trouble with folks. I leave their politics and religion be. Folks can think the way they want, act the way they please, even to acting the fool. All I ask is they don't make too much noise and <ins>DON'T INTERFERE WITH OTHER PEOPLE</ins>***<br>
+### ***"Like you know, I've been marshal here and there, but never had much trouble with folks. I leave their politics and religion be. Folks can think the way they want, act the way they please, even to acting the fool. All I ask is they don't make too much noise and <ins>DON'T INTERFERE WITH OTHER PEOPLE."</ins>***<br>
    [formatting added]
 >> #### ***"Elisha Comes To Red Horse", Louis L'Amour, <ins>The Collected Short Stories Of Louis L'Amour</ins>, Frontier Stories, Vol. 1. 2003***<br><br><br>
 
@@ -621,7 +621,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## ***Part 11.<br>Even rich people***
 ### ***<ins>USING!!!!!</ins> land¹ is all they do, same as everybody else. As long as they DON'T CLAIM AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land than anyone else, nothing can explain it (rich) but <ins>BEING INDUSTRIOUS, HAPPY CUSTOMERS, AND A BETTER MOUSETRAP!!!!!</ins><br><br>But CLAIMING AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land, getting rich <ins>NEVER REALLY HAPPENED!!!!!</ins>, just timeless ancient history of <ins>INTERFERING WITH OTHER PEOPLE!!!!!²</ins>***
->> #### ***¹***<br><br>***² See 3.00j. Even a marshal***
+>> #### ***¹ See 3.14m. 37wopm
+
+World WITHOUT PRICES. Part M. Crossing paths MORE with the land under other people's feet (hunting and gathering).***<br><br>***² See 3.00j. Part 10. Even a marshal***
 
 3.01a
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
