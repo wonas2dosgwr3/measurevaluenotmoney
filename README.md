@@ -619,7 +619,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00k
 
 ## ***Part 11.<br>Even rich people***
-### ***USING!!!!! land is all they do, same as everybody else. As long as they DON'T CLAIM AN IOTA MORE RIGHT TO USE!!!!! land than anyone else, nothing can explain it (rich) but BEING INDUSTRIOUS, HAPPY CUSTOMERS, AND A BETTER MOUSETRAP!!!!! But CLAIMING AN IOTA MORE RIGHT TO USE!!!!! land, getting rich NEVER REALLY HAPPENED!!!!!, just timeless ancient history of INTERFERING WITH OTHER PEOPLE!!!!!***
+### ***<ins>USING!!!!!</ins> land is all they do, same as everybody else. As long as they DON'T CLAIM AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land than anyone else, nothing can explain it (rich) but <ins>BEING INDUSTRIOUS, HAPPY CUSTOMERS, AND A BETTER MOUSETRAP!!!!!</ins><br><br>4But CLAIMING AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land, getting rich <ins>NEVER REALLY HAPPENED!!!!!</ins>, just timeless ancient history of <ins>INTERFERING WITH OTHER PEOPLE!!!!!</ins>***
 
 3.01a
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
