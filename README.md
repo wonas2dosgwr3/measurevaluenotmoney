@@ -621,9 +621,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 ## ***Part 11.<br>Even rich people***
 ### ***<ins>USING!!!!!</ins> land¹ is all they do, same as everybody else. As long as they DON'T CLAIM AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land than anyone else, nothing can explain it (rich) but <ins>BEING INDUSTRIOUS, HAPPY CUSTOMERS, AND A BETTER MOUSETRAP!!!!!</ins><br><br>But CLAIMING AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land, getting rich <ins>NEVER REALLY HAPPENED!!!!!</ins>, just timeless ancient history of <ins>INTERFERING WITH OTHER PEOPLE!!!!!²</ins>***
->> #### ***¹ See 3.14m. 37wopm
-
-World WITHOUT PRICES. Part M. Crossing paths MORE with the land under other people's feet (hunting and gathering).***<br><br>***² See 3.00j. Part 10. Even a marshal***
+>> #### ***¹ See 3.14m. 37wopm. World WITHOUT PRICES. Part M. Crossing paths MORE with the land under other people's feet (hunting and gathering).***<br><br>***² See 3.00j. Part 10. Even a marshal***
 
 3.01a
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
