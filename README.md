@@ -616,7 +616,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***"Like you know, I've been marshal here and there, but never had much trouble with folks. I leave their politics and religion be. Folks can think the way they want, act the way they please, even to acting the fool. All I ask is they don't make too much noise and don't interfere with other people."***<br>
 >> #### ***"Elisha Comes To Red Horse", Louis L'Amour, <ins>The Collected Short Stories Of Louis L'Amour</ins>, Frontier Stories, Vol. 1. 2003***<br><br><br>
 
+3.00k
 
+## ***Part 11.<br>Even rich people***
+### ***USING!!!!! land is all they do, same as everybody else. As long as they DON'T CLAIM AN IOTA MORE RIGHT TO USE!!!!! land than anyone else, nothing can explain it (rich) but BEING INDUSTRIOUS, HAPPY CUSTOMERS, AND A BETTER MOUSETRAP!!!!! But CLAIMING AN IOTA MORE RIGHT TO USE!!!!! land, getting rich NEVER REALLY HAPPENED!!!!!, just timeless ancient history of INTERFERING WITH OTHER PEOPLE!!!!!***
 
 3.01a
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
