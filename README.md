@@ -952,6 +952,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***Natural law (signs of life, Fourth of July-mode). Version 2.***<br><br>
 >> ## ***Part 1.<br><br>"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
 >>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***
+>> ## ***Part 2.<br><br>Stranded alone on an island.***
+>>>> ### ***"Era, sin duda, una excelente jornada para ponerme a trabajar en la construcción de mi nueva casa. ... ... Había pasado más de la mitad del invierno cuando terminé ... mi cabaña"***<br><br>
+>>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
+
 
 3.17a
 
