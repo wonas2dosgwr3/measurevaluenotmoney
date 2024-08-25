@@ -953,7 +953,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ## ***Part 1.<br><br>"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
 >>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***
 >> ## ***Part 2.<br><br>Stranded alone on an island.¹ Naturally want some housing, same as eceryone.***
->>>> ### ***"Era, sin duda, una excelente jornada para ponerme a trabajar en la construcción de mi nueva casa. ... ... Había pasado más de la mitad del invierno cuando terminé ... mi cabaña"***<br><br>***("It was, without doubt, a great day for me to get to work constructing my new house.")
+>>>> ### ***"Era, sin duda, una excelente jornada para ponerme a trabajar en la construcción de mi nueva casa. ... ... Había pasado más de la mitad del invierno cuando terminé ... mi cabaña"***<br><br>***("It was, without doubt, a great day for me to get to work constructing my new house. ... ...Over half the winter had passed when I finished my house")***
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
 >>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.
 
