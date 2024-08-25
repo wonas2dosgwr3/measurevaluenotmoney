@@ -899,7 +899,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14p. 37wopp
 
 ## ***World WITHOUT PRICES. Part P. Without substance. Much ado about nothing.***
-### ***The high cost of nothing: Mountains out of molehills. Shortages. Unaffordability.***<br><br>***Superstition to the rescue. Nothing disguised as something.***<br><br>***Resale-powered prices. Your move. Resale for sale. Your move. Resale (nothing) for sale. Your move. How high can the price of nothing (resale) go? Your move. Cash in before it's too late. Your move.***<br><br>***Homeless prices. Your move.***<br><br>***Much ado about nothing. Your move.***<br><br>***Nothing left. Your move.<br> Nothing left? Your move.<br>It's all gone??? Your move.<br>You're sure it's all gone???<br>... Your ...***<br><br>***Much ado about nothing.***<br><br>***Nothing left.***
+### ***The high cost of nothing: Mountains out of molehills. Shortages. Unaffordability.***<br><br>***Superstition to the rescue. Nothing disguised as something.***<br><br>***Resale-powered prices. Your move. Resale for sale. Your move. Resale (nothing) for sale. Your move. How high can the price of nothing (resale) go? Your move. Cash in before it's too late. Your move.***<br><br>***Homeless prices. Your move.***<br><br>***Much ado about nothing. Your move.***<br><br>***Nothing left. Your move.<br><br> Nothing left? Your move.<br><br>It's all gone??? Your move.<br><br>You're sure it's all gone???<br><br>... Your ...***<br><br>***Much ado about nothing.***<br><br>***Nothing left.***
 
 
 
