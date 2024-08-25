@@ -896,6 +896,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***World WITHOUT PRICES. Part 0. The REVERSE OF PROSPERITY (shortage of <ins>SHORTAGES!!!!!</ins>).***
 ### ***Shortages of <ins>EVERYTHING (GOODS AND SERVICES)!!!!!</ins>,  and <ins>superabundance</ins> (butterfly nets full of "money" from showering confetti clouds, "money" growing on trees, etc) <ins> of "MONEY"!!!!!</ins>.***<br><br>***Instead of PROSPERITY, abundance of <ins>everything EXCEPT</ins> -  MANDITORY SHORTAGE OF MONEY!!!!!***
 
+3.14p. 37wopp
+
+## ***World WITHOUT PRICES. Part P. Without substance. Much ado about nothing.***
+### ***The high cost of nothing: Mountains out of molehills. Shortages. Unaffordability.***<br><br>***Superstition to the rescue. Nothing disguised as something.***<br><br>***Resale-powered prices. Your move. Resale for sale. Your move. Resale (nothing) for sale. Your move. How high can the price of nothing (resale) go? Your move. Cash in before it's too late. Your move.***<br><br>***Homeless prices. Your move.***<br><br>Much ado about nothing. Your move.***<br><br>***Nothing left. Your move.<br> Nothing left? Your move.<br>It's all gone??? Your move.<br>You're sure it's all gone???<br>... Your ...***<br><br>***Much ado about nothing.***<br><br>***Nothing left.***
+
 
 
 3.15
