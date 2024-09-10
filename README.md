@@ -906,8 +906,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14q. 37wopq
 
 ## ***World WITHOUT PRICES. Part Q. TAX-AND-SPEND powered (win-lose powered; bubble powered). Who's in charge?????***
-### ***Who needs happy customers????? 1916. World War I.***
+### ***Who needs happy customers????? 1916. World War I.***<br><br>***<ins>AUMENTABAN LOS IMPUESTOS PARA COMPRAR MAGNIFICOS REGALOS (raise taxes to buy magnificent gifts).</ins>***
 >> #### ***"- Muy bien, - dijo el rey, - la cuestion es muy simple; he prometido la princesa al caballero que la encontrase. Por lo tanto ella debe casarse con el astrólogo. Pero como cada uno de Vds. ayudó a la salvación de ella, cada uno debe recibir la cuarta parte de mi reino.<br>Los hermanos, muy satisfechos con esta distribución, vivieron felices en sus reinos. Cada vez que nacía un príncipe o una princesa los tres solteros <ins>AUMENTABAN LOS IMPUESTOS PARA COMPRAR MAGNIFICOS REGALOS</ins> para el recién nacido."***<br><br>
+  [formatting added]
 >>>> ##### ***_ <ins>A First Spanish Reader</ins>, Erwin W. Roessler and Alfred Remy, High School of Commerce, New York, N.Y., 1916. "39. Los Cuatro hermanos."*** 
 
 
