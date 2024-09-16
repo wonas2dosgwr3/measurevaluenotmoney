@@ -915,8 +915,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14p. 37wopR
 
 ## ***World WITHOUT PRICES. Part R. WHOPPER-powered instead. Now I'll tell one.***
-### ***Whoppers come true. Resource waste galore. Investing in whoppers.<br><br>Fighting whoppers with whoppers.<br><br>Heard a rumor. A big country that's mostly cold-winter climate. The country was invented in a cold-winter climate. Two-and-a half centuries ago. Same country that invented the light bulb and the telephone. This country last FOUR DECADES AT LEAST!!!!!, has had a huge housing (invented long before the country) problem, <ins><at least FOUR DECADES OF HOMELESS PEOPLE BEING A LARGE ISSUE!!!!!!</ins>***<br><br>
-## ***Now I'll tell one.***
+### ***Whoppers come true. Resource waste galore. Investing in whoppers.<br><br>Fighting whoppers with whoppers.<br><br>Heard a rumor. A big country that's mostly cold-winter climate. The country was invented in a cold-winter climate. Two-and-a half centuries ago. Same country that invented the light bulb and the telephone. This country <ins>last FOUR DECADES AT LEAST!!!!!</ins>, has had a huge housing (invented long before the country) problem, <ins>at least FOUR DECADES OF HOMELESS PEOPLE BEING A LARGE ISSUE!!!!!</ins>***<br><br>
+# ***Now I'll tell one.***
 
 
 
