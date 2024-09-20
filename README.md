@@ -922,7 +922,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14p. 37wops
 
 ## ***World WITHOUT PRICES. Part S. Dollars without borders (without goods and services).***
-### ***Buying PRICES, not goods and services. PRICES for sale.***<br><br>***A PRICE, not a house.***<br><br>***One house for the LEGITIMATE PRICE - of fifteen houses!!!!!***<br><br>***CAN'T!!!!! be a house.***<br><br>***Besides, nobody LIVES!!!!! in them. Rent them out, THAT'S!!!!! when your ship comes in, not when you own them. The normal occupants of FIFTEEN!!!!! houses - tenants in ONE!!!!! house?????!!!!!<br>Who wants to live in a sardine can?????***<br><br>***CAN'T BE A HOUSE.***<br><br>***Full time job forever, for nothing but a - PRICE????? For - NOTHING?????!!!!! And a 100 mile commute. Pretty much livin' ON WHEELS already, come to think of it ...***<br><br>***This is insane. Land under EVERYBODY'S feet. LAND!!!!! Who's to take it away?????***
+### ***Buying PRICES, not goods and services. PRICES for sale.***<br><br>***A PRICE, not a house.***<br><br>***One house for the LEGITIMATE PRICE - of fifteen houses!!!!!***<br><br>***CAN'T!!!!! be a house.***<br><br>***Besides, nobody LIVES!!!!! in them. Rent them out, THAT'S!!!!! when your ship comes in, not when you own them. The normal occupants of FIFTEEN!!!!! houses - tenants in ONE!!!!! house?????!!!!!<br>Who wants to live in a <ins>sardine can?????</ins>***<br><br>***CAN'T BE A HOUSE.***<br><br>***Full time job forever, for nothing but a - PRICE????? For - NOTHING?????!!!!! And a 100 mile commute. Pretty much livin' ON WHEELS already, come to think of it.***<br><br>***This is insane. Land under EVERYBODY'S feet. LAND!!!!! Who's to <ins>take it away?????</ins>***
 
 
 
