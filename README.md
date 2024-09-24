@@ -929,7 +929,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14t. 37wopt
 
 ## ***World WITHOUT PRICES. Part T. Trapped in win-lose land. Where the Fourth of July never shines. Divided and conquered. The end is near.***
-### ***Surrounded by MONEY AND SHORTAGES. The flood of money and the shortages are closing in.***<br><br>***Never think about the inch or the ounce, but MONEY'S DIFFERENT - AVALANCHE just keeps comin'. 
+### ***Surrounded by MONEY AND SHORTAGES. The flood of money and the shortages are closing in.***<br><br>***Never think about the inch or the ounce, but MONEY'S DIFFERENT - AVALANCHE just keeps comin'. Worst of all, EVEN THE EXPERTS CAN'T AGREE!!!!! Thousands of government money experts, but SURE AS THE SUN COMES UP!!!!!, no two would be caught dead reaching AGREEMENT (COMMERCE, A TRANSACTION!!!!!) - might be mistaken for money USERS!!!!!
 
 
 
