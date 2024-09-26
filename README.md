@@ -934,6 +934,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 
 
+3.14u. 37wopu
+
+## ***World WITHOUT PRICES. Part U. Land use without money use. We're hiring.***
+### ***23,000 plus experts, and still - NO TWO WOULD BE CAUGHT DEAD AGREEING ON THE LENGTH OF THE INCH OR THE WEIGHT OF THE OUNCE?????!!!!!<br><br>23,000 plus experts who CAN'T AGREE!!!!! what a standard of measurement is CAN'T POSSIBLY!!!!! want to make such a measurement. CAN'T POSSIBLY!!!!! have ever looked up the word "MONEY" in the dictionary, can only be for STOPPING!!!!! money use, STOPPING!!!!! commerce, STOPPING!!!!! the safe havens (HOMES!!!!!) commerce requires, FOR USING (OWNING!!!!!) ALL THE LAND IN SIGHT!!!!!***
+
 
 
 3.15
