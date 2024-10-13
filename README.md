@@ -953,7 +953,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14w. 37wopW
 
 ## ***World WITHOUT PRICES. Part W. Without WHAT????? Without ME?????!!!!!***
-### ***My house (castle!!!!!) is worth FAR MORE  <ins>WITHOUT ME?????</ins>***<br><br>***Every house is worth far more <ins>WITHOUT ITS OWNER!!!!!?????</ins>***<br><br>***With a <ins>NEW</ins> owner!!!!!?????***<br><br>***The American Dream is <ins>RESALE!!!!!?????</ins>***<br><br>***Without WHAT????? With WHAT????? A transaction?????***
+### ***My house (castle!!!!!) is worth FAR MORE  <ins>WITHOUT ME?????</ins>***<br><br>***Every house is worth far more <ins>WITHOUT ITS OWNER!!!!!?????</ins>***<br><br>***With a <ins>NEW</ins> owner!!!!!?????***<br><br>***With <ins>RESALE!!!!!?????</ins>***The American Dream is <ins>RESALE!!!!!?????</ins>***<br><br>***Without WHAT????? With WHAT????? A transaction????? A price????? The <ins>SELLER PAYS!!!!!</ins> - for WHAT????? For NO HOME!!!!!, AND SARDINE CANS FULL OF TENANTS, AND DECADES OF HOMELESS PEOPLE, FORECLOSURES. BUBBLES.***<br><br>***The American Dream is WHAT?????***
 
 
 
