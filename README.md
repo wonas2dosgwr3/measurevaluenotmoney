@@ -946,7 +946,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***World WITHOUT PRICES. Part V. VANITY instead. Homeowners (better mousetrap producers) successfully defeated (shortchanged; trespassed on). Land worth more than people.***
 ### ***"I couldn't afford a house today, at today's prices." - USA homeowner.***<br><br>***I specialize in being the ONLY LAND USER!!!!! - IN GETTING OTHER PEOPLE OFF THE LAND!!!!!***
 >> #### ***" 'But I prithee, Peter Peebles, what is thy further designation? Thou knowest, in our country, tbat some men are distinguished by their craft and calling, as cordwainers, fishers, weavers, or the like, and some by their titles as <ins>PROPRIETORS OF LAND (WHICH SAVOURS OF VANITY)</ins> - now, how may you be distinguished from others of the same name?' "***<br><br> 
-   [formatting added]<br>
+      [formatting added]<br>
 >>>> ##### ***- Nanty Ewart, in <ins>Redgauntlet</ins>, Walter Scott, 1824. Chap 20***
 ### ***I can afford houses with the proceeds of <ins>sardine cans full of TENANTS.</ins>***
 
