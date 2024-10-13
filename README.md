@@ -945,7 +945,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ## ***World WITHOUT PRICES. Part V. VANITY instead. Homeowners (better mousetrap producers) successfully defeated (shortchanged; trespassed on). Land worth more than people.***
 ### ***"I couldn't afford a house today, at today's prices." - USA homeowner.***<br><br>***I specialize in being the ONLY LAND USER!!!!! - IN GETTING OTHER PEOPLE OFF THE LAND!!!!!***
->> #### ***" 'But I prithee, Peter Peebles, what is thy further designation? Thou knowest, in our country, tbat some men are distinguished by their craft and calling, as cordwainers, fishers, weavers, or the like, and some by their titles as <ins>PROPRIETORS OF LAND (WHICH SAVOURS OF VANITY)</ins> - now, how may you be distinguished from others of the same name?' "***<br><br>      [formatting added]<br>
+>> #### ***" 'But I prithee, Peter Peebles, what is thy further designation? Thou knowest, in our country, tbat some men are distinguished by their craft and calling, as cordwainers, fishers, weavers, or the like, and some by their titles as <ins>PROPRIETORS OF LAND (WHICH SAVOURS OF VANITY)</ins> - now, how may you be distinguished from others of the same name?' "***<br><br>      **[formatting added]**<br>
 >>>> ##### ***- Nanty Ewart, in <ins>Redgauntlet</ins>, Walter Scott, 1824. Chap 20***
 ### ***I can afford houses with the proceeds of <ins>sardine cans full of TENANTS.</ins>***
 
@@ -953,7 +953,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14w. 37wopW
 
 ## ***World WITHOUT PRICES. Part W. Without WHAT????? Without ME?????!!!!!***
-### ***My house (castle!!!!!) is worth FAR MORE  <ins>WITHOUT ME?????</ins>***<br><br>***Every house is worth far more <ins>WITHOUT ITS OWNER!!!!!?????</ins>***<br><br>***With a <ins>NEW</ins> owner!!!!!?????***<br><br>***With <ins>RESALE!!!!!?????</ins>***<br><br>***With <ins>WHAT?????</ins><br>A transaction?????<br>A price?????<br>The <ins>SELLER PAYS!!!!! (NO HOME)</ins> - for <ins>WHAT?????</ins> Buyers do <ins>WHAT?????</ins> NO HOMES!!!!!, SARDINE CANS FULL OF TENANTS, DECADES OF HOMELESS PEOPLE. FORECLOSURES. BUBBLES.***<br><br>***The American Dream is <ins>WHAT?????</ins>***
+### ***My house (castle!!!!!) is worth FAR MORE  <ins>WITHOUT ME?????</ins>***<br><br>***Every house is worth far more <ins>WITHOUT ITS OWNER!!!!!?????</ins>***<br><br>***With a <ins>NEW</ins> owner!!!!!?????***<br><br>***With <ins>RESALE!!!!!?????</ins>***<br><br>***With <ins>WHAT?????</ins><br>A transaction?????<br>A price?????<br>The <ins>SELLER PAYS!!!!! (NO HOME)</ins> - for <ins>WHAT?????</ins> Buyers do <ins>WHAT?????</ins><br>NO HOMES!!!!!, SARDINE CANS FULL OF TENANTS, DECADES OF HOMELESS PEOPLE. FORECLOSURES. BUBBLES.***<br><br>***The American Dream is <ins>WHAT?????</ins>***
 
 
 
