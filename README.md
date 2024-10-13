@@ -950,6 +950,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***I can afford houses with the proceeds of <ins>sardine cans full of TENANTS.</ins>***
 
 
+3.14w. 37wopW
+
+## ***World WITHOUT PRICES. Part W. Without WHAT????? Without ME?????!!!!!***
+### ***My house (castle!!!!!) is worth FAR MORE  <ins>WITHOUT ME?????</ins>***<br><br>***Every house is worth far more <ins>WITHOUT ITS OWNER!!!!!?????</ins>***<br><br>***With a <ins>NEW</ins> owner!!!!!?????***<br><br>***The American Dream is <ins>RESALE!!!!!?????</ins>***<br><br>***Without WHAT????? With WHAT????? A transaction?????***
+
+
 
 3.15
 
