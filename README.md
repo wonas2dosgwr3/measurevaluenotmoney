@@ -959,8 +959,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14x. 37wopX
 
 ## ***World WITHOUT PRICES. Part X. TOXIC waste for money. No safe way to deploy homeless dollars.***
-### ***The more people hired to mind other people's  business¹, the more obvious the waste becomes. 23,000 people minding THEIR OWN business would be a tremendous source of wealth creation, all as near as measuring value. Poverty stricken instead, slaves to <ins>inefficiency and inequality</ins>, clamoring for independence from THE BLAME AND THE INSANITY of it, high time to restore humanity (natural law, common sense), <ins>move up to a money economy, and STOP THE WASTE!!!!!</ins>***
->> ***¹ 
+### ***The more people hired to mind <ins>other people's</ins>  business¹, the more obvious the waste becomes. 23,000 people minding <ins>THEIR OWN</ins> business would be a tremendous source of wealth creation, all as near as measuring value.***<br><br>***Poverty stricken instead, slaves to <ins>inefficiency and inequality</ins>, clamoring for independence from <ins>THE BLAME AND THE INSANITY</ins> of it, high time to restore humanity (natural law, common sense), <ins>move up to a money economy, and STOP THE WASTE!!!!!</ins>***
+>> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
+ 
 
 
 
