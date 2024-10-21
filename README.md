@@ -961,6 +961,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***World WITHOUT PRICES. Part X. TOXIC waste for money. No safe way to deploy homeless dollars.***
 ### ***The more people hired to mind <ins>other people's</ins>  business¹, the more obvious the waste becomes. 23,000 people minding <ins>THEIR OWN</ins> business would be a <ins>tremendous source of wealth creation</ins>, as close as measuring value.***<br><br>***Poverty stricken instead, slaves to <ins>inefficiency and inequality</ins>, clamoring for independence from <ins>THE BLAME AND THE INSANITY</ins> of it, high time to restore humanity (natural law, common sense), <ins>move up to a money economy, and STOP THE WASTE!!!!!</ins>***<br><br>***Dollars <ins>backed by WASTE!!!!!?????</ins>***<br><br>***Never think about THE INCH OR THE OUNCE with waste, but sure think about MONEY WITH WASTE!!!!! - <ins>when money is "EVERYTHING"!!!!!</ins>***<br><br>
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
+
+
+3.14y. 37wopY
+
+## ***World WITHOUT PRICES. Part Y. Without YOU. Why???***
+### ***Less YOU means THE BUBBLE of less competition, THE BUBBLE of COVETING YOUR HOUSE INSTEAD!!!!! - THE BUBBLE of INTERFERING WITH OTHER PEOPLE, THE BUBBLE of real estate (SAFE HAVEN!!!!!) speculation, THE BUBBLE of currency (SAFE HAVEN!!!!!) speculation, THE BUBBLE of diminishing YOU!!!!! by diminishing YOUR HOME!!!!!***<br><br>***House prices going up (less affordable, less accessible) is A BUBBLE because HOMES (HUMAN NEEDS!!!!!) GOING AWAY!!!!! is A BUBBLE, a house WITHOUT YOU (HUMAN NEEDS!!!!!) is A BUBBLE, no HOME is A BUBBLE, a HOMELESS HOUSE is A BUBBLE.***<br><br>***Less affordable houses are LESS SAFE!!!!! house are A BUBBLE; putting owners to sleep (less competitive); depriving people who want ONE!!!!!, want ONLY A HOME!!!!!, only to be MORE!!!!! competitive; inviting the SAFE-HAVEN SPECULATORS!!!!! who don't care; GETTING POOR, not rich.***<br><br>***Getting rich is a better mousetrap (home IMPROVEMENT!!!!!), happy customers,  SPECIALIZING!!!!!¹, money THE SAME AS THE INCH OR THE OUNCE!!!!!; KEEPING, NOT LOSING!!!!! your home.***
+>> #### ***¹ See the definitive discussion, by specialist Jim Sullivan, "***
  
 
 
