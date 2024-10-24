@@ -970,6 +970,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***¹ See the definitive discussion, by specialist "Big Jim Sullivan - "If Only I Could Play Guitar Like That (live TV 1975)"***<br><br>https://youtu.be/CBiDFJZ0mcU?feature=shared
 
 
+3.14z. 37wopZ
+
+## ***World WITHOUT PRICES. Part Z. Sub-zero instead. Global cooling in the <ins>OWE!!!!!-zone</ins> layer since before World War I. IOU - money???  Because you won't earn your own???***
+### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!</ins> instead.***<br><br>***IOU <ins>ACCESS!!!!!</ins> to money. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer??? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***
+
+
+
+
 
 3.15
 
