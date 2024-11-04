@@ -978,8 +978,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.14-2. 37wop2a
 
-# ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.*** World WITHOUT PRICES-2. Part A.***
-## ***
+# ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.*** 
+## ***World WITHOUT PRICES-2. Part A. Clamor (not money) for spoils (other people's stuff) instead. Nothing new. <ins>Jim Smiley-powered.</ins> Nothing new. Ask Mark Twain. Something <ins>brand new (a better mousetrap - Mark Twain, still selling a long time later and to come)</ins> NAILS ANCIENT HISTORY (NOTHING NEW).***
+#### **"Simon Wheeler backed me into a corner and blockaded me there with his chair ... ... "well, there was a feller here once by the name of ***Jim*** Smiley ... ; but anyway, he was the curiousest man about always betting on anything that turned up you ever see, if he could get anybody to bet on the other side; and if he couldn't he'd change sides. Any way that suited the other man would suit ***him*** - any way just so's he got a bet, ***he*** was satisfied. ... He was always ready and laying for a chance; there couldn't be no solit'ry thing mentioned but that feller'd offer to bet on it, and take ary side you please ... ... ; why, if there was two birds setting on a fence, he would bet you which one would fly first; ... ... [he] had a little small bull-pup, that to look at him you'd think he warn't worth a cent ... But as soon as money was up ... he was a different dog; ... ... and Andrew Jackson - which was the name of the pup ... Smiley always come out a winner on that pup, till ... ... Well, thish-yer Smiley ... He ketched a frog one day, and took him home, and ... he never done nothing for three months but set in his back  yard and learn that frog to jump. ... ... Smiley said all a frog wanted was education, and he could do 'most anything ... Why, I've seen him set Dan'l Webster down here on this floor - Dan'l Webster was the name of the frog - and sing out, 'Flies, Dan'l, flies!' and quicker'n you could wink he'd spring straight up and snake a fly off'n the counter there ... **
+>> ##### ***From Mark Twain's "first great success, the celebrated story, THE NOTORIOUS JUMPING FROG OF CALAVERAS COUNTY". <ins>The Complete Short Stories of Mark Twain</ins>, Charles Neider, Ed., 1957, p1-6 and frontispiece.***
 
 
 
