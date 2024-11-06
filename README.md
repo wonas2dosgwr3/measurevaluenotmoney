@@ -988,7 +988,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part B. HOUSETRAPS instead of mousetraps.***
-### ***Homeless dollars instead of HOMES.***<br><br>***No improvement for homeless dollars but <ins>NO HOMES.</ins>***br><br>***Traveling salesmen <ins>SELLING HOMELESS DOLLARS!!!!!</ins> can't wait to IMPROVE YOUR HOME BY <INS>MOVING YOU OUT, IMPROVE YOU BY YOU HAVING NO HOME!!!!!</INS>***<br><br>***Once you're living in a <INS>HOUSETRAP, NO HOME, UNAFFORDABLE!!!!!</INS>, homeless dollars are safe.***<br><br>***<INS>TRAPPED IN A HOUSETRAP</INS>, NO HOME, UNAFFORDABLE, THE OWE-ZONE LAYER - HOMELESS DOLLARS ARE SAFE.***
+### ***Homeless dollars instead of HOMES.***<br><br>***No improvement for homeless dollars but <ins>NO HOMES.</ins>***<br><br>***Traveling salesmen <ins>SELLING HOMELESS DOLLARS!!!!!</ins> can't wait to IMPROVE YOUR HOME BY <INS>MOVING YOU OUT, IMPROVE YOU BY YOU HAVING NO HOME!!!!!</INS>***<br><br>***Once you're living in a <INS>HOUSETRAP, NO HOME, UNAFFORDABLE!!!!!</INS>, homeless dollars are safe.***<br><br>***<INS>TRAPPED IN A HOUSETRAP</INS>, NO HOME, UNAFFORDABLE, THE OWE-ZONE LAYER - HOMELESS DOLLARS ARE SAFE.***
 
 
 3.15
