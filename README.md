@@ -1,4 +1,4 @@
-1.00 
+w1.00 
 measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
@@ -984,14 +984,16 @@ https://youtu.be/R97L-nkgrxo?feature=shared
    [formatting added]
 >> ##### ***From <ins>Mark Twain's "first great success, the celebrated story</ins>, THE NOTORIOUS JUMPING FROG OF CALAVERAS COUNTY". <ins>The Complete Short Stories of Mark Twain</ins>, Charles Neider, Ed., 1957, p1-6 and frontispiece.***
 
+3.14-2. 37wop2b
 
-
+# ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+## ***World WITHOUT PRICES-2. Part B. HOUSETRAPS instead of mousetraps.***
 
 3.15
 
 # ***Nobody's ever at home.¹***
 ## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
->>>> #### ***¹ "Independence." Always at YOUR home. Always trespassing.***<br><br>
+>>>> #### ***¹ "Independence." Always at YOUR home. HÒAlways trespassing.***<br><br>
 
 >> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. Campbell¹; 'wise folks buy and sell,***
 >> # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
