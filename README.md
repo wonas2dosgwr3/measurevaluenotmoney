@@ -1,4 +1,4 @@
-w1.00 
+1.00 
 measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
@@ -988,6 +988,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part B. HOUSETRAPS instead of mousetraps.***
+### ***Homeless dollars instead of HOMES.***<br><br>***No improvement for homeless dollars but NO HOMES.***
+
 
 3.15
 
