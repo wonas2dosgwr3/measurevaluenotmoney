@@ -994,12 +994,18 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***World WITHOUT PRICES-2. Part B. <ins>HOUSETRAPS</ins> instead of mousetraps.***
 ### ***Homeless dollars instead of HOMES.***<br><br>***No improvement for homeless dollars but <ins>NO HOMES.</ins>***<br><br>***Traveling salesmen <ins>SELLING HOMELESS DOLLARS!!!!!</ins> can't wait to IMPROVE YOUR HOME BY <INS>MOVING YOU OUT!!!!!, IMPROVE YOU BY YOU HAVING NO HOME!!!!!</INS>***<br><br>***Once you're living in a <INS>HOUSETRAP, NO HOME, UNAFFORDABLE!!!!!</INS>, homeless dollars are safe.***<br><br>***<INS>TRAPPED IN A HOUSETRAP.</INS> NO HOME, UNAFFORDABLE, THE OWE-ZONE LAYER - HOMELESS DOLLARS ARE SAFE.***
 
+3.14-2. 37wop2c
+
+# ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+## ***World WITHOUT PRICES-2. Part C. Without <ins>OWNING</ins>. Interference (Jim Smiley) instead. NUMBERS DISGUISED AS PRICES, PEOPLE-FREE - SPOILS!!!!! Investors flocking to PEOPLE-FREE PRICES (NUMBERS, BUBBLES!!!!!, SPOILS!!!!!) INSTEAD OF HOME IMPROVEMENT (PEOPLE).***
+### ***Without home improvement, it's your BALL AND CHAIN, not your home. It's Jim Smiley's, and sporting with him is all there is.***<br><br>***Without Jim Smiley, THE MONEY THAT WENT INTO HOUSE PRICES (Jim Smiley's pocket) WENT INTO HOME IMPROVEMENT (<INS>YOUR</INS> POCKET).***
+
 
 3.15
 
 # ***Nobody's ever at home.¹***
 ## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
->>>> #### ***¹ "Independence." Always at YOUR home. HÒAlways trespassing.***<br><br>
+>>>> #### ***¹ "Independence." Always at YOUR home. Always trespassing.***<br><br>
 
 >> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. Campbell¹; 'wise folks buy and sell,***
 >> # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
