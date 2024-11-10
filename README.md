@@ -997,7 +997,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14-2. 37wop2c
 
 # ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
-## ***World WITHOUT PRICES-2. Part C. Without <ins>OWNING</ins>. Interference (Jim Smiley) instead. NUMBERS DISGUISED AS PRICES, PEOPLE-FREE - SPOILS!!!!! Investors flocking to PEOPLE-FREE PRICES (NUMBERS, BUBBLES!!!!!, SPOILS!!!!!) INSTEAD OF HOME IMPROVEMENT (PEOPLE).***
+## ***World WITHOUT PRICES-2. Part C. Without <ins>OWNING</ins>. Interference (Jim Smiley) instead. NUMBERS DISGUISED AS PRICES, PEOPLE-FREE. SPOILS!!!!! Investors flocking to PEOPLE-FREE PRICES (NUMBERS, BUBBLES!!!!!, SPOILS!!!!!) INSTEAD OF HOME IMPROVEMENT (PEOPLE).***
 ### ***Without home improvement, it's your BALL AND CHAIN, not your home. It's Jim Smiley's, and sporting with him is all there is.***<br><br>***Without Jim Smiley,***
 # ***<ins>THE MONEY THAT WENT INTO HOUSE PRICES (Jim Smiley's pocket) WENT INTO HOME IMPROVEMENT (YOUR!!!!! POCKET - YOU!!!!!). Went into PEOPLE, NOT LAND (JIM SMILEY).</INS>***
 
