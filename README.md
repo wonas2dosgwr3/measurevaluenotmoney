@@ -1003,8 +1003,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.14-2. 37wop2a
 
-### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+#### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part D. Needless solutions to needless problems. Demagogue-powered.***
+### ***Unlike a money economy (EQUALITY-powered, HOME IMPROVEMENT-powered), Inequality <ins>turns HOUSES LOOSE</ins>, destroys homes.***<br><br>***"My house is SLOWLY ESCAPING, I could afford it when I bought it, but not now. I'm the owner??? Thin ice is the owner??? All this HOUSING CRISIS??? Sure would feel better if I could afford this house now. Somebody's MORE EQUAL than me."***
+
 
 3.15
 
