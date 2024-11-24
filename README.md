@@ -1001,6 +1001,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Without home improvement, it's your BALL AND CHAIN, not your home. It's Jim Smiley's, and sporting with him is all there is.***<br><br>***Without Jim Smiley,***
 # ***<ins>THE MONEY THAT WENT INTO HOUSE PRICES (Jim Smiley's pocket) WENT INTO HOME IMPROVEMENT (YOUR!!!!! POCKET - YOU!!!!!). Went into PEOPLE, NOT LAND (JIM SMILEY).</INS>***
 
+3.14-2. 37wop2a
+
+### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+## ***World WITHOUT PRICES-2. Part D. Needless solutions to needless problems. Demagogue-powered.***
 
 3.15
 
