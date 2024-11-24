@@ -978,7 +978,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.14-2. 37wop2a
 
-# ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part A. Clamor (not money) for spoils (other people's stuff) instead. Nothing new. <ins>Jim Smiley-powered.</ins> Nothing new. Ask Mark Twain. Something <ins>brand new (a better mousetrap - Mark Twain, still selling a long time later and to come)</ins> NAILS ANCIENT HISTORY (NOTHING NEW).***
 #### **"Simon Wheeler backed me into a corner and blockaded me there with his chair ... ... "well, there was a feller here once by the name of**<br>
 ## ***Jim*** **Smiley**<br>
@@ -990,22 +990,23 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.14-2. 37wop2b
 
-# ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part B. <ins>HOUSETRAPS</ins> instead of mousetraps.***
 ### ***Homeless dollars instead of HOMES.***<br><br>***No improvement for homeless dollars but <ins>NO HOMES.</ins>***<br><br>***Traveling salesmen <ins>SELLING HOMELESS DOLLARS!!!!!</ins> can't wait to IMPROVE YOUR HOME BY <INS>MOVING YOU OUT!!!!!, IMPROVE YOU BY YOU HAVING NO HOME!!!!!</INS>***<br><br>***Once you're living in a <INS>HOUSETRAP, NO HOME, UNAFFORDABLE!!!!!</INS>, homeless dollars are safe.***<br><br>***<INS>TRAPPED IN A HOUSETRAP.</INS> NO HOME, UNAFFORDABLE, THE OWE-ZONE LAYER - HOMELESS DOLLARS ARE SAFE.***
 
 3.14-2. 37wop2c
 
-# ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part C. Without <ins>OWNING</ins>. Interference (Jim Smiley) instead. NUMBERS DISGUISED AS PRICES, PEOPLE-FREE. SPOILS!!!!! Investors flocking to PEOPLE-FREE PRICES (NUMBERS, BUBBLES!!!!!, SPOILS!!!!!) INSTEAD OF HOME IMPROVEMENT (PEOPLE).***
 ### ***Without home improvement, it's your BALL AND CHAIN, not your home. It's Jim Smiley's, and sporting with him is all there is.***<br><br>***Without Jim Smiley,***
 # ***<ins>THE MONEY THAT WENT INTO HOUSE PRICES (Jim Smiley's pocket) WENT INTO HOME IMPROVEMENT (YOUR!!!!! POCKET - YOU!!!!!). Went into PEOPLE, NOT LAND (JIM SMILEY).</INS>***
 
 3.14-2. 37wop2d
 
-#### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part D. <ins>Needless solutions to needless problems.</ins> Demagogue-powered.***
-### ***Unlike a money economy (EQUALITY-powered, HOME IMPROVEMENT-powered), inequality <ins>turns HOUSES LOOSE</ins>, destroys homes.***<br><br>***"My house is SLOWLY ESCAPING, I could afford it when I bought it, but not now. ... I'm the owner??? ... Thin ice is the owner??? ... All this HOUSING CRISIS??? ... Sure would feel better if I could afford this house now. ... <ins>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***"Whose HOME IMPROVEMENT <ins>turns MY HOME!!!!! LOOSE?????</INS> ... <INS>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***INEQUALITY is INTERFERENCE WITH OTHER PEOPLE. <ins>Needless solutions to needless problems.</ins> Demagogues."***<br><br>***A money economy (EQUALITY) <ins>turns PEOPLE!!!!! LOOSE (FREEDOM!!!!!)</ins>, not their homes.***
+### ***Unlike a money economy (EQUALITY-powered, HOME IMPROVEMENT-powered), inequality <ins>turns HOUSES LOOSE</ins>, destroys homes.***<br><br>***"My house is SLOWLY ESCAPING, I <ins>could afford it when I bought it, but NOT NOW</ins>.¹ ... I'm the owner??? ... Thin ice is the owner??? ... All this HOUSING CRISIS??? ... Sure would feel better if I <ins>could afford this house NOW</ins>. ... <ins>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***"Whose HOME IMPROVEMENT <ins>turns MY HOME!!!!! LOOSE?????</INS> ... <INS>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***INEQUALITY is INTERFERENCE WITH OTHER PEOPLE. <ins>Needless solutions to needless problems.</ins> Demagogues.***<br><br>***A money economy (EQUALITY) <ins>turns PEOPLE!!!!! LOOSE (FREEDOM!!!!!)</ins>, not their homes.***
+>> #### ***¹ USA homeowner.***
 
 
 3.15
