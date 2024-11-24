@@ -1001,11 +1001,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Without home improvement, it's your BALL AND CHAIN, not your home. It's Jim Smiley's, and sporting with him is all there is.***<br><br>***Without Jim Smiley,***
 # ***<ins>THE MONEY THAT WENT INTO HOUSE PRICES (Jim Smiley's pocket) WENT INTO HOME IMPROVEMENT (YOUR!!!!! POCKET - YOU!!!!!). Went into PEOPLE, NOT LAND (JIM SMILEY).</INS>***
 
-3.14-2. 37wop2a
+3.14-2. 37wop2d
 
 #### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part D. Needless solutions to needless problems. Demagogue-powered.***
-### ***Unlike a money economy (EQUALITY-powered, HOME IMPROVEMENT-powered), Inequality <ins>turns HOUSES LOOSE</ins>, destroys homes.***<br><br>***"My house is SLOWLY ESCAPING, I could afford it when I bought it, but not now. I'm the owner??? Thin ice is the owner??? All this HOUSING CRISIS??? Sure would feel better if I could afford this house now. Somebody's MORE EQUAL than me."***
+### ***Unlike a money economy (EQUALITY-powered, HOME IMPROVEMENT-powered), Inequality <ins>turns HOUSES LOOSE</ins>, destroys homes.***<br><br>***"My house is SLOWLY ESCAPING, I could afford it when I bought it, but not now. I'm the owner??? Thin ice is the owner??? All this HOUSING CRISIS??? Sure would feel better if I could afford this house now. ... <ins>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***"Whose HOME IMPROVEMENT <ins>turns MY HOME!!!!! LOOSE?????</INS> ... <INS>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>INEQUALITY is INTERFERENCE WITH OTHER PEOPLE. Needless solutions to needless problems. Demagogues."***<br><br>***A money economy (EQUALITY) <ins>turns PEOPLE!!!!! LOOSE (FREEDOM!!!!!)</ins>, not their homes.***
 
 
 3.15
