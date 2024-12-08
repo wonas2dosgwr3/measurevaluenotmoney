@@ -1011,7 +1011,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14-2. 37wop2e
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
-## ***World WITHOUT PRICES-2. Part E. 
+## ***World WITHOUT PRICES-2. Part E. Audaz codicia¹. Not the American dream. Can't buy a home, only a <ins>RENTAL!!!!! property. FAR-ABNORMAL!!!!! house prices.</ins> Audaz codicia.***
+>>> #### ***¹ Bold greed.***<br><br>
+>>>
+
 
 3.15
 
