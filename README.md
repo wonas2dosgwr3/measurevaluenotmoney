@@ -1012,8 +1012,15 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part E. Audaz codicia¹. Not the American dream. Can't buy a home, only a <ins>RENTAL!!!!! property. FAR-ABNORMAL!!!!! house prices.</ins> Audaz codicia.***
->>> #### ***¹ Bold greed.***<br><br>
->>>
+> #### ***¹ Bold greed.***<br><br>
+>>> ## ***"Indio que labras con fatiga***<br>
+>>> ## ***tierras que de otro dueño son:***<br>
+>>> ## ***¿ignoras tú que deben tuyas***<br>
+>>> ## ***ser, por tu sangre y tu sudor?***<br>
+>>> ## ***¿ignoras tú que <ins>AUDAZ CODICIA,</ins>
+>>> ## ***siglos atrás, te las quitó?***
+>>> ## ***¿ignoras tú que eres el Amo?***
+>>> ## ***- ¡Quién sabe, señor!
 
 
 3.15
