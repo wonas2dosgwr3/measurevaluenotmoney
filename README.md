@@ -1021,10 +1021,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***siglos atrás, te las quitó?***<br>
 >>> ### ***¿ignoras tú que eres el Amo?***<br>
 >>> ### ***- ¡Quién sabe, señor!***<br><br>
->>> ### ***(Indian, you who wearily till lands which belong to other owners, do you not know that they should be yours because of the blood and sweat you have shed? Do you not know that <ins>BOLD GREED</ins> took them from you centuries ago? Do you not know that you are the Master?***<br>
->>> ### ***Perhaps so, sir!***<br>
+>>> ### ***(Indian, you who wearily till lands which belong to other owners, do you not know that they should be yours because of the blood and sweat you have shed? Do you not know that <ins>BOLD GREED</ins> took them from you centuries ago? Do you not know that you are the Master?***
+>>> ### ***Perhaps so, sir!)***<br>
 >>>> ### [formatting added]<br>
->>>> #### ***From poem "¡Quién sabe!" by Peruvian poet José Santos Chocano (1875-1934), 1906, in <ins>Alma América</ins>. In <ins>Los Otros Americanos</ins>, N. L. Weisinger and M. C. Johnston, 1934. Pp 103-4***
+>>>> #### ***From poem "¡Quién sabe!" by Peruvian poet José Santos Chocano (1875-1934), 1906, in <ins>Alma América</ins>. In <ins>Los Otros Americanos</ins>, N. L. Weisinger and M. C. Johnston, 1934. Pp 103-4 and 195***
 
 
 3.15
