@@ -1017,10 +1017,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ## ***tierras que de otro dueño son:***<br>
 >>> ## ***¿ignoras tú que deben tuyas***<br>
 >>> ## ***ser, por tu sangre y tu sudor?***<br>
->>> ## ***¿ignoras tú que <ins>AUDAZ CODICIA,</ins>
->>> ## ***siglos atrás, te las quitó?***
->>> ## ***¿ignoras tú que eres el Amo?***
->>> ## ***- ¡Quién sabe, señor!
+>>> ## ***¿ignoras tú que <ins>AUDAZ CODICIA,</ins>***
+>>> ## ***siglos atrás, te las quitó?***<br>
+>>> ## ***¿ignoras tú que eres el Amo?***<br>
+>>> ## ***- ¡Quién sabe, señor!***<br><br>
+>>>> ## [formatting added]
+>>>> ### ***From poem "¡Quién sabe!" by Peruvian poet José Santos Chocano (1875-1934), 1906, in <ins>Alma América</ins>. In <ins>Los Otros Americanos</ins>, N. L. Weisinger and M. C. Johnston, 1934. Pp 103-4
 
 
 3.15
