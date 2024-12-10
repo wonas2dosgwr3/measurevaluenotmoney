@@ -1030,7 +1030,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part F. Advanced INEQUALITY. Life-cycles of nations, EQUALITY TO INEQUALITY. EXPIRATION DATES of nations.***
-### ***Eighty percent of houses converted to <ins>GOLD MINES!!!!! (RENTAL properties)</ins>. Traveling salesmen <ins>unloading U-Hauls full of money with pitchforks</ins> in exchange for houses. Brink's trucks delivering <ins>handfuls of money</ins> to high danger zones where working people might be encountered. Working people only wanting to buy a HOME, <ins>can't afford a GOLD MINE.</ins>***<br><br>***
+### ***Eighty percent of houses converted to <ins>GOLD MINES!!!!! (RENTAL properties)</ins>. Traveling salesmen <ins>unloading U-Hauls full of money with pitchforks</ins> in exchange for houses. Brink's trucks delivering <ins>handfuls of money</ins> to high danger zones where working people might be encountered. Working people only wanting to buy a HOME, <ins>can't afford a GOLD MINE.</ins>***<br><br>***Starting with EQUALITY, hardly anybody thinks about money, goods and services are so abundant. As Jim Smiley¹ gains influence, goods and services begin to SHY AWAY, money BEGINS TO BE THOUGHT OF. Ongoing, <ins>goods and services retreat as money advances</ins>, shortages, unaffordability. Jim Smiley's pets (demagogues) rush to the rescue, promising everyone a GOLD MINE, <ins>INTERFERING WITH EQUALITY!!!!! (with PRICES!!!!!, with OTHER PEOPLE!!!!!, with STANDARDS OF MEASUREMENT!!!!!)</ins> any way they can, <ins>INCREASING MONEY. WHEN MONEY'S VALUE HITS ZERO!!!!!</ins>, THE MIDAS TOUCH FULLY IMPLEMENTED, GOODS AND SERVICES HAVE VANISHED, THERE'S NOTHING FOR MONEY TO BUY, NOTHING BUT MONEY, MONEY IS "EVERYTHING", the expiration date of the nation has arrived.***
 
 
 
@@ -1040,7 +1040,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
 >>>> #### ***¹ "Independence." Always at YOUR home. Always trespassing.***<br><br>
 
->> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. Campbell¹; 'wise folks buy and sell,***
+>> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. SCampbell¹; 'wise folks buy and sell,***
 >> # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
 [formatting added]
 >>>>>> ***¹ Rob Roy***<br><br>
