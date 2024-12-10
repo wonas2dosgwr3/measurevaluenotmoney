@@ -1030,6 +1030,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part F. Advanced INEQUALITY. Life-cycles of nations. EXPIRATION DATES of nations.***
+### ***Eighty percent of houses converted to GOLD MINES!!!!! (RENTAL properties). Traveling salesmen <ins>unloading U-Hauls full of money with pitchforks</ins> in exchange for houses. Brink's trucks delivering <ins>handfuls of money</ins> to high danger zones where working people might be encountered. Working people only wanting to buy a HOME, can't afford a GOLD MINE.***
 
 
 3.15
