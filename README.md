@@ -1026,6 +1026,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> #### [formatting added]<br>
 >>>> #### ***From poem "¡Quién sabe!" by Peruvian poet José Santos Chocano (1875-1934), 1906, in <ins>Alma América</ins>. In <ins>Los Otros Americanos</ins>, N. L. Weisinger and M. C. Johnston, 1934. Pp 103-4 and 195***
 
+3.14-2. 37wop2f
+
+##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+## ***World WITHOUT PRICES-2. Part F. Advanced INEQUALITY. Life-cycles of nations. EXPIRATION DATES of nations.***
+
 
 3.15
 
