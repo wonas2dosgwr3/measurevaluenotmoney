@@ -1,4 +1,4 @@
-71.00 
+1.00 
 measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
@@ -1037,7 +1037,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part G. NOT ENOUGH. Could have spent the money on <ins>BETTER THINGS.</ins> Too late now. The money packed up and left. Malibu.***
-### ***A house was NOT ENOUGH. Commerce was NOT ENOUGH. Equality was NOT ENOUGH.<BR><BR>Couldn't have just my house, <ins>instead had to have YOUR HOUSE, AND YOURS, AND YOURS, AND YOURS. Had to have a house price ONLY I CAN AFFORD!!!!! Had to have the house YOU LIVE IN, and the houses NO ONE LIVES IN, because ONLY I CAN AFFORD!!!!! the house price.</ins><br><br>ABNORMALITY!!!!! SPOILS!!!!! GREED!!!!!<BR><BR>Could have spent the money on a lot of <ins>BETTER THINGS.</ins> Too late now. My house and the money are gone. No change in the amount of money in the world, only the amount in MY HANDS. Never did belong in my hands. Money is for <ins>BETTER THINGS</ins>, I couldn't be bothered.<br><br>Homeless dollars <ins>lookin' for a home?</ins> Even homeless dollars know - <ins>somethin' ain't right?</ins> Even homeless dollars are <ins>RESOURCE-WASTE DETECTORS?</ins> Know when <ins>it's time to leave?</ins<BR><BR><ins>MONEY BELONGS TO THE WORLD, FOR BETTER THINGS. BETTER-THINGS POWERED.</ins>***
+### ***A house was NOT ENOUGH. Commerce was NOT ENOUGH. Equality was NOT ENOUGH.<BR><BR>Couldn't have just my house, <ins>instead had to have YOUR HOUSE, AND YOURS, AND YOURS, AND YOURS. Had to have a house price ONLY I CAN AFFORD!!!!! Had to have the house YOU LIVE IN, and the houses NO ONE LIVES IN, because ONLY I CAN AFFORD!!!!! the house price.</ins><br><br>ABNORMALITY!!!!! SPOILS!!!!! GREED!!!!!<BR><BR>Could have spent the money on a lot of <ins>BETTER THINGS.</ins> Too late now. My house and the money are gone. No change in the amount of money in the world, only the amount in MY HANDS. Never did belong in my hands. Money is for <ins>BETTER THINGS</ins>, I couldn't be bothered.<br><br>Homeless dollars <ins>lookin' for a home?</ins> Even homeless dollars know - <ins>somethin' ain't right?</ins> Even homeless dollars are <ins>RESOURCE-WASTE DETECTORS?</ins> Know when <ins>it's time to leave?</ins><BR><BR><ins>MONEY BELONGS TO THE WORLD, FOR BETTER THINGS. BETTER-THINGS POWERED.</ins>***
 
 
 
