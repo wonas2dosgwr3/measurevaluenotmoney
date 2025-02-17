@@ -1053,9 +1053,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ***¹ Rob Roy***<br><br>
 >>>> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***
 
-3.16a
+3.16-V1
 
-# ***Natural law (signs of life, Fourth of July-mode). Version 1.***
+# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***
 >> ***"Who's that stomping all over my face***<br>
 >> ***Where's that silhouette I'm trying to trace***<br>
 >> ***Who's putting sponge in the bells I once rung***<br>
@@ -1084,22 +1084,39 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1965***<br><br>https://en.m.wikipedia.org/wiki/Nowadays_Clancy_Can%27t_Even_Sing<br><br>***1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br>
 
-3.16b
+3.16-V2-1
 
-# ***Natural law (signs of life, Fourth of July-mode). Version 2.***<br><br>
->> ## ***Part 1.<br><br>"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
->>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***
->> ## ***Part 2.<br><br>Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
+# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
+>> ## ***Part 1.<br><br>"Quien todo lo quiere
+3.16-V2-1
+
+# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
+>> ## ***Part 1. Lose all.***<br><br>
+>>> ### ***"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
+>>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***<br><br>
+
+3.16-V2-2
+
+# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
+>> ## ***Part 2. Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
 >>>> ### ***"Era, sin duda, una excelente jornada para ponerme a trabajar en la construcción de mi nueva casa. ... ... Había pasado más de la mitad del invierno cuando terminé ... mi cabaña"***<br><br>***("It was, without doubt, a great day for me to get to work constructing my new house. ... ...Over half the winter had passed when I finished my house")***
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
->>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.***
+>>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.***<br><br>
+
+3.16-V2-3
+
+# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
+>> ## ***Part 3. Some SPACE.***<br><br>
+>>> ### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
+>>>> #### ***- wonas2dosgwr3 firsthand information.***
+
 
 
 3.17a
 
 # ***Counting the score¹ ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
->> #### ***Un Savetier chantait du matin jusqu'au soir. C'était merveilles de le voir, merveilles de l'ouïr; il faisait des passages, plus content qu'aucun des Sept Sages;***<br>
+>> #### ***Un Savetier chantait du matin jusqu'au soir. C'était merveilles de le voir, merveillesit deput it l'ouïr; il faisait des passages, plus content qu'aucun des Sept Sages;***<br>
 >> #### ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance. ... ... En son hôtel il fait venir le chantier, et lui dit: 《Ah çà, sire Grégoire, <ins>que gagnez-vous par an?</ins>***<br><br>***Par an, moi foi, monsieur, dit avec un ton de rieur le gaillard savetier, ce n'est point ma manière de compter de la sorte, et je n'entasse guère un jour sur l'autre: il suffit qu'à la fin j'att zee rape le bout de l'année; chaque jour amène son pain.***<br><br>***- Eh bien! <ins>que gagnez-vous, dites-moi, par journée?</ins>***<br><br>***Tantôt plus, tantôt moins: le mal est que toujours ... le mal est que dans l'an s'entremêlent des jours qu'il faut chômer; on nous ruine en fêtes; l'une fait tort à l'autre, et monsieur le curé de quelque nouveau saint charge toujours son prône.》***<br><br>***Le Financier, riant de sa naïveté, lui dit: <ins>《Je veux vous mettre aujourd'hui sur le trône: Prenez ces cent écus, gardez-les avec soin, pour vous en servir au besoin.</ins>***<br><br>***Le Savetier crut voir tout l'argent que la terre avait, depuis plus de cent ans, produit pour l'usage des gens. Il retourne chez lui; dans sa cave il enserre l'argent, et sa joie à la fois. Plus de chant: il perdit la voix du moment qu'il gagna ce qui cause nos peínes. Le sommeil quitta son logis; il eut pour hôtes les soucis les soupçons, les alarmes vaines. Tout le jour il avait l'oeil au guet; et la nuit, si quelque chat faisait du bruit, le chat prenait l'argent. A la fin, le pauvre homme s'encourut chez celui qu'il ne réveillait plus:***<br><br>***<ins>《Rendez-moi, lui dit-il, mes chansons et mon somme, et reprenez vos cent écus.》</ins>***
 >> [formatting added]
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
