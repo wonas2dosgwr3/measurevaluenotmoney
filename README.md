@@ -1097,7 +1097,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.16-V2-2
 
-# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
+##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 >> ## ***Part 2. Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
 >>>> ### ***"Era, sin duda, una excelente jornada para ponerme a trabajar en la construcción de mi nueva casa. ... ... Había pasado más de la mitad del invierno cuando terminé ... mi cabaña"***<br><br>***("It was, without doubt, a great day for me to get to work constructing my new house. ... ...Over half the winter had passed when I finished my house")***
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
@@ -1105,7 +1105,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.16-V2-3
 
-# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
+##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 >> ## ***Part 3. Some SPACE.***<br><br>
 >>> ### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
 >>>> #### ***- wonas2dosgwr3 firsthand information.***
