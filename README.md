@@ -1099,7 +1099,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
 >>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.***<br><br>
 
-3.16-V2-3
+3.16-V2-3  [Feb17,2025]
 
 ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 >> ## ***Part 3. Some SPACE.***<br><br>
