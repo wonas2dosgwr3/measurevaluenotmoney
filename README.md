@@ -1044,6 +1044,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part H. Specializing IN MONEY. Til the stupor and the brainwashing wears off, as goods and services (the plunder) runs out, as reality returns, as the WORLD RECLAIMS ITS OWN - A STANDARD OF MEASUREMENT, INALIENABLE LOW VALUE (RESOURCE WASTE) DETECTOR, GOOD WILL AMBASSADOR, AGENT FOR BETTER THINGS - MONEY.***
+### ***"[John] Law enlisted the vanity of the Regent [of France, 1716] in his cause. He persuaded him that he saw more clearly than others into sublime theories of finance, which were quite above the ordinary apprehension. He used to declare that, excepting the Regent and the Duke of Savoy, no one had thoroughly comprehended his system."***
+>> #### ***Washington Irving, "The Great Mississippi Bubble", in his 1825 book of essays <ins>The Crayon Papers</ins>.***
 
 3.15
 
