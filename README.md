@@ -1033,14 +1033,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Eighty percent of houses converted to <ins>GOLD MINES!!!!! (RENTAL properties)</ins>. Traveling salesmen <ins>unloading U-Hauls full of money with pitchforks</ins> in exchange for houses. Brink's trucks delivering <ins>handfuls of money</ins> to high danger zones where working people might be encountered. Working people only wanting to buy a HOME, <ins>can't afford a GOLD MINE.</ins>***<br><br>***Starting with EQUALITY, hardly anybody thinks about money, goods and services are so abundant. As Jim Smiley¹ gains influence, goods and services begin to SHY AWAY, money BEGINS TO BE THOUGHT OF. Ongoing, <ins>goods and services retreat as money advances</ins>, shortages, unaffordability. Jim Smiley's pets (demagogues) rush to the rescue, needless solutions to needless problems, promising everyone a GOLD MINE, <ins>INTERFERING WITH EQUALITY!!!!! (with PRICES!!!!!, with OTHER PEOPLE!!!!!, with STANDARDS OF MEASUREMENT!!!!!)</ins> any way they can, <ins>INCREASING MONEY. WHEN MONEY'S VALUE HITS ZERO!!!!!</ins>, THE MIDAS TOUCH FULLY IMPLEMENTED, GOODS AND SERVICES HAVE VANISHED, THERE'S NOTHING FOR MONEY TO BUY, NOTHING BUT MONEY, MONEY IS "EVERYTHING", <ins>the expiration date of the nation has arrived.</ins>***<br><br>***SPOILS ALWAYS!!!!! has an expiration date. Ask any vanished civilization.***
 >> ##### ***¹ See 3.14-2. 37wop2a***<br>***World WITHOUT PRICES-2. Part A. ... <ins>Jim Smiley-powered.</ins> Nothing new. Ask Mark Twain. ...***
 
-3.14-2. 37wop2g (Feb1,2025)
+3.14-2. 37wop2g    [Feb1,2025]
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part G. NOT ENOUGH. Could have spent the money on <ins>BETTER THINGS.</ins> Too late now. The money packed up and left. Malibu.***
 ### ***A house was NOT ENOUGH. Commerce was NOT ENOUGH. Equality was NOT ENOUGH.<BR><BR>Couldn't have just my house, <ins>instead had to have YOUR HOUSE, AND YOURS, AND YOURS, AND YOURS. Instead had to have a house price ONLY I CAN AFFORD!!!!! Instead had to have the house YOU LIVE IN, and the houses NO ONE LIVES IN, because ONLY I CAN AFFORD!!!!! the house price.</ins><br><br>ABNORMALITY!!!!! SPOILS!!!!! GREED!!!!!<BR><BR>Could have spent the money on a lot of <ins>BETTER THINGS.</ins> Too late now. My house and the money are gone. No change in the amount of money in the world, only the amount in MY HANDS. Never did belong in my hands. Money is for <ins>BETTER THINGS</ins>, I couldn't be bothered.<br><br>Homeless dollars <ins>lookin' for a home?</ins> Even homeless dollars know - <ins>somethin' ain't right?</ins> Even homeless dollars are <ins>RESOURCE-WASTE DETECTORS?</ins> Know when <ins>it's time to leave?</ins><BR><BR><ins>MONEY BELONGS TO THE WORLD, FOR BETTER THINGS. BETTER-THINGS POWERED.</ins>***
 
 
-3.14-2. 37wop2h  [Mar.10,2025]
+3.14-2. 37wop2h   [Mar.10,2025]
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part H. Specializing IN MONEY. Til the stupor and the brainwashing wears off, as goods and services (the plunder) runs out, as reality returns, as the WORLD RECLAIMS ITS OWN - A STANDARD OF MEASUREMENT, INALIENABLE LOW VALUE (RESOURCE WASTE) DETECTOR, GOOD WILL AMBASSADOR, AGENT FOR BETTER THINGS - MONEY.***
