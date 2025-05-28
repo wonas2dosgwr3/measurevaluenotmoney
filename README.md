@@ -1048,6 +1048,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>[formatting added]
 >> #### ***Washington Irving, "The Great Mississippi Bubble", in his 1825 book of essays <ins>The Crayon Papers</ins>.***
 
+3.14-2. 37wop2i     [May 28, 2025]
+
+##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+## ***World WITHOUT PRICES-2. Part I. Bankrupt politicians GLORIFYING RESOURCE WASTE - WE WON!!!!! The way of war.***
+> ### ***"[Banker] Noble Wheeler heard the story [of one of his clients' men attacking another client's men] with satisfaction. In this fight, as a not too innocent bystander, <INS>HE STOOD TO WIN NO MATTER WHO LOST. KNOWING THE WAY OF WAR, HE REALIZED BOTH SIDES WOULD LOSE IN THE END.</INS> And that, he decided as he rubbed his fat hands together, was exactly as he wanted it."***
+[formatting added]
+>>> ### ***<ins>Guns Of The Timberlands</ins>, Louis L'Amour, 1955. Chap 6.***
+
 3.15
 
 # ***Nobody's ever at home.¹***
