@@ -1128,7 +1128,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 >> ## ***Part 4. Pleasant dreams of a good time coming.***<br><br>
->>> ### ***"I resolved to enter upon a life of industry; and notwithstanding the obstacle of color, and consciousness of my lowly state, indulged in pleasant dreams of a good time coming, when the possession of some humble habitation, and a few surrounding acres, should reward my labors, and bring me the means of happiness and comfort."
+>>> ### ***"I resolved to enter upon a life of industry; and notwithstanding the obstacle of color, and consciousness of my lowly state, indulged in pleasant dreams of a good time coming, when the possession of some humble habitation, with a few surrounding acres, should reward my labors, and bring me the means of happiness and comfort."<br><br>
+>>>> #### ***- Solomon Northup, <ins>12 Years A Slave</ins>, 1854. Chap 1. [Penguin Classics edition.]***
 
 3.17a
 
