@@ -1126,8 +1126,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.16-V2-4    [Aug2,2025]
 
-##### ***
-
+##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
+>> ## ***Part 4. Pleasant dreams of a good time coming.***<br><br>
 
 3.17a
 
