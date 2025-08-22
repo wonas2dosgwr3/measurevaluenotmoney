@@ -1148,3 +1148,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
 >>> ***¹ Winners and losers (<ins>"counting the score"</ins>), instead of commerce (everybody wins). See 3.16a. Natural law ...***
 
+3.18
+
+# ***LAND OWNERSHIP***
+## ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS>think they got there first (discovered it before the king did).***
