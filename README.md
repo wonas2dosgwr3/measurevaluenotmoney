@@ -1059,7 +1059,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> [formatting added]
 >>> #### ***<ins>Guns Of The Timberlands</ins>, Louis L'Amour, 1955. Chap 6.***
 
-3.14-2. 37wop2j     [Aug22, 2025]
+3.14-2. 37wop2j     [Aug22,2025]
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part J. Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
@@ -1148,7 +1148,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
 >>> ***¹ Winners and losers (<ins>"counting the score"</ins>), instead of commerce (everybody wins). See 3.16a. Natural law ...***
 
-3.18
+3.18     [Aug22,2025]
 
 # ***LAND OWNERSHIP***
 ## ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS>think they got there first (discovered it before the king did).***
