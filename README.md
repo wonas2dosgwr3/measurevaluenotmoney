@@ -1062,7 +1062,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.14-2. 37wop2j     [Aug22, 2025]
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
-## ***World WITHOUT PRICES-2. Part J. Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.
+## ***World WITHOUT PRICES-2. Part J. Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
+> ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***
 
 
 3.15
