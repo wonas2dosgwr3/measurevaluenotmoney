@@ -1059,6 +1059,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> [formatting added]
 >>> #### ***<ins>Guns Of The Timberlands</ins>, Louis L'Amour, 1955. Chap 6.***
 
+3.14-2. 37wop2j     [Aug22, 2025]
+
+##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+## ***World WITHOUT PRICES-2. Part J. Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.
+
+
 3.15
 
 # ***Nobody's ever at home.¹***
