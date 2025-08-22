@@ -1152,4 +1152,4 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***LAND OWNERSHIP***
 ## ***Part 1. Columbus***<br><br>
-> ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS>think they got there first (discovered it before the king did).***
+> ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***
