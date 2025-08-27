@@ -1157,6 +1157,6 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.18-2      [Aug27,2025]
 
 #### ***[LAND OWNERSHIP]***<br>
-## ***Part 2. LOW VALUE wants YOUR LAND¹. HIGH VALUE (industrious people) NEVER DOES.***<br>
+## ***Part 2. LOW VALUE wants YOUR LAND¹. HIGH VALUE (industrious people) NEVER DOES.***
 >> #### ***1. Everyone has land under their feet.***<br><br>
-### ***NOBODY <INS>SPENDS</INS> MONEY ON LOW VALUE. Low value wants NOBODY <INS>SPENDING</INS> MONEY.***<BR><BR>***High value wants NO ONE ELSE'S LAND, EVERYONE <INS>SPENDING</INS> MONEY.***<BR><BR>***The land under <ins>LOW VALUE'S OWN FEET</ins> is not enough.***<br><br>***HIGH VALUE constantly makes better use of land.***
+### ***NOBODY <INS>SPENDS</INS> MONEY ON LOW VALUE. Low value wants NOBODY <INS>SPENDING</INS> MONEY.***<BR><BR>***High value wants NO ONE ELSE'S LAND, EVERYONE <INS>SPENDING</INS> MONEY. The land under <INS>HIGH VALUE'S OWN FEET</INS> is enough.***<BR><BR>***The land under <ins>LOW VALUE'S OWN FEET</ins> is not enough.***<br><br>***HIGH VALUE constantly makes better use of land.***
