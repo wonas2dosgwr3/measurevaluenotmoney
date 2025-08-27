@@ -1150,13 +1150,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.18-1     [Aug22,2025]
 
-# ***LAND OWNERSHIP***
+# ***LAND OWNERSHIP***<br>
 ## ***Part 1. Columbus***<br><br>
 > ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***
 
 3.18-2      [Aug27,2025]
 
-#### ***[LAND OWNERSHIP]***<br><br>
+#### ***[LAND OWNERSHIP]***<br>
 ## ***Part 2. LOW VALUE wants YOUR LAND¹. HIGH VALUE (industrious people) NEVER DOES.***<br>
 >> #### ***1. Everyone has land under their feet.***<br><br>
-### ***NOBODY <INS>SPENDS</INS> MONEY ON LOW VALUE. Low value wants NOBODY <INS>SPENDING</INS> MONEY.***<BR><BR>
+### ***NOBODY <INS>SPENDS</INS> MONEY ON LOW VALUE. Low value wants NOBODY <INS>SPENDING</INS> MONEY.***<BR><BR>***High value wants NO ONE ELSE'S LAND, EVERYONE <INS>SPENDING</INS> MONEY.***<BR><BR>***The land under <ins>LOW VALUE'S OWN FEET</ins> is not enough.***<br><br>***HIGH VALUE constantly makes better use of land.***
