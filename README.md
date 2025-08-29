@@ -1069,7 +1069,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 ## ***World WITHOUT PRICES-2. Part K. "Medium of exchange."***<br>
->> ### ***Avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING <ins>VALUE!!!!!</ins> (EVERYONE!!!!! very well understands, completely incompatible with <ins>LOW VALUE!!!!!</ins>), or "MEASURING" MONEY (VERY DEEP!!!!! subject, no one but money measurers understands, no two money measurers agree on).***<br><br>***Forget <ins>NOT EXCHANGING.</ins>***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***
+>> ### ***Avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING <ins>VALUE!!!!!</ins> (EVERYONE!!!!! very well understands, anathema to <ins>LOW VALUE!!!!!</ins>), or "MEASURING" MONEY (VERY DEEP!!!!! subject, no one but money measurers understands, no two money measurers agree on).***<br><br>***Forget <ins>NOT EXCHANGING.</ins>***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***
 
 
 3.15
