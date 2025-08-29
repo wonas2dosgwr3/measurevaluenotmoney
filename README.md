@@ -1065,11 +1065,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***World WITHOUT PRICES-2. Part J. Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***
 
-3.14-2. 37wop2k     [May 28, 2025]
+3.14-2. 37wop2k     [Aug29,2025]
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
-## ***World WITHOUT PRICES-2. Part K. "Medium of exchange" avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING VALUE!!!!! (EVERYONE!!!!! very well understands, completely incompatible with LOW VALUE!!!!!), or "MEASURING" MONEY (VERY DEEP!!!!! subject, no one but money measurers understands, no two money measurers agree on).***<br>
->> ### ***Forget <ins>NOT EXCHANGING.</ins>***<BR><BR>***Forget happy customers SPENDING!!!!! their money on better mousetraps.***<br><br>***Intoxicated customers LOSING!!!!! their money on RESOURCE WASTE is all LOW VALUE needs.***<br><br>***"Medium of exchange": ENTITLEMENT for LOW VALUE.***
+## ***World WITHOUT PRICES-2. Part K. "Medium of exchange."***<br>
+>> ### ***Avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING VALUE!!!!! (EVERYONE!!!!! very well understands, completely incompatible with LOW VALUE!!!!!), or "MEASURING" MONEY (VERY DEEP!!!!! subject, no one but money measurers understands, no two money measurers agree on).***<br><br>***Forget <ins>NOT EXCHANGING.</ins>***<BR><BR>***Forget happy customers SPENDING!!!!! their money on better mousetraps.***<br><br>***Intoxicated customers LOSING!!!!! their money on RESOURCE WASTE is all LOW VALUE needs.***<br><br>***"Medium of exchange": ENTITLEMENT for LOW VALUE.***
 
 
 3.15
