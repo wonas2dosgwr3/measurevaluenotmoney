@@ -1065,11 +1065,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***World WITHOUT PRICES-2. Part J. Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***
 
-3.14-2. 37wop2k     [Aug29,2025]
+3.14-2. 37wop2k     [Aug29,31,2025]
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
-## ***World WITHOUT PRICES-2. Part K. "Medium of exchange."***<br>
->> ### ***Avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING <ins>VALUE!!!!!</ins> (EVERYONE!!!!! very well understands, anathema to <ins>LOW!!!!!</ins> VALUE), or "MEASURING" MONEY (<ins>VERY DEEP!!!!!</ins> subject, no one but money measurers understands, no two money measurers agree on).***<br><br>***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***
+## ***World WITHOUT PRICES-2. Part K. [Aug31,2025] "Medium of exchange" <INS>CHANGES THE SUBJECT FROM MONEY - TO EXCHANGE.</INS> Life support for LOW VALUE and a BARTER ECONOMY. LOW VALUE is paranoid of VALUE (money).***<br>
+[Aug29,2025]
+>> ### ***"Medium of exchange." Avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING <ins>VALUE!!!!!</ins> (EVERYONE!!!!! very well understands, anathema to <ins>LOW!!!!!</ins> VALUE), or "MEASURING" MONEY (<ins>VERY DEEP!!!!!</ins> subject, no one but money measurers understands, no two money measurers agree on).***<br><br>***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***
 
 
 3.15
