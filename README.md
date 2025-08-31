@@ -1066,8 +1066,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***
 
 3.14-2. 37wop2k     [Aug29,31,2025]
-
-##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
+##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]***<br><br>
 [Aug31,2025]
 ## ***World WITHOUT PRICES-2. Part K. "Medium of exchange" changes the subject from money - value <INS>MEASUREMENT!!!!! - BACK TO EXCHANGE!!!!!.</INS>***<br>
 >> ### ***Life support for <ins>LOW VALUE and a BARTER ECONOMY.</ins>***<br><br>***LOW VALUE is paranoid of <ins>VALUE (money).</ins>***<br><br>
