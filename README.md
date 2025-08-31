@@ -1069,7 +1069,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37.]*** 
 [Aug31,2025]
-## ***World WITHOUT PRICES-2. Part K. "Medium of exchange" changes the subject from money - <INS>BACK TO EXCHANGE!!!!!.</INS>***<br>
+## ***World WITHOUT PRICES-2. Part K. "Medium of exchange" changes the subject from money (value <INS>MEASUREMENT!!!!!) - BACK TO EXCHANGE!!!!!.</INS>***<br>
 >> ### ***Life support for <ins>LOW VALUE and a BARTER ECONOMY.</ins>***<br><br>***LOW VALUE is paranoid of <ins>VALUE (money).</ins>***<br><br>
 [Aug29,2025]
 >> ### ***"Medium of exchange." Avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING <ins>VALUE!!!!!</ins> (EVERYONE!!!!! very well understands, anathema to <ins>LOW!!!!!</ins> VALUE), or "MEASURING" MONEY (<ins>VERY DEEP!!!!!</ins> subject, no one but money measurers understands, no two money measurers agree on).***<br><br>***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***
