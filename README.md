@@ -1080,7 +1080,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part D.]***
  
 # ***World WITHOUT PRICES-2. Part D.***<br><br>
-## <ins>***Needless solutions to needless problems.</ins> Demagogue-powered.***
+## <ins>***Needless solutions to needless problems.</ins> Demagogue-powered.***<br>
 ### ***Unlike a money economy (EQUALITY-powered, HOME IMPROVEMENT-powered), inequality <ins>turns HOUSES LOOSE</ins>, destroys homes.***<br><br>***"My house is SLOWLY ESCAPING, I <ins>could afford it when I bought it, but NOT NOW</ins>.¹ ... I'm the owner??? ... Thin ice is the owner??? ... All this HOUSING CRISIS??? ... Sure would feel better if I <ins>could afford this house NOW</ins>. ... ... <ins>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***"Whose HOME IMPROVEMENT <ins>turns MY HOME!!!!! LOOSE?????</INS> ... ... <INS>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***INEQUALITY is INTERFERENCE WITH OTHER PEOPLE. <ins>Needless solutions to needless problems.</ins> Demagogues.***<br><br>***A money economy (EQUALITY) <ins>turns PEOPLE!!!!! LOOSE (FREEDOM!!!!!)</ins>, not their homes.***
 >> #### ***¹ USA homeowner.***
 
@@ -1150,7 +1150,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***World WITHOUT PRICES-2. Part K.***<br><br>
 [Sept4,2025]
 ## ***RENAMING money. Financial complexity starts here. "Medium of exchange" <ins>LEAVES OUT the medium.</ins> Defeating the dictionary?????***<br>
-> ### ***"MEDIUM OF EXCHANGE" goes better with house payments.***<br><br>***Losing "MEDIUM OF EXCHANGE" hurts less than LOSING MONEY!!!!!***<BR><BR>***MONEY invariably suggests HIGH VALUE - same as NO HOUSE PAYMENTS!!!!! and NO DEBT!!!!!***<BR><BR>***Things are <ins>hazier with "MEDIUM OF EXCHANGE", clears the air of HIGH VALUE!!!!!***</ins><BR><BR>***No tellin' <ins>where</ins> "MEDIUM OF EXCHANGE" comes from. <ins>Smoke and mirrors</ins> for money.***<br><br>***Children are taught <ins>WHAT????? - about WHAT?????</ins> Children are TOO YOUNG for "MEDIUM OF EXCHANGE." Even grown-ups can't tell.***<br><br>
+> ### ***"MEDIUM OF EXCHANGE" goes better with house payments.***<br><br>***Losing "MEDIUM OF EXCHANGE" hurts less than LOSING MONEY!!!!!***<BR><BR>***MONEY invariably suggests HIGH VALUE - same as NO HOUSE PAYMENTS!!!!! and NO DEBT!!!!!***<BR><BR>***Things are <ins>hazier with "MEDIUM OF EXCHANGE", clears the air of HIGH VALUE!!!!!</ins>***<BR><BR>***No tellin' <ins>where</ins> "MEDIUM OF EXCHANGE" comes from. <ins>Smoke and mirrors</ins> for money.***<br><br>***Children are taught <ins>WHAT????? - about WHAT?????</ins> Children are TOO YOUNG for "MEDIUM OF EXCHANGE." Even grown-ups can't tell.***<br><br>
 ## ***"Medium of exchange" <ins>LEAVES OUT the medium</ins> - which LEAVES OUT <ins>exchange,</ins> which LEAVES OUT <ins>safe havens (HOMES!!!!!),</ins> which LEAVES OUT <ins>HIGH VALUE!!!!!,</ins> which leaves <ins>LOW VALUE OWNING EVERYBODY'S LAND,</ins> "MEDIUM OF EXCHANGE" with nothin'to do but <ins>house payments, taxes, and poverty rationing (enough groceries to keep breathing, intoxication) - LOW VALUE!!!!!</ins>***<br><br><ins>***LOW VALUE wants your land.***</ins>
 [Aug31,2025]
 > ## ***"Medium of exchange" changes the subject from money - value <INS>MEASUREMENT!!!!! - BACK TO EXCHANGE!!!!!</INS>***<br>
