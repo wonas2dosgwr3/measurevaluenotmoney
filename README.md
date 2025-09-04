@@ -760,7 +760,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.14-1. 37wop1b
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part B.]***
 
-# ***World WITHOUT PRICES-1. Part B.<br><br>
+# ***World WITHOUT PRICES-1. Part B.***<br><br>
 ## ***23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION) BY OTHER PEOPLE!!!!!</ins> as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears!!!!!, as hunters and gatherers engaged in LEGAL TENDER" SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
 
 3.14-1. 37wop1c
