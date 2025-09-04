@@ -1110,11 +1110,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***
 
 3.14-2. 37wop2k     [Aug29,31,Sept4,2025]
->>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part B.]***<br><br>
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K.]***<br><br>
 # ***World WITHOUT PRICES-2. Part K.***
 [Sept4,2025]
 ## ***RENAMING money. Financial complexity starts here. "Medium of exchange" <ins>LEAVES OUT the medium.</ins> Defeating the dictionary?????***<br>
-### ***"MEDIUM OF EXCHANGE" goes better with house payments.***<br><br>***Losing "MEDIUM OF EXCHANGE" hurts less than LOSING MONEY!!!!!***<BR><BR>***MONEY invariably suggests HIGH VALUE - same as NO HOUSE PAYMENTS!!!!! and NO DEBT!!!!!***<BR><BR>***Things are hazier with "MEDIUM OF EXCHANGE", clears the air of HIGH VALUE!!!!!***<BR><BR>***No tellin' where "MEDIUM OF EXCHANGE" comes from.***<br><br>***Children are taught WHAT????? - about WHAT????? Children are TOO YOUNG for "MEDIUM OF EXCHANGE." Even grown-ups aren't sure.***<br><br>***"Medium of exchange" LEAVES OUT the medium, which LEAVES OUT exchange, which LEAVES OUT safe havens (HOMES!!!!!), which LEAVES OUT HIGH VALUE!!!!!, which leaves LOW VALUE OWNING EVERYBODY'S LAND, and no reason for "MEDIUM OF EXCHANGE" but house payments, taxes, and poverty rationing (groceries, intoxication) - LOW VALUE!!!!!***
+> ### ***"MEDIUM OF EXCHANGE" goes better with house payments.***<br><br>***Losing "MEDIUM OF EXCHANGE" hurts less than LOSING MONEY!!!!!***<BR><BR>***MONEY invariably suggests HIGH VALUE - same as NO HOUSE PAYMENTS!!!!! and NO DEBT!!!!!***<BR><BR>***Things are hazier with "MEDIUM OF EXCHANGE", clears the air of HIGH VALUE!!!!!***<BR><BR>***No tellin' where "MEDIUM OF EXCHANGE" comes from.***<br><br>***Children are taught WHAT????? - about WHAT????? Children are TOO YOUNG for "MEDIUM OF EXCHANGE." Even grown-ups aren't sure.***<br><br>
+> ## ***"Medium of exchange" LEAVES OUT the medium, which LEAVES OUT exchange, which LEAVES OUT safe havens (HOMES!!!!!), which LEAVES OUT HIGH VALUE!!!!!, which leaves LOW VALUE OWNING EVERYBODY'S LAND, and no reason for "MEDIUM OF EXCHANGE" but house payments, taxes, and poverty rationing (enough groceries to keep breathing, intoxication) - LOW VALUE!!!!!***
 [Aug31,2025]
 > ### ***"Medium of exchange" changes the subject from money - value <INS>MEASUREMENT!!!!! - BACK TO EXCHANGE!!!!!.</INS>***<br>
 >> #### ***Life support for <ins>LOW VALUE and a BARTER ECONOMY.</ins>***<br><br>***LOW VALUE is paranoid of <ins>VALUE (money).</ins>***<br><br>
