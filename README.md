@@ -1145,7 +1145,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***
 
 3.14-2. 37wop2k     [Aug29,31,Sept4,2025]
->>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K.]***
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K.]***<br><br>
 # ***World WITHOUT PRICES-2. Part K.***<br><br>
 [Sept4,2025]
 ## ***RENAMING money. Financial complexity starts here. "Medium of exchange" <ins>LEAVES OUT the medium.</ins> Defeating the dictionary?????***<br>
