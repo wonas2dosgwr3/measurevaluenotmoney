@@ -1146,6 +1146,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.14-2. 37wop2k     [Aug29,31,Sept4,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K.]***<br><br>
+
 # ***World WITHOUT PRICES-2. Part K.***<br><br>
 [Sept4,2025]
 ## ***RENAMING money. Financial complexity starts here. "Medium of exchange" <ins>LEAVES OUT the medium.</ins> Defeating the dictionary?????***<br>
