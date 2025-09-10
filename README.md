@@ -567,13 +567,15 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Part 1.***
 ### ***No one owns the marketplace. Everyone owns a piece of it.<br><br>NO MAN'S LAND IS COMMON GROUND created by inalienable rights, MUCH IMPROVED BY A STANDARD OF VALUE.***<br>
 3.00b
->>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br><br>
+>>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 2.***
 ### ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
 >> ***- Joseph Conrad, "Karain: A Memory", Chap 3. 1897***
 
 3.00c
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 3.***
 ### ***"Nobody ever saw a dog make a fair and deliberate exchange of one bone for another with another dog."***
 >> ### ***- ?***
@@ -581,6 +583,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00d
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 4.***
 ### ***"No tengo trono ni reina<br>Ni nadie que me comprenda<br>Pero sigo siendo el rey"<br><br>("I don't have a throne nor a queen<br>Nor anyone who understands me<br>But I continue being the king")***
 >> #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971. See 2009 George Strait album "Twang" for more lyric.***
@@ -588,6 +591,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00e
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 5.<br>Even a fool.***
 ### ***"and you must learn not to despise any man. Even a fool can teach you not to be foolish, and there's no telling where you'll hear the thing that  will help you to do a job easier, or the thing that may save your life."***
 >> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
@@ -595,6 +599,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00f
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 6.<br>Even Lars K. Ahlstrom.***
 ### ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
 >> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II,"Pacific Beach"***
@@ -602,6 +607,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00g
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 7.***<br>***Paranoid of trespassing!!! In banana republic land! Ricardo Güiraldes for President!!!***
 >> #### ***"¡Cuánto había andado ese hombre!<br>En todos los pagos tenía amigos, que lo querían y respetaban, aunque poco tiempo paraba en un punto. Su ascendiente sobre los paisanos era tal que una palabra suya podía arreglar el asunto más embrollado. Su popularidad, empero, lejos de servirle parecía fatigarlo después de un tiempo."***
 > ### ***<ins>-Yo no me puedo quedar mucho en nenguna estancia- decia -porque en seguida estoy queriendo mandar más que los patrones.-</ins>***
@@ -614,6 +620,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00h
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 8.<br>Even a boy. To save his own labor. One of the greatest improvements.***
 ### ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
 >> ***- ?***<br><br>
@@ -621,6 +628,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00i
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 9.<br>Even a bluejay***
 ### ***... steals <ins>my</ins> food ... looks down its beak at me 'cause I <ins>can't fly</ins> ... got news for that bluejay ... got an agenda ... noticed that bird was comin' 'round fairly often ... just bein' friendly I figured ... wasn't til I realized <ins>half my important food was gone!!!</ins>, I found out what was <ins>GOIN' ON!!!</ins> ... got news for that bird ... when that bird <ins>least expects</ins> it ... gonna get a <ins>trade secret</ins> from that bird ... that bird's gonna have <ins>an attack</ins> when it sees <ins>ME flyin' by</ins> ...***<br>
 >>> #### ***Wonas2dosgwr3 firsthand experience***
@@ -628,6 +636,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00j
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 10.<br>Even a marshal***
 ### ***"Like you know, I've been marshal here and there, but never had much trouble with folks. I leave their politics and religion be. Folks can think the way they want, act the way they please, even to acting the fool. All I ask is they don't make too much noise and <ins>DON'T INTERFERE WITH OTHER PEOPLE."</ins>***<br>
    [formatting added]
@@ -636,6 +645,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 3.00k
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
+
 ## ***Part 11.<br>Even rich people***
 ### ***<ins>USING!!!!!</ins> land¹ is all they do, same as everybody else. As long as they DON'T CLAIM AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land than anyone else, nothing can explain it (rich) but <ins>BEING INDUSTRIOUS, HAPPY CUSTOMERS, AND A BETTER MOUSETRAP!!!!!</ins><br><br>But CLAIMING AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land, getting rich <ins>NEVER REALLY HAPPENED!!!!!</ins>, just timeless ancient history of <ins>INTERFERING WITH OTHER PEOPLE!!!!!²</ins>***
 >> #### ***¹ See 3.14m. 37wopm. World WITHOUT PRICES. Part M. Crossing paths MORE with the land under other people's feet (hunting and gathering).***<br><br>***² See 3.00j. Part 10. Even a marshal***
