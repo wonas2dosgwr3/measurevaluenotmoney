@@ -1206,7 +1206,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.16-V2-1
 
 # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
->> ## ***Part 1. Lose all.***<br><br>
+## ***Part 1. Lose all.***<br><br>
 >>> ### ***"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
 >>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***<br><br>
 
@@ -1235,8 +1235,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 3.16-V2-5   [Sept10,2025]
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
-## ***Part 5. No home, no property.***<br><br>
-
+## ***Part 5. SAFE HAVEN. No home, no property.***<br><br>
+>>> ### ***"He [Quentin Durward] recovered from his astonishment, to ask his guide where he usually dwelt.***<br>***"Wherever I chance to be for the time," replied the Bohemian. "I have NO HOME."***<BR>***"How do you GUARD YOUR PROPERTY?"***<BR>***"Excepting the clothes which I wear, and the horse I ride on, I have NO PROPERTY."***<br>
+[formatting added]<br>
+>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap
 
 
 3.17a
