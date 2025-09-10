@@ -565,8 +565,12 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.00a
 ## ***Part 1.***
-### ***No one owns the marketplace. Everyone owns a piece of it.<br><br>NO MAN'S LAND IS COMMON GROUND created by inalienable rights, MUCH IMPROVED BY A STANDARD OF VALUE.***
+### ***No one owns the marketplace. Everyone owns a piece of it.<br><br>NO MAN'S LAND IS COMMON GROUND created by inalienable rights, MUCH IMPROVED BY A STANDARD OF VALUE.***<br>
 3.00b
+>>>>> ##### ***[No man's land (the marketplace!!!).***
+## ***No trespassing.¹***
+>> ### ***¹ Inalienable rights!!!***
+>>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***]<br>
 ## ***Part 2.***
 ### ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
 >> ***- Joseph Conrad, "Karain: A Memory", Chap 3. 1897***
@@ -1238,7 +1242,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Part 5. SAFE HAVEN. No home, no property.***<br><br>
 >>> ### ***"He [Quentin Durward] recovered from his astonishment, to ask his guide where he usually dwelt.***<br>***"Wherever I chance to be for the time," replied the Bohemian. "I have <ins>NO HOME."</ins>***<BR>***"How do you <ins>GUARD YOUR PROPERTY?"</ins>***<BR>***"Excepting the clothes which I wear, and the horse I ride on, I have <ins>NO PROPERTY."</ins> "***<br>
 [formatting added]<br>
->>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI, The Vagrant.***
+>>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***
 
 
 3.17a
