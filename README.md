@@ -1238,7 +1238,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Part 5. SAFE HAVEN. No home, no property.***<br><br>
 >>> ### ***"He [Quentin Durward] recovered from his astonishment, to ask his guide where he usually dwelt.***<br>***"Wherever I chance to be for the time," replied the Bohemian. "I have NO HOME."***<BR>***"How do you GUARD YOUR PROPERTY?"***<BR>***"Excepting the clothes which I wear, and the horse I ride on, I have NO PROPERTY."***<br>
 [formatting added]<br>
->>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI, The Vagrant.***
+>>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI, The Vagrant.***
 
 
 3.17a
