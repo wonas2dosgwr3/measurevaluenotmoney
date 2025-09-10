@@ -1212,25 +1212,32 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 3.16-V2-2
 
-##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
->> ## ***Part 2. Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
+>>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
+## ***Part 2. Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
 >>>> ### ***"Era, sin duda, una excelente jornada para ponerme a trabajar en la construcción de mi nueva casa. ... ... Había pasado más de la mitad del invierno cuando terminé ... mi cabaña"***<br><br>***("It was, without doubt, a great day for me to get to work constructing my new house. ... ...Over half the winter had passed when I finished my house")***
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
 >>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.***<br><br>
 
 3.16-V2-3  [Feb17,2025]
 
-##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
->> ## ***Part 3. Some SPACE.***<br><br>
+>>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
+## ***Part 3. Some SPACE.***<br><br>
 >>> ### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
 >>>> #### ***- wonas2dosgwr3 firsthand information.***
 
 3.16-V2-4    [Aug2,2025]
 
-##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
->> ## ***Part 4. Pleasant dreams of a good time coming.***<br><br>
+>>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
+## ***Part 4. Pleasant dreams of a good time coming.***<br><br>
 >>> ### ***"I resolved to enter upon a life of industry; and notwithstanding the obstacle of color, and consciousness of my lowly state, indulged in pleasant dreams of a good time coming, when the possession of some humble habitation, with a few surrounding acres, should reward my labors, and bring me the means of happiness and comfort."***<br><br>
 >>>> #### ***- Solomon Northup, <ins>Twelve Years A Slave</ins>, 1854. Chap 1. [Penguin Classics edition.]***
+
+3.16-V2-5   [Sept10,2025]
+
+>>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
+## ***Part 5. No home, no property.***<br><br>
+
+
 
 3.17a
 
