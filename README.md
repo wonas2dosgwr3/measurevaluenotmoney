@@ -557,13 +557,13 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 *[formatting added]*<br>
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
 
-3.00 
+# ***3.00 [NO MAN'S LAND]***
 # ***No man's land (the marketplace!!!).***
 ## ***No trespassing.¹***
 >> ### ***¹ Inalienable rights!!!***
 >>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***<br><br><br>
 
-# ***3.00a [NO MAN'S LAND]***
+3.00a 
 ## ***Part 1.***
 ### ***No one owns the marketplace. Everyone owns a piece of it.<br><br>NO MAN'S LAND IS COMMON GROUND created by inalienable rights, MUCH IMPROVED BY A STANDARD OF VALUE.***<br>
 3.00b
