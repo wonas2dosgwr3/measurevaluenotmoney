@@ -1194,7 +1194,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 4.01l. 37wop2l    [Sept15,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part L.]***<br><br>
 # ***Moving up??? SCAVENGING <ins>LOST money,</ins> need <ins>ALL THE LAND IN SIGHT!!!!!</ins> Instead of acorns and berries????? - need <INS>ALL THE LAND IN SIGHT?????</INS> Moving up?????!!!!!***
-## ***<INS>EARNING SPENT</ins> money is obsolete.***<br><br>
+## ***<INS>EARNING SPENT</ins> money, needing SAFE HAVENS (LIMITED LAND, HOMES), is obsolete.***<br><br><br>
 
 # ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
 
@@ -1206,9 +1206,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
 [formatting added]
 >>>>>> ***¹ Rob Roy***<br><br>
->>>> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***
+>>>> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***<br><br><br>
 
-# ***6.00. [NATURAL LAW-1]***<BR><BR>
+# ***6.00. [NATURAL LAW-1]***<BR><BR><br>
 
 > # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***<br><br>
 >> ***"Who's that stomping all over my face***<br>
@@ -1279,7 +1279,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Part 5. SAFE HAVEN. No home, no property.***<br><br>
 >>> ### ***"He [Quentin Durward] recovered from his astonishment, to ask his guide where he usually dwelt.***<br>***"Wherever I chance to be for the time," replied the Bohemian. "I have <ins>NO HOME."</ins>***<BR>***"How do you <ins>GUARD YOUR PROPERTY?"</ins>***<BR>***"Excepting the clothes which I wear, and the horse I ride on, I have <ins>NO PROPERTY."</ins> "***<br>
 [formatting added]<br>
->>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***
+>>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
 
 # ***7.00a [COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers)]***<br><br><br>
@@ -1290,17 +1290,20 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance. ... ... En son hôtel il fait venir le chantier, et lui dit: 《Ah çà, sire Grégoire, <ins>que gagnez-vous par an?</ins>***<br><br>***Par an, moi foi, monsieur, dit avec un ton de rieur le gaillard savetier, ce n'est point ma manière de compter de la sorte, et je n'entasse guère un jour sur l'autre: il suffit qu'à la fin j'att zee rape le bout de l'année; chaque jour amène son pain.***<br><br>***- Eh bien! <ins>que gagnez-vous, dites-moi, par journée?</ins>***<br><br>***Tantôt plus, tantôt moins: le mal est que toujours ... le mal est que dans l'an s'entremêlent des jours qu'il faut chômer; on nous ruine en fêtes; l'une fait tort à l'autre, et monsieur le curé de quelque nouveau saint charge toujours son prône.》***<br><br>***Le Financier, riant de sa naïveté, lui dit: <ins>《Je veux vous mettre aujourd'hui sur le trône: Prenez ces cent écus, gardez-les avec soin, pour vous en servir au besoin.</ins>***<br><br>***Le Savetier crut voir tout l'argent que la terre avait, depuis plus de cent ans, produit pour l'usage des gens. Il retourne chez lui; dans sa cave il enserre l'argent, et sa joie à la fois. Plus de chant: il perdit la voix du moment qu'il gagna ce qui cause nos peínes. Le sommeil quitta son logis; il eut pour hôtes les soucis les soupçons, les alarmes vaines. Tout le jour il avait l'oeil au guet; et la nuit, si quelque chat faisait du bruit, le chat prenait l'argent. A la fin, le pauvre homme s'encourut chez celui qu'il ne réveillait plus:***<br><br>***<ins>《Rendez-moi, lui dit-il, mes chansons et mon somme, et reprenez vos cent écus.》</ins>***
 >> [formatting added]
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
->>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (everybody wins). See 3.16a. Natural law ...***
+>>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (everybody wins). See 3.16a. Natural law ...***<br><br><br>
 
-# ***8.00-1    [LAND OWNERSHIP]***<BR><BR><BR> [Aug22,2025]<BR>
+# ***8.00-1    [LAND OWNERSHIP]***<BR><BR><BR>
+
+[Aug22,2025]<BR>
 
 > # ***LAND OWNERSHIP***<br>
 > ## ***Part 1. Columbus***<br><br>
->> ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***
+>> ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***<br>
 
 8.00-2      [Aug27,2025]
 
 #### ***[LAND OWNERSHIP]***<br>
+
 ## ***Part 2. LOW VALUE wants YOUR LAND¹. HIGH VALUE (industrious people) NEVER DOES.***
 >> #### ***1. Everyone has land under their feet.***<br><br>
 ### ***NOBODY <INS>SPENDS</INS> MONEY ON LOW VALUE. Low value wants NOBODY <INS>SPENDING</INS> MONEY.***<BR><BR>***High value wants NO ONE ELSE'S LAND, EVERYONE <INS>SPENDING</INS> MONEY. The land under high value's own feet is <ins>ENOUGH.</ins>***<BR><BR>***The land under low value's own feet is <ins>NOT ENOUGH.</ins>***<br><br>***HIGH VALUE constantly makes better use of land.***
