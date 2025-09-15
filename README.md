@@ -776,11 +776,11 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 3.13
 
-# ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***
+# ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***<br><br><br>
 
-# ***4.00. [WORLD WITHOUT PRICES-1]***<br><br><br>
+# ***4.00. [WORLD WITHOUT PRICES-1]***<br><br>
 
-37wop1a
+4.00. 37wop1a
 
 > # ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part A.***
 ## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br><br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, <ins>TO CREATE PRICES!!!!!</ins>***
