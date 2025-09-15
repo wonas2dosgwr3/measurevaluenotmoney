@@ -1169,7 +1169,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
  
 # ***World WITHOUT PRICES-2. Part J.***<br><br>
 ## ***Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
-> ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***
+> ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***<br><br>
+
 4.01. 37wop2k     [Aug29,31,Sept4,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K.]***<br><br>
 
@@ -1183,16 +1184,21 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ### ***Life support for <ins>LOW VALUE and a BARTER ECONOMY.</ins>***<br><br>***LOW VALUE is paranoid of <ins>VALUE (money).</ins>***<br><br>
 [Aug29,2025]
 >> ## ***"Medium of exchange." Avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING <ins>VALUE!!!!!</ins> (EVERYONE!!!!! very well understands, anathema to <ins>LOW!!!!!</ins> VALUE), or "MEASURING" MONEY (<ins>VERY DEEP!!!!!</ins> subject, no one but money measurers understands, no two money measurers agree on).***<br><br>
->>> ### ***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***
+>>> ### ***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***<br><br>
 
 
-# ***5.00***<br><br>
+4.01. 37wop2l    [Sept15,2025]
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part L.]***<br><br>
+# ***Moving up??? SCAVENGING <ins>LOST money,</ins> need <ins>ALL THE LAND IN SIGHT!!!!!</ins> Instead of acorns and berries????? - need <INS>ALL THE LAND IN SIGHT?????</INS> Moving up?????!!!!!***
+## ***<INS>EARNING SPENT</ins> money is obsolete.***<br><br>
+
+# ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
 
 # ***Nobody's ever at home.¹***
 ## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
 >>>> #### ***¹ "Independence." Always at YOUR home. Always trespassing.***<br><br>
 
->> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. SCampbell¹; 'wise folks buy and sell,***
+>> ### ***And how go the markets in the South?'<br><br>'Even in the ordinar' replied Mr. Campbell¹; 'wise folks buy and sell,***
 >> # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
 [formatting added]
 >>>>>> ***¹ Rob Roy***<br><br>
