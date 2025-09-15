@@ -1078,7 +1078,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***<br><br><br>
 
 
-> # ***4.01. [WORLD WITHOUT PRICES-2]***<br><br> 4.01. 37wop2a<br><br>
+> # ***4.01. [WORLD WITHOUT PRICES-2]***<br><br><br> 
+
+4.01a. 37wop2a<br><br>
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part A.]***<br>
 
 # ***World WITHOUT PRICES-2. Part A.***<br><br>
@@ -1091,21 +1093,21 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> # ***<ins>Mark Twain's "first great success, the celebrated story</ins>, THE NOTORIOUS JUMPING FROG OF CALAVERAS COUNTY".***<br>
 >> ### ***<ins>The Complete Short Stories of Mark Twain</ins>, Charles Neider, Ed., 1957, p1-6 and frontispiece.***
 
-4.01. 37wop2b
+4.01b. 37wop2b
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part B.]***
 
 # ***World WITHOUT PRICES-2. Part B.***<br><br>
 ## ***<ins>HOUSETRAPS</ins> instead of mousetraps.***
 ### ***Homeless dollars instead of HOMES.***<br><br>***No improvement for homeless dollars but <ins>NO HOMES.</ins>***<br><br>***Traveling salesmen <ins>SELLING HOMELESS DOLLARS!!!!!</ins> can't wait to IMPROVE YOUR HOME BY <INS>MOVING YOU OUT!!!!!, IMPROVE YOU BY YOU HAVING NO HOME!!!!!</INS>***<br><br>***Once you're living in a <INS>HOUSETRAP, NO HOME, UNAFFORDABLE!!!!!</INS>, homeless dollars are safe.***<br><br>***<INS>TRAPPED IN A HOUSETRAP.</INS> NO HOME, UNAFFORDABLE, THE OWE-ZONE LAYER - HOMELESS DOLLARS ARE SAFE.***
 
-4.01. 37wop2c
+4.01c. 37wop2c
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part C.]*** 
 # ***World WITHOUT PRICES-2. Part C.***<br><br>
 ## ***Without <ins>OWNING</ins>. Interference (Jim Smiley) instead. NUMBERS DISGUISED AS PRICES, PEOPLE-FREE. SPOILS!!!!! Investors flocking to PEOPLE-FREE PRICES (NUMBERS, BUBBLES!!!!!, SPOILS!!!!!) INSTEAD OF HOME IMPROVEMENT (PEOPLE).***
 ### ***Without home improvement, it's your BALL AND CHAIN, not your home. It's Jim Smiley's, and sporting with him is all there is.***<br><br>***Without Jim Smiley,***
 # ***<ins>THE MONEY THAT WENT INTO HOUSE PRICES (Jim Smiley's pocket) WENT INTO HOME IMPROVEMENT (YOUR!!!!! POCKET - YOU!!!!!). Went into PEOPLE, NOT LAND (JIM SMILEY).</INS>***
 
-4.01. 37wop2d
+4.01d. 37wop2d
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part D.]***
  
 # ***World WITHOUT PRICES-2. Part D.***<br><br>
@@ -1113,7 +1115,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Unlike a money economy (EQUALITY-powered, HOME IMPROVEMENT-powered), inequality <ins>turns HOUSES LOOSE</ins>, destroys homes.***<br><br>***"My house is SLOWLY ESCAPING, I <ins>could afford it when I bought it, but NOT NOW</ins>.¹ ... I'm the owner??? ... Thin ice is the owner??? ... All this HOUSING CRISIS??? ... Sure would feel better if I <ins>could afford this house NOW</ins>. ... ... <ins>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***"Whose HOME IMPROVEMENT <ins>turns MY HOME!!!!! LOOSE?????</INS> ... ... <INS>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***INEQUALITY is INTERFERENCE WITH OTHER PEOPLE. <ins>Needless solutions to needless problems.</ins> Demagogues.***<br><br>***A money economy (EQUALITY) <ins>turns PEOPLE!!!!! LOOSE (FREEDOM!!!!!)</ins>, not their homes.***
 >> #### ***¹ USA homeowner.***
 
-4.01. 37wop2e
+4.01e. 37wop2e
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part E.]***
  
 # ***World WITHOUT PRICES-2. Part E.***<br><br>
@@ -1132,7 +1134,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> #### [formatting added]<br>
 >>>> #### ***From poem "¡Quién sabe!" by Peruvian poet José Santos Chocano (1875-1934), 1906, in <ins>Alma América</ins>. In <ins>Los Otros Americanos</ins>, N. L. Weisinger and M. C. Johnston, 1934. Pp 103-4 and 195***
 
-4.01. 37wop2f
+4.01f. 37wop2f
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part F.]***
 
 # ***World WITHOUT PRICES-2. Part F.***<br><br>
@@ -1140,7 +1142,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Eighty percent of houses converted to <ins>GOLD MINES!!!!! (RENTAL properties)</ins>. Traveling salesmen <ins>unloading U-Hauls full of money with pitchforks</ins> in exchange for houses. Brink's trucks delivering <ins>handfuls of money</ins> to high danger zones where working people might be encountered. Working people only wanting to buy a HOME, <ins>can't afford a GOLD MINE.</ins>***<br><br>***Starting with EQUALITY, hardly anybody thinks about money, goods and services are so abundant. As Jim Smiley¹ gains influence, goods and services begin to SHY AWAY, money BEGINS TO BE THOUGHT OF. Ongoing, <ins>goods and services retreat as money advances</ins>, shortages, unaffordability. Jim Smiley's pets (demagogues) rush to the rescue, needless solutions to needless problems, promising everyone a GOLD MINE, <ins>INTERFERING WITH EQUALITY!!!!! (with PRICES!!!!!, with OTHER PEOPLE!!!!!, with STANDARDS OF MEASUREMENT!!!!!)</ins> any way they can, <ins>INCREASING MONEY. WHEN MONEY'S VALUE HITS ZERO!!!!!</ins>, THE MIDAS TOUCH FULLY IMPLEMENTED, GOODS AND SERVICES HAVE VANISHED, THERE'S NOTHING FOR MONEY TO BUY, NOTHING BUT MONEY, MONEY IS "EVERYTHING", <ins>the expiration date of the nation has arrived.</ins>***<br><br>***SPOILS ALWAYS!!!!! has an expiration date. Ask any vanished civilization.***
 >> ##### ***¹ See 3.14-2. 37wop2a***<br>***World WITHOUT PRICES-2. Part A. ... <ins>Jim Smiley-powered.</ins> Nothing new. Ask Mark Twain. ...***
 
-4.01. 37wop2g    [Feb1,2025]
+4.01g. 37wop2g    [Feb1,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part G.]***
 
 # ***World WITHOUT PRICES-2. Part G.***<br><br>
@@ -1148,7 +1150,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***A house was NOT ENOUGH. Commerce was NOT ENOUGH. Equality was NOT ENOUGH.<BR><BR>Couldn't have just my house, <ins>instead had to have YOUR HOUSE, AND YOURS, AND YOURS, AND YOURS. Instead had to have a house price ONLY I CAN AFFORD!!!!! Instead had to have the house YOU LIVE IN, and the houses NO ONE LIVES IN, because ONLY I CAN AFFORD!!!!! the house price.</ins><br><br>ABNORMALITY!!!!! SPOILS!!!!! GREED!!!!!<BR><BR>Could have spent the money on a lot of <ins>BETTER THINGS.</ins> Too late now. My house and the money are gone. No change in the amount of money in the world, only the amount in MY HANDS. Never did belong in my hands. Money is for <ins>BETTER THINGS</ins>, I couldn't be bothered.<br><br>Homeless dollars <ins>lookin' for a home?</ins> Even homeless dollars know - <ins>somethin' ain't right?</ins> Even homeless dollars are <ins>RESOURCE-WASTE DETECTORS?</ins> Know when <ins>it's time to leave?</ins><BR><BR><ins>MONEY BELONGS TO THE WORLD, FOR BETTER THINGS. BETTER-THINGS POWERED.</ins>***
 
 
-4.01. 37wop2h   [Mar.10,2025]
+4.01h. 37wop2h   [Mar.10,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part H.]***
  
 # ***World WITHOUT PRICES-2. Part H.***<br><br>
@@ -1157,7 +1159,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>[formatting added]
 >> #### ***Washington Irving, "The Great Mississippi Bubble", in his 1825 book of essays <ins>The Crayon Papers</ins>.***
 
-4.01. 37wop2i     [May 28, 2025]
+4.01i. 37wop2i     [May 28, 2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part I.]***
  
 # ***World WITHOUT PRICES-2. Part I.***<br><br>
@@ -1166,14 +1168,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> [formatting added]
 >>> #### ***<ins>Guns Of The Timberlands</ins>, Louis L'Amour, 1955. Chap 6.***
 
-4.01. 37wop2j     [Aug22,2025]
+4.01j. 37wop2j     [Aug22,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part J.]***
  
 # ***World WITHOUT PRICES-2. Part J.***<br><br>
 ## ***Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***<br><br>
 
-4.01. 37wop2k     [Aug29,31,Sept4,2025]
+4.01k. 37wop2k     [Aug29,31,Sept4,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part K.***<br><br>
@@ -1189,7 +1191,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***<br><br>
 
 
-4.01. 37wop2l    [Sept15,2025]
+4.01l. 37wop2l    [Sept15,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part L.]***<br><br>
 # ***Moving up??? SCAVENGING <ins>LOST money,</ins> need <ins>ALL THE LAND IN SIGHT!!!!!</ins> Instead of acorns and berries????? - need <INS>ALL THE LAND IN SIGHT?????</INS> Moving up?????!!!!!***
 ## ***<INS>EARNING SPENT</ins> money is obsolete.***<br><br>
