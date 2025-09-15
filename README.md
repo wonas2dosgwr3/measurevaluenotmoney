@@ -558,10 +558,10 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
 
 # ***3.00 [NO MAN'S LAND]***
-# ***No man's land (the marketplace!!!).***
-## ***No trespassing.¹***
->> ### ***¹ Inalienable rights!!!***
->>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***<br><br><br>
+> # ***No man's land (the marketplace!!!).***
+> ## ***No trespassing.¹***
+>>> ### ***¹ Inalienable rights!!!***
+>>>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***<br><br><br>
 
 3.00a 
 ## ***Part 1.***
