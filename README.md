@@ -1078,7 +1078,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***<br><br><br>
 
 
-> # ***4.01. [WORLD WITHOUT PRICES-2]***<br><br> 37wop2a<br><br><br>
+> # ***4.01. [WORLD WITHOUT PRICES-2]***<br><br> 4.01. 37wop2a<br><br>
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part A.]***<br>
 
 # ***World WITHOUT PRICES-2. Part A.***<br><br>
