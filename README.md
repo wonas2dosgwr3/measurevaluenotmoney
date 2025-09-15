@@ -778,7 +778,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***
 
-# ***4.00. [WORLD WITHOUT PRICES-1]*** 37wop1a
+# ***4.00. [WORLD WITHOUT PRICES-1]***<br><br> 37wop1a
 
 > # ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part A.***
 ## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br><br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, <ins>TO CREATE PRICES!!!!!</ins>***
@@ -1076,7 +1076,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***<br><br><br>
 
 
-> # ***4.01. [WORLD WITHOUT PRICES-2]*** 37wop2a<br><br><br>
+> # ***4.01. [WORLD WITHOUT PRICES-2]***<br><br> 37wop2a<br><br><br>
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part A.]***<br>
 
 # ***World WITHOUT PRICES-2. Part A.***<br><br>
@@ -1186,7 +1186,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***
 
 
-3.15
+# ***5.00***<br><br>
 
 # ***Nobody's ever at home.¹***
 ## ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
@@ -1198,9 +1198,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ***¹ Rob Roy***<br><br>
 >>>> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***
 
-3.16-V1
+# ***6.00. [NATURAL LAW-1]***<BR><BR>
 
-# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***
+> # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***<br><br>
 >> ***"Who's that stomping all over my face***<br>
 >> ***Where's that silhouette I'm trying to trace***<br>
 >> ***Who's putting sponge in the bells I once rung***<br>
@@ -1229,7 +1229,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1965***<br><br>https://en.m.wikipedia.org/wiki/Nowadays_Clancy_Can%27t_Even_Sing<br><br>***1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br>
 
-3.16-V2-1
+> # ***6.01-1. [NATURAL LAW-2]<BR><BR>
 
 # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
 ## ***Part 1. Lose all.***<br><br>
@@ -1237,7 +1237,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
 >>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***<br><br>
 
-3.16-V2-2
+6.01-2
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 
@@ -1246,7 +1246,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
 >>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.***<br><br>
 
-3.16-V2-3  [Feb17,2025]
+6.01-3  [Feb17,2025]
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 
@@ -1254,7 +1254,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
 >>>> #### ***- wonas2dosgwr3 firsthand information.***
 
-3.16-V2-4    [Aug2,2025]
+6.01-4    [Aug2,2025]
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 
@@ -1262,7 +1262,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***"I resolved to enter upon a life of industry; and notwithstanding the obstacle of color, and consciousness of my lowly state, indulged in pleasant dreams of a good time coming, when the possession of some humble habitation, with a few surrounding acres, should reward my labors, and bring me the means of happiness and comfort."***<br><br>
 >>>> #### ***- Solomon Northup, <ins>Twelve Years A Slave</ins>, 1854. Chap 1. [Penguin Classics edition.]***
 
-3.16-V2-5   [Sept10,2025]
+6.01-5   [Sept10,2025]
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 
@@ -1272,7 +1272,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***
 
 
-3.17a
+# ***7.00a [COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers)]***<br><br><br>
 
 # ***Counting the score¹ ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
@@ -1280,15 +1280,15 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance. ... ... En son hôtel il fait venir le chantier, et lui dit: 《Ah çà, sire Grégoire, <ins>que gagnez-vous par an?</ins>***<br><br>***Par an, moi foi, monsieur, dit avec un ton de rieur le gaillard savetier, ce n'est point ma manière de compter de la sorte, et je n'entasse guère un jour sur l'autre: il suffit qu'à la fin j'att zee rape le bout de l'année; chaque jour amène son pain.***<br><br>***- Eh bien! <ins>que gagnez-vous, dites-moi, par journée?</ins>***<br><br>***Tantôt plus, tantôt moins: le mal est que toujours ... le mal est que dans l'an s'entremêlent des jours qu'il faut chômer; on nous ruine en fêtes; l'une fait tort à l'autre, et monsieur le curé de quelque nouveau saint charge toujours son prône.》***<br><br>***Le Financier, riant de sa naïveté, lui dit: <ins>《Je veux vous mettre aujourd'hui sur le trône: Prenez ces cent écus, gardez-les avec soin, pour vous en servir au besoin.</ins>***<br><br>***Le Savetier crut voir tout l'argent que la terre avait, depuis plus de cent ans, produit pour l'usage des gens. Il retourne chez lui; dans sa cave il enserre l'argent, et sa joie à la fois. Plus de chant: il perdit la voix du moment qu'il gagna ce qui cause nos peínes. Le sommeil quitta son logis; il eut pour hôtes les soucis les soupçons, les alarmes vaines. Tout le jour il avait l'oeil au guet; et la nuit, si quelque chat faisait du bruit, le chat prenait l'argent. A la fin, le pauvre homme s'encourut chez celui qu'il ne réveillait plus:***<br><br>***<ins>《Rendez-moi, lui dit-il, mes chansons et mon somme, et reprenez vos cent écus.》</ins>***
 >> [formatting added]
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
->>> ***¹ Winners and losers (<ins>"counting the score"</ins>), instead of commerce (everybody wins). See 3.16a. Natural law ...***
+>>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (everybody wins). See 3.16a. Natural law ...***
 
-3.18-1     [Aug22,2025]
+# ***8.00-1    [LAND OWNERSHIP]***<BR><BR><BR> [Aug22,2025]<BR>
 
-# ***LAND OWNERSHIP***<br>
-## ***Part 1. Columbus***<br><br>
-> ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***
+> # ***LAND OWNERSHIP***<br>
+> ## ***Part 1. Columbus***<br><br>
+>> ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***
 
-3.18-2      [Aug27,2025]
+8.00-2      [Aug27,2025]
 
 #### ***[LAND OWNERSHIP]***<br>
 ## ***Part 2. LOW VALUE wants YOUR LAND¹. HIGH VALUE (industrious people) NEVER DOES.***
