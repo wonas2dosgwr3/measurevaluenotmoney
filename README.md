@@ -784,19 +784,19 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br><br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, <ins>TO CREATE PRICES!!!!!</ins>***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
-3.14-1. 37wop1b
+4.00-1. 37wop1b
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part B.]***
 
 # ***World WITHOUT PRICES-1. Part B.***<br><br>
 ## ***23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION) BY OTHER PEOPLE!!!!!</ins> as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears!!!!!, as hunters and gatherers engaged in LEGAL TENDER" SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
 
-3.14-1. 37wop1c
+4.00-1. 37wop1c
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part C.]***
 
 # ***World WITHOUT PRICES-1. Part C.***<br><br>
 ## ***<ins>Payments (RENT!!!) and poverty-rationing, instead of buying and selling and recycling of bad merchandise.</ins><br><br>Bad merchandise doesn't sell, <ins>the main reason for obstructing commerce and DEMANDING RENT!!! (PAYMENTS!!!; ENLARGING INSTEAD OF REDUCING LAND REQUIREMENT).</ins> As long as buying and selling controls the government, bad merchandise is removed from the marketplace and recycled. But when bad merchandise controls the  government, <ins>currency speculation REPLACES PRICES WITH FINANCIAL COMPLEXITY!!!!! (ANYBODY'S GUESS WHAT THE LEGITIMATE COST OF ANYTHING IS!!!!!)</ins>, good merchandise deserts the marketplace, and government with no resource but bad merchandise (poverty), DISPENCING EVER-BIGGER <ins>JACKPOTS OF POVERTY (BAD MERCHANDISE)</ins> TO THE CURRENCY SPECULATORS, DEMANDING <ins>EVER MORE PAYMENTS (POVERTY!!!), AND RATIONING POVERTY</ins> TO EVERYONE ELSE TO THE BITTER END, goes under, <ins>the biggest bubble bursts.</ins>***
 
-3.14-1. 37wop1d
+4.00-1. 37wop1d
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part D.]***
 
 
@@ -810,7 +810,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ¹ Gold Vault
 Learn about the Federal Reserve Bank of New York's gold vault https://www.newyorkfed.org/aboutthefed/goldvault.html<br><br>
 
-3.14-1. 37wop1e
+4.00-1. 37wop1e
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part E.]***
 
 
@@ -823,7 +823,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ## ***No law you have to measure value, remember having your life saved, even if government recognizes such a thing ... ... natural-born idiot Bailie.***<br><br>
 >>>> #### ***¹ Loch Lomond (Wikipedia). https://en.m.wikipedia.org/wiki/Loch_Lomond***<br><br><br>***² <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***<br><br><br>
 
-3.14-1. 37wop1f
+4.00-1. 37wop1f
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part F.]***
 
 
@@ -832,7 +832,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ### ***<ins>Tyrants (bad merchandise) pay WITH THE LAND UNDER THEIR OWN FEET!!!!!</ins> - the glory that was Rome, etc, etc, etc ...***<br><br>***GOOD WILL¹ squares it for everyone else.***<br><br>***NO MAN'S LAND² (NO TRESPASSING) <ins>strictly enforced!!!!!</ins> - the glory that was Rome, etc, etc, etc ...***<br><br>***Goods and services (COMPETITION!!!) in full retreat (world without goods and services!!!, WITHOUT COMPETITION!!!), <ins>NOTHING IN SIGHT BUT LAND (ALL MINE!!!!!)!!!, bad merchandise feels safe</ins> - until THE PLUNDER RUNS OUT, THEN THE LAND UNDERFOOT RUNS OUT!!!!!; <ins>bad merchandise SUBMERGES</ins> IN THE FINANCIAL TARPIT IT REPLACED PRICES WITH, <ins>EVICTED</ins>, THE SAME AS EVERY OTHER BUBBLE!!!!! - the glory that was Rome, etc, etc, etc. <ins>ANOTHER EXTINCT DINASOUR</ins>.***
 >>> #### ***¹ Good will: The LONG-NEGLECTED LEGITIMATE BUSINESS OF THE PETTIFOGGING (US JUDICIAL) BRANCH OF GOVERNMENT. NATURAL LAW. Common sense. Commerce. The marketplace. NO MAN'S LAND.***<br><br>***² No man's land. See 3.00***
 
-3.14-1. 37wop1g
+4.00-1. 37wop1g
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part G.]***
 
 # ***World WITHOUT PRICES-1. Part G.***<br><br>
@@ -850,7 +850,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 >>> #### ***¹ See 2.32. THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 
-3.14-1. 37wop1h
+4.00-1. 37wop1h
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part H.]***
 
 
@@ -859,7 +859,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ### ***Houses are not for living in, if you can help it.***<br><br>***Living in a homeless dollar dispenser you own, <ins>TURNS IT OFF!!!!!</ins>***<br><br>***MOVING OUT!!!!! - SOMEBODY ELSE!!!!! living in it - <ins>TURNS IT ON!!!!!</ins>***<br><br>***<ins>REVERSING THE AMERICAN DREAM!!!!!¹</ins> HITS THE JACKPOT!!!!! Owning a house <ins>SOMEBODY ELSE!!!!!²</ins> lives in¹, instead of owning YOUR OWN house, PREVENTS IT FROM BEING EITHER <ins>THEIR HOME OR YOURS!!!!!</ins> - the only requirement (no signs of life, installment plan, poverty) for a homeless dollar dispenser to <ins>turn on.</ins>***<br><br>***A "very smart investor" owns FIFTEEN houses - FIFTEEN homeless dollar dispensers!!!!! - FIFTEEN <ins>HOMELESS HOUSES!!!!!³</ins>***<br><br>***Living ON WHEELS⁴ (TRAVELING) instead: Shopping carts to RVs for people who EARN homeless dollars; luxury modes (liners, etc) for those who DON'T - CURRENCY SPECULATORS ... till the plunder runs out.***
 >>> #### ***¹ Returning barbarism.***<br><br>***² You lose, I win!!!!!***<br><br>***³ wonas2dosgwr3 firsthand report.***<br><br>***⁴ <ins>One-quarter of US population</ins> living on wheels? - wonas2dosgwr3 guestimate. One dissenter, career 18-wheeler driver Paul, said MORE, he'd guess.***
 
-3.14-1. 37wop1i
+4.00-1. 37wop1i
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part I.]***
 
 
@@ -877,7 +877,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >>>> #### ***¹ Except groceries, and thrift stores.***<br><br>
 >>>> #### ***² By Clayton Mcmichen***
 
-3.14-1. 37wop1j
+4.00-1. 37wop1j
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part J.]***
 
 
@@ -891,7 +891,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> ### ***Going through an affluent neighborhood, near TWO DECADES ago², enough stuff - a la windows, doors, appliances, all manner of supplies, lumber, etc, etc, etc - by the street with "FREE" signs, to build - <ins>HOW MANY????? tiny homes - 4????? - 10????? - !!!!!?????!!!!!</ins>***<br><br>
 >>>> #### ***² Wonas2dosgwr3 information.***
 
-3.14-1. 37wop1k
+4.00-1. 37wop1k
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part K.]***
 
 # ***World WITHOUT PRICES-1. Part K.***<br><br>
@@ -900,7 +900,7 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> #### ***¹ Non-seasonal, ALL YEAR AROUND!!!!!<br><br>² Definitive discussion by The Silhouettes:***
 https://youtu.be/R97L-nkgrxo?feature=shared
 
-3.14-1. 37wop1l-a
+4.00-1. 37wop1l-a
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part L-a.]***
 
 
@@ -923,7 +923,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***<br><br>
  
 
-3.14-1. 37wop1l-b
+4.00-1. 37wop1l-b
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part L-b.]***
 
 
@@ -932,7 +932,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
-3.14-1. 37wop1m
+4.00-1. 37wop1m
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part M.]***
 
 
@@ -942,7 +942,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***<ins>USE!!!!!</ins>***
 ### ***than anyone else, would <ins>WANT</ins> an iota more, could <ins>LEGITIMATELY BE!!!!!</ins> the richest with an iota more, would be <ins>CROSSING PATHS MORE?????</ins>***
 
-3.14-1. 37wop1n
+4.00-1. 37wop1n
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part N.]***
 
 # ***World WITHOUT PRICES-1. Part N.***<br><br>
@@ -954,14 +954,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***" "Homeless" tells the story of a woman and her children living on the streets. Hillman told <ins>The Tennessean</ins> in 1988: "I saw a woman who had the look in her, not of a drug addict or a mental patient, but just of a person. Steve Hill and I concocted a scenario based on that."[5]"***<br>
 >>>> ##### ***- Goldsmith, Thomas (October 8, 1988). "'Troubles and trials in three-part harmony'". <ins>The Tennessean</ins>. [From Wikipedia. "Running (The Desert Rose Band album)"]<br>https://en.m.wikipedia.org/wiki/Running_(The_Desert_Rose_Band_album)***
 
-3.14-1. 37wop1o
+4.00-1. 37wop1o
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part O.]***
 
 # ***World WITHOUT PRICES-1. Part 0.***<br><br>
 ## ***The REVERSE OF PROSPERITY (shortage of <ins>SHORTAGES!!!!!</ins>).***
 ### ***Shortages of <ins>EVERYTHING (GOODS AND SERVICES)!!!!!</ins>,  and <ins>superabundance</ins> (butterfly nets full of "money" from showering confetti clouds, "money" growing on trees, etc) <ins> of "MONEY"!!!!!</ins>.***<br><br>***Instead of PROSPERITY, abundance of <ins>everything EXCEPT</ins> -  MANDITORY SHORTAGE OF MONEY!!!!!***
 
-3.14-1. 37wop1p
+4.00-1. 37wop1p
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part P.]***
 
 
@@ -971,7 +971,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Much ado about nothing.<br>Nothing left.***
 
 
-3.14-1. 37wop1q
+4.00-1. 37wop1q
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part Q.]***
 
 
