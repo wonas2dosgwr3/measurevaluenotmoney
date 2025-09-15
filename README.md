@@ -983,7 +983,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> ##### ***_ <ins>A First Spanish Reader</ins>, Erwin W. Roessler and Alfred Remy, High  School of Commerce, New York, N.Y., <ins>1916</ins>. "39. Los Cuatro hermanos."*** 
 
 
-3.14-1. 37wop1R
+4.00-1. 37wop1R
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part R.]***
 
 
@@ -993,7 +993,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***Now I'll tell one.***
 
 
-3.14-1. 37wop1s
+4.00-1. 37wop1s
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part S.]***
 
 
@@ -1003,7 +1003,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 
 
-3.14-1. 37wop1t
+4.00-1. 37wop1t
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part T.]***
 
 
@@ -1014,7 +1014,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 
 
-3.14-1. 37wop1u
+4.00-1. 37wop1u
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part U.]***
 
 
@@ -1024,7 +1024,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 
 
-3.14-1. 37wop1V
+4.00-1. 37wop1V
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part V.]***
 
 
@@ -1036,7 +1036,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***I can afford houses with the proceeds of <ins>sardine cans full of TENANTS.</ins>***
 
 
-3.14-1. 37wop1W
+4.00-1. 37wop1W
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part W.]***
 
 
@@ -1045,7 +1045,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***My house (castle!!!!!) is worth FAR MORE  <ins>WITHOUT ME?????</ins>***<br><br>***Every house is worth far more <ins>WITHOUT ITS OWNER!!!!!?????</ins>***<br><br>***To a <ins>NEW!!!!!</ins> owner????? To <ins>BUYERS ONLY!!!!!?????, NOT TO SELLERS!!!!!????? Not to ME!!!!!?????</ins>***<br><br>***To <ins>TRAVELING SALESMEN BUYING</ins> houses?????<br>"Just driving by, noticed you were out in the yard, no, I don't want directions, just wondered if you'd <ins>sell your house?</ins>"***<br><br>***<ins>SELLERS PAY!!!!! (NO HOME)</ins> - for <ins>WHAT?????</ins> Buyers do <ins>WHAT?????</ins>***<br><br>***How come far higher value CAN'T MAKE THEIR OWN HOMES!!!!!?????, <ins>ONLY WANT MINE!!!!!?????</ins><br>Life, liberty, and the pursuit of <ins>OTHER PEOPLE'S</ins> houses?????***<br><br>***Open season on <ins>HOMES</ins> (houses and house sellers).***<br><br>***SARDINE CANS FULL OF TENANTS, DECADES OF HOMELESS PEOPLE. FORECLOSURES. BUBBLES.***<br><br>***In Fourth of July-land <ins>houses are more important than people?????</ins>***
 
 
-3.14-1. 37wop1X
+4.00-1. 37wop1X
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part X.]***
 
 # ***World WITHOUT PRICES-1. Part X.***<br><br>
@@ -1054,7 +1054,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
 
-3.14-1. 37wop1Y
+4.00-1. 37wop1Y
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part Y.]***
 
 
@@ -1067,7 +1067,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 
 
-3.14-1. 37wop1Z
+4.00-1. 37wop1Z
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part Z.]***
 
 
