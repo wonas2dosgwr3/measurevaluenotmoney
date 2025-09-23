@@ -1175,10 +1175,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***<br><br>
 
-4.01k. 37wop2k     [Aug29,31,Sept4,2025]
+4.01k. 37wop2k     [Aug29,31,Sept4,23,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part K.***<br><br>
+[Sept23,2025]
+## ***<ins>TWO MONEY EXCHANGES!!!!!</ins> per goods-and-services exchange becomes <ins>"medium"</ins> of exchange. <ins>Financial complexity</ins> of exchange. <ins>Minding other peoples' business</ins> of exchange. <ins>Low value of high value.***</ins>
+
+
 [Sept4,2025]
 ## ***RENAMING money. Financial complexity starts here. "Medium of exchange" <ins>LEAVES OUT the medium.</ins> Defeating the dictionary?????***<br>
 > ### ***"MEDIUM OF EXCHANGE" goes better with house payments.***<br><br>***Losing "MEDIUM OF EXCHANGE" hurts less than LOSING MONEY!!!!!***<BR><BR>***MONEY invariably suggests HIGH VALUE - same as NO HOUSE PAYMENTS!!!!! and NO DEBT!!!!!***<BR><BR>***Things are <ins>hazier with "MEDIUM OF EXCHANGE", clears the air of HIGH VALUE!!!!!</ins>***<BR><BR>***No tellin' <ins>where</ins> "MEDIUM OF EXCHANGE" comes from. <ins>Smoke and mirrors</ins> for money.***<br><br>***Children are taught <ins>WHAT????? - about WHAT?????</ins> Children are TOO YOUNG for "MEDIUM OF EXCHANGE." Even grown-ups can't tell.***<br><br>
