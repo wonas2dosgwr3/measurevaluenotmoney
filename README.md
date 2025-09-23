@@ -1176,11 +1176,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***<br><br>
 
 4.01k. 37wop2k     [Aug29,31,Sept4,23,2025]
->>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K.]***<br><br>
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K. <ins>MEDIUM OF EXCHANGE!!!!! Restoring confusion.</ins>]***<br><br>
 
-# ***World WITHOUT PRICES-2. Part K.***<br><br>
+# ***World WITHOUT PRICES-2. Part K. <ins>MEDIUM OF EXCHANGE!!!!! Restoring confusion.</ins>***<br><br>
 [Sept23,2025]
-## ***<ins>TWO MONEY EXCHANGES!!!!!</ins> per goods-and-services exchange becomes <ins>"medium"</ins> of exchange. <ins>Financial complexity</ins> of exchange. <ins>Minding other peoples' business</ins> of exchange. <ins>Low value of high value.***</ins>
+## ***<ins>TWO MONEY EXCHANGES!!!!!</ins> per goods-and-services exchange becomes <ins>"medium"</ins> of exchange. <ins>Financial complexity</ins> of exchange. <ins>Minding other peoples' business</ins> of exchange. <ins>LOW VALUE OF HIGH VALUE!!!!!***</ins><BR>
+> ### ***<INS>TWICE AS MANY MONEY EXCHANGES (EARNING AND SPENDING MONEY)!!!!!</INS> for every goods-and-services exchange!!!!! What kind of goods and services can <INS>withstand THAT SCRUTINY!!!!!?????</INS>***<BR><BR>***<ins>Twice as many money exchanges WITHOUT!!!!! A "MEDIUM"</ins> - WITHOUT!!!!! confusion, financial complexity, minding other peoples' business????? ŴITHOUT LOW VALUE?????</INS>***<BR>
 
 
 [Sept4,2025]
