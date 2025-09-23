@@ -1180,7 +1180,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***World WITHOUT PRICES-2. Part K. <ins>MEDIUM OF EXCHANGE!!!!! Restoring confusion.</ins>***<br><br>
 [Sept23,2025]
-## ***<ins>TWO MONEY EXCHANGES!!!!! per</ins> goods-and-services <ins>exchange</ins> becomes <ins>"medium"</ins> of exchange. <ins>Financial complexity</ins> of exchange. <ins>Minding other peoples' business</ins> of exchange. <ins>LOW VALUE OF HIGH VALUE!!!!!</ins>***<BR>
+## ***<ins>TWO MONEY EXCHANGES!!!!! per</ins> goods-and-services <ins>exchange</ins> becomes <ins>"MEDIUM"</ins> of exchange. <ins>Financial complexity</ins> of exchange. <ins>Minding other peoples' business</ins> of exchange. <INS>CONFUSION</INS> of exchange. <ins>LOW VALUE OF HIGH VALUE!!!!!</ins>***<BR>
 > ### ***<INS>TWICE AS MANY MONEY EXCHANGES (EARNING AND SPENDING MONEY)!!!!!</INS> for every goods-and-services exchange!!!!! What kind of goods and services can <INS>withstand THAT SCRUTINY!!!!!?????</INS>***<BR><BR>***<ins>Twice as many money exchanges WITHOUT!!!!! A "MEDIUM"</ins> - WITHOUT!!!!! confusion, financial complexity, minding other peoples' business????? <ins>WITHOUT LOW VALUE?????</INS>***<BR>
 
 
