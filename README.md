@@ -1175,12 +1175,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
 > ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***<br><br>
 
-4.01k. 37wop2k     [Aug29,31,Sept4,23,2025]
->>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K. <ins>MEDIUM OF EXCHANGE!!!!! Restoring confusion.</ins>]***<br><br>
+4.01k. 37wop2k     [Aug29,31,Sept4,23,Oct3,2025]
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part K. <ins>MEDIUM OF EXCHANGE!!!!! Raising homeless dollars, NOT MONEY, less goods-and-services. Restoring confusion.</ins>]***<br><br>
 
-# ***World WITHOUT PRICES-2. Part K. <ins>MEDIUM OF EXCHANGE!!!!! Restoring confusion.</ins>***<br><br>
-[Sept23,2025]
-## ***<ins>TWO MONEY EXCHANGES!!!!! per</ins> goods-and-services <ins>exchange</ins> becomes <ins>"MEDIUM"</ins> of exchange. <ins>Financial complexity</ins> of exchange. <ins>Minding other peoples' business</ins> of exchange. <INS>CONFUSION</INS> of exchange. <ins>LOW VALUE OF HIGH VALUE!!!!!</ins>***<BR>
+# ***World WITHOUT PRICES-2. Part K. <ins>MEDIUM OF EXCHANGE!!!!! Raising homeless dollars, NOT MONEY, less goods-and-services. Restoring confusion.</ins>***<br><br>
+[Sept23,Oct3,2025]
+## ***"Medium of exchange" <ins>DOES JUSTICE!!!!! TO TWICE AS MANY MONEY!!!!! EXCHANGES</ins> per goods-and-services exchange?????!!!!! DOES JUSTICE TO THE <INS>FAR-HIGHER VALUE!!!!!</ins> OF THE TWO MONEY EXCHANGES (EARNING money, and SPENDING money) than direct goods-and-services exchange (BARTER!!!!! economy)?????!!!!!<br><br>"Medium of exchange": <ins>Financial complexity</ins> of exchange. <ins>Minding other peoples' business</ins> of exchange. <INS>SABOTAGING</INS> of exchange. <ins>LOW VALUE OF HIGH VALUE!!!!! LOW VALUE GOING LOWER!!!!!</ins>***<BR>
 > ### ***<INS>TWICE AS MANY MONEY EXCHANGES (EARNING AND SPENDING MONEY)!!!!!</INS> for every goods-and-services exchange!!!!! What kind of goods and services can <INS>withstand THAT SCRUTINY!!!!!?????</INS>***<BR><BR>***<ins>Twice as many money exchanges WITHOUT!!!!! A "MEDIUM"</ins> - WITHOUT!!!!! confusion, financial complexity, minding other peoples' business????? <ins>WITHOUT LOW VALUE?????</INS>***<BR>
 
 
