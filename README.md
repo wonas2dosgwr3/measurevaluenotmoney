@@ -1248,7 +1248,44 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>>> ##### ***[6.00. [NATURAL LAW-1]***<BR><BR><br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***<br><br>]
 > ## ***6.00-2. "El Guerrero." Horacio Gomez conrado.<br><br>
-> ## ***
+> ## ***Algún tiempo atrás***<br>
+> ## ***En cualquier lugar***<br>
+> ## ***Murió una mujer***<br>
+> ## ***Y el único testigo fue el viento***<br><br>
+> ## ***El mono que bajó de la luna me dijo:***<br>
+> ## ***"Si no hay amor, tendrás la fortuna"***<br>
+> ## ***Dos cosas distintas***<br>
+> ## ***Los sueños y el destino final***<br><br>
+> ## ***Ya se marchó***<br>
+> ## ***No volverá***<br>
+> ## ***Un buen guerrero***<br>
+> ## ***No vuelve la vista atrás***<br><br>
+> ## ***Ya se marchó***<br>
+> ## ***No volverá***<br>
+> ## ***Bajando el río***<br>
+> ## ***Soñando con cruzar el mar***<br><br>
+> ## ***Algún tiempo atrás***<br>
+> ## ***Sin rumbo, sin más***<br>
+> ## ***Un hombre encontró***<br>
+> ## ***El rastro del amor en un sueño***<br><br>
+> ## ***Las piedras del camino le dieron la clave***<br>
+> ## ***La muerte no termina con todo***<br>
+> ## ***Dos cosas distintas***<br>
+> ## ***Los sueños y el destino final***<br><br>
+Ya se marchó
+No volverá
+Un buen guerrero
+No vuelve la vista atrás
+Ya se marchó
+No volverá
+Bajando el río
+Soñando con cruzar el mar
+Ya se marchó
+No volverá
+Un buen guerrero
+No vuelve la vista atrás
+Source: Musixmatch
+Songwriters: Horacio Gomez Conrado
 
 > # ***6.01-1. [NATURAL LAW-2]***<BR><BR><br>
 
