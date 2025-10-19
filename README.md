@@ -1253,35 +1253,35 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 6.2     [Oct19,2025]
 
->>>>> ##### ***[NATURAL LAW***<BR><BR><br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>]
+>>>>> ##### ***[NATURAL LAW***<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>]
 > ## ***NATURAL LAW. Part 2. Song lyric: "El Guerrero." Horacio Gomez conrado.***<br><br>
-> ## ***Algún tiempo atrás***<br>
-> ## ***En cualquier lugar***<br>
-> ## ***Murió una mujer***<br>
-> ## ***Y el único testigo fue el viento***<br><br>
-> ## ***El mono que bajó de la luna me dijo:***<br>
-> ## ***"Si no hay amor, tendrás la fortuna"***<br>
-> ## ***Dos cosas distintas***<br>
-> ## ***Los sueños y el destino final***<br><br>
-> ## ***Ya se marchó***<br>
-> ## ***No volverá***<br>
-> ## ***Un buen guerrero***<br>
-> ## ***No vuelve la vista atrás***<br><br>
-> ## ***Ya se marchó***<br>
-> ## ***No volverá***<br>
-> ## ***Bajando el río***<br>
-> ## ***Soñando con cruzar el mar***<br><br>
-> ## ***Algún tiempo atrás***<br>
-> ## ***Sin rumbo, sin más***<br>
-> ## ***Un hombre encontró***<br>
-> ## ***El rastro del amor en un sueño***<br><br>
-> ## ***Las piedras del camino le dieron la clave***<br>
-> ## ***La muerte no termina con todo***<br>
-> ## ***Dos cosas distintas***<br>
-> ## ***Los sueños y el destino final***<br><br>
+> ### ***Algún tiempo atrás***<br>
+> ### ***En cualquier lugar***<br>
+> ### ***Murió una mujer***<br>
+> ### ***Y el único testigo fue el viento***<br><br>
+> ### ***El mono que bajó de la luna me dijo:***<br>
+> ### ***"Si no hay amor, tendrás la fortuna"***<br>
+> ### ***Dos cosas distintas***<br>
+> ### ***Los sueños y el destino final***<br><br>
+> ### ***Ya se marchó***<br>
+> ### ***No volverá***<br>
+> ### ***Un buen guerrero***<br>
+> ### ***No vuelve la vista atrás***<br><br>
+> ### ***Ya se marchó***<br>
+> ### ***No volverá***<br>
+> ### ***Bajando el río***<br>
+> ### ***Soñando con cruzar el mar***<br><br>
+> ### ***Algún tiempo atrás***<br>
+> ### ***Sin rumbo, sin más***<br>
+> ### ***Un hombre encontró***<br>
+> ### ***El rastro del amor en un sueño***<br><br>
+> ### ***Las piedras del camino le dieron la clave***<br>
+> ### ***La muerte no termina con todo***<br>
+> ### ***Dos cosas distintas***<br>
+> ### ***Los sueños y el destino final***<br><br>
 
->>> ### ***Source: Musixmatch***<br>
->>> ### ***Songwriters: Horacio Gomez Conrado***<br><br>
+>>> #### ***Source: Musixmatch***<br>
+>>> #### ***Songwriters: Horacio Gomez Conrado***<br><br>
 
 >> ## ***Enanitos Verdes - El Guerrero" on YouTube***<br><br>
 
