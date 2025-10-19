@@ -1272,20 +1272,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ## ***La muerte no termina con todo***<br>
 > ## ***Dos cosas distintas***<br>
 > ## ***Los sueños y el destino final***<br><br>
-Ya se marchó
-No volverá
-Un buen guerrero
-No vuelve la vista atrás
-Ya se marchó
-No volverá
-Bajando el río
-Soñando con cruzar el mar
-Ya se marchó
-No volverá
-Un buen guerrero
-No vuelve la vista atrás
-Source: Musixmatch
-Songwriters: Horacio Gomez Conrado
+
+>>> ### ***Source: Musixmatch***<br>
+>>> ### ***Songwriters: Horacio Gomez Conrado***<br><br>
+
+>> ## ***Enanitos Verdes - El Guerrero" on YouTube***<br><br>
+
+>> https://youtu.be/KNTnazSh28g?si=Lefm-88ag-9sV9HF
 
 > # ***6.01-1. [NATURAL LAW-2]***<BR><BR><br>
 
