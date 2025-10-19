@@ -1217,6 +1217,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***6.00. [NATURAL LAW-1]***<BR><BR><br>
 
 > # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***<br><br>
+>> ## ***6.00-1. "Nowadays Clancy Can't Even Sing." Neil Young.<br><br>
 >> ***"Who's that stomping all over my face***<br>
 >> ***Where's that silhouette I'm trying to trace***<br>
 >> ***Who's putting sponge in the bells I once rung***<br>
@@ -1244,6 +1245,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
   [formatting added]
 
 >>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1965***<br><br>https://en.m.wikipedia.org/wiki/Nowadays_Clancy_Can%27t_Even_Sing<br><br>***1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br><br>
+
+>>>>> ##### ***[6.00. [NATURAL LAW-1]***<BR><BR><br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***<br><br>]
+> ## ***6.00-2. "El Guerrero." Horacio Gomez conrado.<br><br>
+> ## ***
 
 > # ***6.01-1. [NATURAL LAW-2]***<BR><BR><br>
 
