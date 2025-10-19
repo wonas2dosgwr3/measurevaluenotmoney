@@ -1254,7 +1254,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 6.2     [Oct19,2025]
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
-> ## ***NATURAL LAW. Part 2. Song lyric: "El Guerrero." Horacio Gomez conrado.***<br><br>
+> ## ***NATURAL LAW. Part 2. Song lyric: "El Guerrero." Horacio Gomez Conrado.***<br><br>
 > ***Algún tiempo atrás***<br>
 > ***En cualquier lugar***<br>
 > ***Murió una mujer***<br>
@@ -1307,7 +1307,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 6.5.   [Feb17,2025]
 
->>>>> ##### ***[N
+>>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
 ## ***NATURAL LAW. Part 5. Some SPACE.***<br><br>
 >>> ### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
