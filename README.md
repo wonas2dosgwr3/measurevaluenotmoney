@@ -1214,10 +1214,15 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ***¹ Rob Roy***<br><br>
 > ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***<br><br><br>
 
-# ***6.00. [NATURAL LAW-1]***<BR><BR><br>
+6.0
 
-> # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***<br><br>
->> ## ***6.00-1. "Nowadays Clancy Can't Even Sing." Neil Young.<br><br>
+# ***NATURAL LAW***<BR><BR><br>
+
+> # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
+
+6.1
+
+>> ## ***NATURAL LAW. Part 1. Song lyric: "Nowadays Clancy Can't Even Sing." Neil Young.***<br><br>
 >> ***"Who's that stomping all over my face***<br>
 >> ***Where's that silhouette I'm trying to trace***<br>
 >> ***Who's putting sponge in the bells I once rung***<br>
@@ -1246,8 +1251,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1965***<br><br>https://en.m.wikipedia.org/wiki/Nowadays_Clancy_Can%27t_Even_Sing<br><br>***1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br><br>
 
->>>>> ##### ***[6.00. [NATURAL LAW-1]***<BR><BR><br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 1.***<br><br>]
-> ## ***6.00-2. "El Guerrero." Horacio Gomez conrado.  [Oct19,2025]<br><br>
+6.2     [Oct19,2025]
+
+>>>>> ##### ***[NATURAL LAW***<BR><BR><br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>]
+> ## ***NATURAL LAW. Part 2. Song lyric: "El Guerrero." Horacio Gomez conrado.***<br><br>
 > ## ***Algún tiempo atrás***<br>
 > ## ***En cualquier lugar***<br>
 > ## ***Murió una mujer***<br>
@@ -1280,45 +1287,43 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >> https://youtu.be/KNTnazSh28g?si=Lefm-88ag-9sV9HF
 
+6.3
 
-> # ***6.01-1. [NATURAL LAW-2]***<BR><BR><br>
-
-# ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.***<br><br>
-## ***Part 1. Lose all.***<br><br>
+> # ***NATURAL LAW. Part 3. Lose all.***<br><br>
 
 >>> ### ***"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
 >>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***<br><br>
 
-6.01-2
+6.4
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 
-## ***Part 2. Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
+## ***NATURAL LAW. Part 4. Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
 >>> ### ***"Era, sin duda, una excelente jornada para ponerme a trabajar en la construcción de mi nueva casa. ... ... Había pasado más de la mitad del invierno cuando terminé ... mi cabaña"***<br><br>***("It was, without doubt, a great day for me to get to work constructing my new house. ... ...Over half the winter had passed when I finished my house")***
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
 >>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.***<br><br>
 
-6.01-3  [Feb17,2025]
+6.5.   [Feb17,2025]
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 
-## ***Part 3. Some SPACE.***<br><br>
+## ***NATURAL LAW. Part 5. Some SPACE.***<br><br>
 >>> ### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
 >>>> #### ***- wonas2dosgwr3 firsthand information.***
 
-6.01-4    [Aug2,2025]
+6.6.    [Aug2,2025]
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 
-## ***Part 4. Pleasant dreams of a good time coming.***<br><br>
+## ***NATURAL LAW. Part 6. Pleasant dreams of a good time coming.***<br><br>
 >>> ### ***"I resolved to enter upon a life of industry; and notwithstanding the obstacle of color, and consciousness of my lowly state, indulged in pleasant dreams of a good time coming, when the possession of some humble habitation, with a few surrounding acres, should reward my labors, and bring me the means of happiness and comfort."***<br><br>
 >>>> #### ***- Solomon Northup, <ins>Twelve Years A Slave</ins>, 1854. Chap 1. [Penguin Classics edition.]***
 
-6.01-5   [Sept10,2025]
+6.7  [Sept10,2025]
 
 >>>>> ##### ***[Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS). Version 2.]***<br><br>
 
-## ***Part 5. SAFE HAVEN. No home, no property.***<br><br>
+## ***NATURAL LAW. Part 7. SAFE HAVEN. No home, no property.***<br><br>
 >>> ### ***"He [Quentin Durward] recovered from his astonishment, to ask his guide where he usually dwelt.***<br>***"Wherever I chance to be for the time," replied the Bohemian. "I have <ins>NO HOME."</ins>***<BR>***"How do you <ins>GUARD YOUR PROPERTY?"</ins>***<BR>***"Excepting the clothes which I wear, and the horse I ride on, I have <ins>NO PROPERTY."</ins> "***<br>
 [formatting added]<br>
 >>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
