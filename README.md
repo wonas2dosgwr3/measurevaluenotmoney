@@ -1207,7 +1207,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have (bad merchandise). WHY BOTHER?????!!!!! <ins>DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹</ins>***
 >>>> ### ***1. Timeless European (barbarian, aristocrat) financial system.***<br><br>
 
->> ## ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! Plundered painlessly??? U-Hauls full of - what??? Money - <ins>not earned???</ins> "Money"??? Money's - <ins>VALUE?????!!!!!</ins>***<br><br>
+>> ## ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! Plundered painlessly??? U-Hauls full of - <ins>what???</ins> Money - <ins>not earned???</ins> "Money"??? Money's - <ins>VALUE?????!!!!!</ins> My house is <ins>gone?????</ins> Can't afford the house now I used to be able to afford????? I'm <ins>RICH?????</ins> I'm  on the waiting list for a condo at the <ins>North Pole?????!!!!!</ins>***<br><br>
 
 
 # ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
