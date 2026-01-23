@@ -1204,10 +1204,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 4.01m.  37wop2m     [Jan23,2026]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
-# ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have (bad merchandise). WHY BOTHER?????!!!!! DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹***
+# ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have (bad merchandise). WHY BOTHER?????!!!!! <ins>DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹</ins>***
 >>>> ### ***1. Timeless European (barbarian, aristocrat) financial system.***<br><br>
 
->> ## ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! Plundered painlessly??? U-Hauls full of - what??? Money - not earned??? "Money"??? Money's VALUE?????!!!!!***<br><br>
+>> ## ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! Plundered painlessly??? U-Hauls full of - what??? Money - <ins>not earned???</ins> "Money"??? Money's - <ins>VALUE?????!!!!!</ins>***<br><br>
 
 
 # ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
