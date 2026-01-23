@@ -1198,15 +1198,16 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 4.01l. 37wop2l    [Sept15,2025]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part L.]***<br><br>
-# ***Moving up??? SCAVENGING <ins>LOST money,</ins> need <ins>ALL THE LAND IN SIGHT!!!!!</ins> Instead of acorns and berries????? - need <INS>ALL THE LAND IN SIGHT?????</INS> Moving up?????!!!!!***
+# ***World WITHOUT PRICES-2. Part L. Moving up??? SCAVENGING <ins>LOST money,</ins> need <ins>ALL THE LAND IN SIGHT!!!!!</ins> Instead of acorns and berries????? - need <INS>ALL THE LAND IN SIGHT?????</INS> Moving up?????!!!!!***
 ## ***<INS>EARNING SPENT</ins> money, needing SAFE HAVENS (LIMITED LAND, HOMES), is obsolete.***<br><br><br>
 
 
 4.01m.  37wop2m     [Jan23,2026]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
-# ***Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have (bad merchandise). DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹***
->>> ## ***1. Timeless European (barbarian, aristocrat) financial system.***
+# ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have (bad merchandise). WHY BOTHER?????!!!!! DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹***
+>>>> ### ***1. Timeless European (barbarian, aristocrat) financial system.***<br><br>
 
+>> ## ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! Plundered painlessly??? U-Hauls full of - what??? Money - not earned??? "Money"??? Money's VALUE?????!!!!!***<br><br>
 
 
 # ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
