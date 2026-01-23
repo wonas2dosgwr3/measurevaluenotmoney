@@ -1201,6 +1201,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***Moving up??? SCAVENGING <ins>LOST money,</ins> need <ins>ALL THE LAND IN SIGHT!!!!!</ins> Instead of acorns and berries????? - need <INS>ALL THE LAND IN SIGHT?????</INS> Moving up?????!!!!!***
 ## ***<INS>EARNING SPENT</ins> money, needing SAFE HAVENS (LIMITED LAND, HOMES), is obsolete.***<br><br><br>
 
+
+4.01m.  37wop2m     [Jan23,2026]
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
+# ***Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have (bad merchandise). DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹***
+>>> ## ***1. Timeless European (barbarian, aristocrat) financial system.***
+
+
+
 # ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
 
 >> ## ***Nobody's ever at home.¹***
