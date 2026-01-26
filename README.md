@@ -1205,7 +1205,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 4.01m.  37wop2m     [Jan23,26,2026]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
 # ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have (bad merchandise), or money-EARNERS provide¹. Shortage of money-EARNERS (competition). Proliferation of shortages, unaffordable this, unaffordable that, until the fog lifts, sanity returns,  money-measurers starved out.***<BR><BR>
->>>> ### ***1. The standard of living.***<br><br>
+>>>> ### ***1. The standard of living.***<br><br><br>
 >> ## ***Shortages discussed (laundered) endlessly as "inflation" by money-measurers intent on suggesting <ins>their ship is not sinking, that they are in charge, that there is such a thing as EARNING IT-FREE money creation.</ins>***<br><br>***WHY BOTHER?????!!!!!***<br><br>***<ins>DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹</ins>***<br>
 >>>> ### ***1. Timeless European (barbarian, aristocrat) financial system.***<br><br>
 
