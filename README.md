@@ -462,7 +462,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 2.18
 # ***THE HOMELESS DOLLAR. Part 17. Measure <ins>COSTS!!!!!</ins> not money.***<br><br>***<ins>HUMAN LABOR (COST!!!!!) - GOES ON</ins> ... <ins>homeless or not ...<br><br>COSTS (HUMAN LABOR!!!!!) WITHOUT A HOME</ins> ... can only be <ins>DEFYING HUMAN NEEDS, RISING INSTEAD OF FALLING, ILLEGITIMATE</ins> ...***<br>
-## ***Value in exchange is <ins>COST</ins> ...<br><br>A standard of value is <ins>a standard of COST</ins> ...<br><br>Costs going ... UP <ins>(and MORE ABNORMAL - SOME THINGS less affordable than before)</ins>,<br><br>AND UP <ins>(and STILL MORE ABNORMAL - SOME THINGS even less affordable than before)</ins>,<br><br>AND UP <ins>(AND STILL MORE ABNORMAL - SOME THINGS</ins> ...<br><br>... <ins>not even coming to market at all anymore???!!!!!)</ins> <br><br>... <ins>HOUSING FOR A GREAT MANY PEOPLE, A BIG MARKET!!!, A HUMAN NEED SO EASILY MET!!!, A BIG MARKET SO EASILY SATISFIED!!!, NO LONGER AVAILABLE AT ALL?????!!!!!?????</ins> ...<br><br>... the dark ages returning, poverty, returning barbarism ...<br><br>WHAT IF COST WAS BEING MEASURED, HAD A HOME, <ins>THERE COULD ONLY BE PROFIT IN MEETING, NOT TRAMPLING, HUMAN NEEDS???</ins> ...***
+## ***Value in exchange is <ins>COST</ins> ...<br><br>A standard of value is <ins>a standard of COST</ins> ...<br><br>Costs going ... UP <ins>(and MORE ABNORMAL - SOME THINGS less affordable than before)</ins>,<br><br>AND UP <ins>(and STILL MORE ABNORMAL - SOME THINGS even less affordable than before)</ins>,<br><br>AND UP <ins>(AND STILL MORE ABNORMAL - SOME THINGS</ins> ...<br><br>... <ins>not even coming to market at all anymore???!!!!!)</ins> <br><br>... <ins>HOUSING FOR A GREAT MANY PEOPLE, A BIGMARKET!!!, A HUMAN NEED SO EASILY MET!!!, A BIG MARKET SO EASILY SATISFIED!!!, NO LONGER AVAILABLE AT ALL?????!!!!!?????</ins> ...<br><br>... the dark ages returning, poverty, returning barbarism ...<br><br>WHAT IF COST WAS BEING MEASURED, HAD A HOME, <ins>THERE COULD ONLY BE PROFIT IN MEETING, NOT TRAMPLING, HUMAN NEEDS???</ins> ...***
 
 2.19
 
@@ -1205,7 +1205,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 4.01m.  37wop2m     [Jan23,26,2026]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
 # ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have (bad merchandise), or money-EARNERS provide¹. Shortage of money-EARNERS (competition). Proliferation of shortages, unaffordable this, unaffordable that, until the fog lifts, sanity returns,  money-measurers starved out.***<BR><BR>
->>>> ### ***1. The standard of living.***<br><br><br>
+>>>> ## ***1. The standard of living.***<br><br><br>
 >> ## ***Shortages discussed (laundered) endlessly as "inflation" by money-measurers intent on suggesting <ins>their ship is not sinking, that they are in charge, that there is such a thing as EARNING IT-FREE money creation.</ins>***<br><br>***WHY BOTHER?????!!!!!***<br><br>***<ins>DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹</ins>***<br>
 >>>> ### ***1. Timeless European (barbarian, aristocrat) financial system.***<br><br>
 
