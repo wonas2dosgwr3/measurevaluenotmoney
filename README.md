@@ -1211,20 +1211,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! <ins>Plundered painlessly?????</ins> U-Hauls full of - <ins>what???</ins> Money - <ins>not earned???</ins> "Money"??? Money's - <ins>VALUE?????!!!!!</ins> That U-Haul full of money I just gave away my sunny California house for, will make a down payment on <ins>a luxury igloo at the North Pole????? My house is gone?????</ins> Can't afford what I used to be able to afford????? I'm <ins>RICH?????</ins> I'm  on the waiting list for central heating for my igloo????? <INS>Three igloos have MELTED?????!!!!!</ins>***<br><br>
 
 4.01n. 
-4.01m.  37wop2m     [Jan23,26,2026]
->>>>>##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLL
-
+4.01m.  37wop2m     [Jan
 4.01m.  37wop2m     [Jan23,26,2026]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
-# ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have 
 
-4.01m.  37wop2m     [Jan23,26,2026]
->>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
-# ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have p1313p11pjAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
-# ***World WITHOUT PRICES-2. Part M. Creating "money" by SPENDING IT. Nothing to "buy" bad merchandise doesn't already have 
+# ***World WITHOUT PRICES-2. Part N. A bushel of money for a bushel of tomatoes.***
 
-
-# ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
+# ***5.00 [MARKETS IN THE SOUTH]***_<br><br><br>
 
 >> ## ***Nobody's ever at home.¹***
 >> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
