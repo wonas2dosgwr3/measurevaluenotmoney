@@ -1214,7 +1214,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part N.]***<br><br>
 # ***World WITHOUT PRICES-2. Part N. A bushel of money for a bushel of tomatoes.***
 > ## ***Shortages of everything <ins>except money. HIGH VALUE (HUMAN LABOR!!!!!) is being STORED WHERE?????</INS>***<br><br>***LESS EFFICIENT!!!!! storage of <ins>high value (human labor!!!!!)</ins> - less <ins>value stored</ins> per storage unit - is LOW VALUE STORAGE!!!!!***<BR><BR>***Is <ins>changing the AMOUNT of storage?????</ins>***<br><br>***Less efficient value storage, LOW VALUE STORAGE (MONEY?????), AND RESOURCE WASTE!!!!! - as far as the eye can see in all directions. Everyone living in a gold mine, at least a part-time gold miner.***<br><br>***Money everywhere, MONEY IS EVERYTHING!!!!!, LOW VALUE (RESOURCE WASTE)!!!!! STORAGE, low value (resource waste)!!!!! EVERYWHERE.***<br><br>***Nothing but money. No value to store. Nothing to buy. Midas rules.***<br><br>
-# ***5.00 [MARKETS IN THE SOUTH]***_<br><br><br>
+# ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
 
 >> ## ***Nobody's ever at home.¹***
 >> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
