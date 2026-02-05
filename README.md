@@ -1210,13 +1210,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> ### ***1. Timeless European (barbarian, aristocrat) financial system.***<br><br>
 >>> ### ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! <ins>Plundered painlessly?????</ins> U-Hauls full of - <ins>what???</ins> Money - <ins>not earned???</ins> "Money"??? Money's - <ins>VALUE?????!!!!!</ins> That U-Haul full of money I just gave away my sunny California house for, will make a down payment on <ins>a luxury igloo at the North Pole????? My house is gone?????</ins> Can't afford what I used to be able to afford????? I'm <ins>RICH?????</ins> I'm  on the waiting list for central heating for my igloo????? <INS>Three igloos have MELTED?????!!!!!</ins>***<br><br>
 
-4.01n. 
-4.01m.  37wop2m     [Jan
-4.01m.  37wop2m     [Jan23,26,2026]
->>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part M.]***<br><br>
-
+4.01n.  37wop2n.     [Feb5,2026]
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part N.]***<br><br>
 # ***World WITHOUT PRICES-2. Part N. A bushel of money for a bushel of tomatoes.***
-
+> ## ***Shortages of everything <ins>except money. HIGH VALUE (HUMAN LABOR!!!!!) is being STORED WHERE?????</INS>***<br><br>***LESS EFFICIENT!!!!! storage of <ins>high value (human labor!!!!!)</ins> - less <ins>value stored</ins> per storage unit - is LOW VALUE STORAGE!!!!!***<BR><BR>***Is <ins>changing the AMOUNT of storage?????</ins>***<br><br>***Less efficient value storage, LOW VALUE STORAGE (MONEY?????), AND RESOURCE WASTE!!!!! - as far as the eye can see in all directions. Everyone living in a gold mine, at least a part-time gold miner.***<br><br>***Money everywhere, MONEY IS EVERYTHING!!!!!, LOW VALUE (RESOURCE WASTE)!!!!! STORAGE, low value (resource waste)!!!!! EVERYWHERE.***<br><br>***Nothing but money. No value to store. Nothing to buy. Midas rules.***<br><br>
 # ***5.00 [MARKETS IN THE SOUTH]***_<br><br><br>
 
 >> ## ***Nobody's ever at home.¹***
