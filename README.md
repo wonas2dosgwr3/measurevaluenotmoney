@@ -1217,6 +1217,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***World WITHOUT PRICES-2. Part N. A bushel of money for a bushel of tomatoes. Efficient VALUE STORAGE????? Efficient VALUE MEASUREMENT?????***
 > ## ***Shortages of everything <ins>except money. HIGH VALUE (HUMAN LABOR!!!!!) is being STORED WHERE?????</INS>***<br><br>***LESS EFFICIENT!!!!! storage of <ins>high value (human labor!!!!!)</ins> - less <ins>value stored</ins> per storage unit - is LOW VALUE STORAGE!!!!!***<BR><BR>***Is <ins>changing the AMOUNT of storage?????</ins>***<br><br>***Less efficient value storage, LOW VALUE STORAGE (MONEY?????), AND RESOURCE WASTE!!!!! - as far as the eye can see in all directions. Everyone <ins>living in a gold mine, at least a part-time gold miner.</ins>***<br><br>***Money everywhere, MONEY IS EVERYTHING!!!!!, LOW VALUE (RESOURCE WASTE)!!!!! STORAGE, low value (resource waste)!!!!! EVERYWHERE.***<br><br>***Nothing but money. No value to store. Nothing to buy. Midas rules.***<br><br><br>
+
+4.01o.    37wop2o.    [Feb20,2026]
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part O.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part O. Inflation of length and weight measurements.***
+> ## ***"All I want is a plain old 80 foot 20 X 40. They're not being delivered??? Used to be  EVERYWHERE, when they were called 8 foot 2 X 4s."***<br><br>***All I want is a plain old 10 pound fish. They're not being delivered??? Used to be EVERYWHERE, when they were called 1 pound fish."***<br><br>***"MORE feet and inches and pounds, makes LESS lumber and fish, and - MORE TAPE MEASURES!!!!!?????"***<br><br>***Non-competitive lumber, fish, and tape-measure companies LOBBIED CONGRESS. Shortage of FEET AND POUNDS was killing them. If a <ins>given amount</ins> of their bad merchandise could be CALLED A BIGGER AMOUNT!!!!! ... ***<BR><BR>***RESTRICTIONS!!!!!, ON HOW MUCH!!!!! a foot or a pound was, were bad ‐ "FLOATING" (UNKNOWN!!!!!) amounts would be better.***<br><br>***World WITHOUT LENGTH AND WEIGHT MEASUREMENTS. World WITHOUT LUMBER AND FISH!!!!! WHO NEEDS TAPE MEASURES!!!!!***<BR><BR>***Can't tell ŴHAT WE'RE SELLING????? - WE'RE NOT!!!!!***<BR><BR>
+
+
 # ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
 
 >> ## ***Nobody's ever at home.¹***
