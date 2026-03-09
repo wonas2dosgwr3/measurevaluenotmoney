@@ -1,3 +1,13 @@
+Contents 
+
+1.00
+2.00
+3.00
+4.00 WORLD WITHOUT PRICES-1
+4.01. WORLD WITHOUT PRICES-2
+
+
+
 1.00 
 measurevaluenotmoney
 
