@@ -1,14 +1,22 @@
-Contents 
+# Contents<br>
 
-#1.00<br>
-#2.00 COPERNICUS<br>
-#3.00 NO MAN'S LAND<br>
-#4.00 WORLD WITHOUT PRICES-1<br>
-#4.01. WORLD WITHOUT PRICES-2<br>
-#5.00 MARKETS IN THE SOUTH<br>
-#6.00 NATURAL LAW<br>
-#7.00a COUNTING THE SCORE (UN-NATURAL law, winners AND losers)<br>
-#8.00-1 LAND OWNERSHIP<br>
+## ***1.00***<br>
+
+## ***2.00 COPERNICUS***<br>
+
+## ***3.00 NO MAN'S LAND***<br>
+
+## ***4.00 WORLD WITHOUT PRICES-1***<br>
+
+## ***4.01. WORLD WITHOUT PRICES-2***<br>
+
+## ***5.00 MARKETS IN THE SOUTH***<br>
+
+## ***6.00 NATURAL LAW***<br>
+
+## ***7.00a COUNTING THE SCORE (UN-NATURAL law, winners AND losers)***<br>
+
+## ***8.00-1 LAND OWNERSHIP***<br>
 
 
 
