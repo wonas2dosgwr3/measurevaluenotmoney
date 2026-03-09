@@ -1,10 +1,15 @@
 Contents 
 
-1.00
-2.00
-3.00
-4.00 WORLD WITHOUT PRICES-1
-4.01. WORLD WITHOUT PRICES-2
+#1.00
+#2.00 COPERNICUS
+#3.00 NO MAN'S LAND
+#4.00 WORLD WITHOUT PRICES-1
+#4.01. WORLD WITHOUT PRICES-2
+#5.00 MARKETS IN THE SOUTH
+#6.00 NATURAL LAW
+#7.00a COUNTING THE SCORE (UN-NATURAL law, winners AND losers)
+#8.00-1 LAND OWNERSHIP
+
 
 
 
@@ -1248,9 +1253,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ***¹ Rob Roy***<br><br>
 > ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***<br><br><br>
 
-6.0
+6.00
 
-# ***NATURAL LAW***<BR><BR><br>
+# ***6.00 NATURAL LAW***<BR><BR><br>
 
 > # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
 
