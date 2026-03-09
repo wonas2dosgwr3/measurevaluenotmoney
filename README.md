@@ -16,7 +16,7 @@
 
 ## ***7.00a COUNTING THE SCORE (UN-NATURAL law, winners AND losers)***<br>
 
-## ***8.00-1 LAND OWNERSHIP***<br>
+## ***8.00-1 LAND OWNERSHIP***<br><br><br><br>
 
 
 
