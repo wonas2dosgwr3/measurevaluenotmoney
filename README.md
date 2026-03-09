@@ -2,7 +2,7 @@
 
 ## ***1.00***<br>
 
-## ***2.00 COPERNICUS***<br> [2.00 COPERNICUS] <#2.00-COPERNICUS>
+## ***2.00 COPERNICUS***<br> [2.00 COPERNICUS] (#2.00-COPERNICUS)
 
 ## ***3.00 NO MAN'S LAND***<br>
 
