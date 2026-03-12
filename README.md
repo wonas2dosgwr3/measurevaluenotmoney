@@ -21,7 +21,6 @@
 
 
 
-
 1.00 
 measurevaluenotmoney
 
