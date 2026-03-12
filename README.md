@@ -306,7 +306,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 *" "A feller gets news from Indians and cowboys without knowin' who handed it on to who, an' you take the main idee for truth.* ***All I'd want to make a trade on*** *is that right now Newton's somewhere back toward the border." "*<br>
 [formatting added]<br><br>***- <ins>Captives Of The Desert</ins>, Chap. 15, Zane Grey, 1925-6***<br><br><br>
 
-# ***2.00 COPERNICUS***<br><br>[measurevaluenotmoney][#2.00-copernicus]<br><br>
+# ***2.00 COPERNICUS***<br><br>
 > # ***Currency speculators for war. Copernicus for measuring value.***<br>
 > "Nations have had to face this danger of what is called "inflation" following the recent war. The same thing happened in sixteenth-century Prussia, following the long series of wars between Poland and the Order [of Teutonic Knights]. ...<br><br>***The trouble in Prussia was that the coinage had become very debased, the various authorities seeking a temporary financial advantage by putting less and less gold and silver into the coins that they issued. This drove up prices and made foreign trade almost impossible, as foreigners would not take the worthless coins ... Common action was called for to  put things right; but each state - the Poles, the Prussians, the Order, and even each big city, such as Torun and Danzig - clung jealously to its own right to coin it's own money. Attempts to get agreement had always broken down.***<br><br>**Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ...**<br>***Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."***<br>
 >> ### ***- <ins>The World of Copernicus (Sun, Stand Thou Still)</ins>, Angus Armitage, 1947, Chap. 24. The Diseases of Money***
@@ -580,7 +580,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 *[formatting added]*<br>
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
 
-# ***3.00 [NO MAN'S LAND]***
+# ***3.00 NO MAN'S LAND***
 > # ***No man's land (the marketplace!!!).***
 > ## ***No trespassing.¹***
 >>> ### ***¹ Inalienable rights!!!***
@@ -801,7 +801,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***<br><br><br>
 
-# ***4.00. [WORLD WITHOUT PRICES-1]***<br><br>
+# ***4.00. WORLD WITHOUT PRICES-1***<br><br>
 
 4.00. 37wop1a
 
@@ -1101,7 +1101,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***<br><br><br>
 
 
-> # ***4.01. [WORLD WITHOUT PRICES-2]***<br><br><br> 
+> # ***4.01. WORLD WITHOUT PRICES-2***<br><br><br> 
 
 4.01a. 37wop2a<br><br>
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part A.]***<br>
@@ -1248,7 +1248,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ## ***"All I want is a plain old 80 foot 20 X 40. They're not being delivered??? Used to be  <ins>EVERYWHERE,</ins> when they were called 8 foot 2 X 4s."***<br><br>***"All I want is a plain old 10 pound fish. They're not being delivered??? Used to be <ins>EVERYWHERE</ins>, when they were called 1 pound fish."***<br><br>***"MORE feet and inches and pounds, makes <ins>LESS lumber and fish, and - MORE TAPE MEASURES!!!!!?????"</ins>***<br><br>***Non-competitive lumber, fish, and tape-measure companies LOBBIED CONGRESS. Shortage of FEET AND POUNDS was killing them. If a <ins>given amount</ins> of their bad merchandise could be CALLED A BIGGER AMOUNT!!!!! ... <ins>RESTRICTIONS!!!!!, ON HOW MUCH!!!!! a foot or a pound was, were bad ‐ "FLOATING" (UNKNOWN!!!!!) amounts would be better.</ins>***<br><br>***World <ins>without length and weight measurements.</ins> World WITHOUT LUMBER AND FISH!!!!! - WHO NEEDS TAPE MEASURES!!!!!***<BR><BR>***Can't tell WHAT WE'RE SELLING????? - <ins>WE'RE NOT!!!!!</ins>***<BR><BR>
 
 
-# ***5.00 [MARKETS IN THE SOUTH]***<br><br><br>
+# ***5.00 MARKETS IN THE SOUTH***<br><br><br>
 
 >> ## ***Nobody's ever at home.¹***
 >> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
@@ -1360,7 +1360,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
 >>>> #### ***- wonas2dosgwr3 firsthand information.***
 
-6.6.    [Aug2,2025
+6.6.    [Aug2,2025]
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
@@ -1379,7 +1379,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
 
-# ***7.00a [COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers)]***<br><br><br>
+# ***7.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
 
 # ***Counting the score¹ ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
@@ -1390,7 +1390,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (<ins>EVERYBODY</ins> wins). See 3.16a. Natural law ...***<br><br><br>
 
 8.00
-# ***8.00   [LAND OWNERSHIP]***<BR><BR><BR>
+# ***8.00 LAND OWNERSHIP***<BR><BR><BR>
 
 8.00-1.    [Aug22,2025]<BR>
 
