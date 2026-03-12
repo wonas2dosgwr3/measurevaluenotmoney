@@ -15,9 +15,9 @@
 
 ## ***6.00 NATURAL LAW***<br>
 
-## ***7.00a COUNTING THE SCORE (UN-NATURAL law, winners AND losers)***<br>
+## ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)***<br>
 
-## ***8.00-1 LAND OWNERSHIP***<br><br><br><br>
+## ***8.00 LAND OWNERSHIP***<br><br><br><br>
 
 
 
@@ -1390,15 +1390,16 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
 >>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (<ins>EVERYBODY</ins> wins). See 3.16a. Natural law ...***<br><br><br>
 
-# ***8.00-1    [LAND OWNERSHIP]***<BR><BR><BR>
+8.00
+# ***8.00   [LAND OWNERSHIP]***<BR><BR><BR>
 
-[Aug22,2025]<BR>
+8.00-1.    [Aug22,2025]<BR>
 
 > # ***LAND OWNERSHIP***<br>
 > ## ***Part 1. Columbus***<br><br>
 >> ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***<br>
 
-8.00-2      [Aug27,2025]
+8.00-2    [Aug27,2025]
 
 #### ***[LAND OWNERSHIP]***<br>
 
