@@ -1,9 +1,9 @@
-`build TOC`
+
 # Contents<br>
 
 ## ***1.00***<br>
 
-## ***2.00 COPERNICUS***<br> [measurevaluenotmoney][#2.00-copernicus]
+## ***2.00 COPERNICUS***<br> 
 
 ## ***3.00 NO MAN'S LAND***<br>
 
