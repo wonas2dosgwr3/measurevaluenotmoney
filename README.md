@@ -3,7 +3,7 @@
 
 ## ***1.00***<br>
 
-## `- [Go to 2.00 Copernicus]{#2\.00-copernicus}`
+## ***2.00 Copernicus.*** `- [Go to 2.00 Copernicus]{#2\.00-copernicus}`
 
 ## ***3.00 NO MAN'S LAND***<br>
 
