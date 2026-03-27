@@ -1250,12 +1250,16 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 4.01p.    37wop2p.    [Feb20,2026]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part P.]***<br><br>
 
-# ***World WITHOUT PRICES-2. Part P. Money grows on trees. I don't want to get arrested.***<br><br>
+# ***World WITHOUT PRICES-2. Part P. Money grows on trees. I don't want to get arrested.***<br>
 > ## ***"That's my money tree!"***<br>
-> ***"No! It's mine!"***<br>
-> ***"No! It's mine!"***<br>
-> ***"It's MINE!!!"***<br>
-> ***"Give me THAT MONEY TREE!!!"***<br><br>
+> ## ***"No! It's mine!"***<br>
+> ## ***"No! It's mine!"***<br>
+> ## ***"It's MINE!!!"***<br>
+> ## ***"GIVE ME THAT MONEY TREE!!!"***<br><br>
+> ## ***Monkey swinging 'round on the money tree***<br>
+> ## ***Telling us that we're free***<br>
+> ## ***Robbing us blind while we're asleep***
+>>> ### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <int>Growing Upward<\int>, 
 
 
 # ***5.00 MARKETS IN THE SOUTH***<br><br><br>
