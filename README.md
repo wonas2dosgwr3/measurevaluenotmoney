@@ -1252,14 +1252,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***World WITHOUT PRICES-2. Part P. Money grows on trees. I don't want to get arrested.***<br>
 >> ## ***"That's my money tree!"***<br>
->> ## ***"No! It's mine!"***<br>
->> ## ***"No! It's mine!"***<br>
->> ## ***"It's MINE!!!"***<br>
->> ## ***"GIVE ME THAT MONEY TREE!!!"***<br><br>
->>> ### ***Monkey swinging 'round on the money tree***<br>
->>> ***Robbing us blind while we're asleep***<br>
->>> ***And telling us that we're free***<br>
->>>>> ##### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <int>Growing Upward</int>, 2019***
+>> ## ***"No! It's mine!"***<br>***"No! It's mine!"***<br>***"It's MINE!!!"***<br>***"GIVE ME THAT MONEY TREE!!!"***<br><br>
+>>> #### ***Monkey swinging 'round on the money tree***<br>***Robbing us blind while we're asleep***<br>***And telling us that we're free***<br>
+>>>>> ##### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <ins>Growing Upward</ins>, 2019***
 
 
 # ***5.00 MARKETS IN THE SOUTH***<br><br><br>
