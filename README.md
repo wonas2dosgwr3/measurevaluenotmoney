@@ -308,6 +308,7 @@ PERSONAL RESPONSIBILITY (VALUE!!!) circulates gold dollars, not photo IDs. Measu
 [formatting added]<br><br>***- <ins>Captives Of The Desert</ins>, Chap. 15, Zane Grey, 1925-6***<br><br><br>
 
 <a id="#200-copernicus_id"></a>
+
 # ***2.00 COPERNICUS*** 
 > # ***Currency speculators for war. Copernicus for measuring value.***<br>
 > "Nations have had to face this danger of what is called "inflation" following the recent war. The same thing happened in sixteenth-century Prussia, following the long series of wars between Poland and the Order [of Teutonic Knights]. ...<br><br>***The trouble in Prussia was that the coinage had become very debased, the various authorities seeking a temporary financial advantage by putting less and less gold and silver into the coins that they issued. This drove up prices and made foreign trade almost impossible, as foreigners would not take the worthless coins ... Common action was called for to  put things right; but each state - the Poles, the Prussians, the Order, and even each big city, such as Torun and Danzig - clung jealously to its own right to coin it's own money. Attempts to get agreement had always broken down.***<br><br>**Copernicus ... was all in favor of a *monetary union* of all the states concerned: they should all agree to have the same coins; ... each coin was to contain a guaranteed weight of precious metal ...**<br>***Copernicus seems to have drawn up some notes ... in 1519. He made them the basis of a report ... to the Prussian Diet held in 1522 ... He later drew up a revised and enlarged version ... for ... the Diet of 1528. The agitation for reform dragged on. The statesmen listened to the astronomer's advice. But the opposition of those who were profiting by the existing state of affairs was too strong, and nothing came of it."***<br>
@@ -1391,7 +1392,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 [formatting added]<br>
 >>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
-<a id="#700-counting-the-score-un-natural-law"-id></a>
+<a id="#200-copernicus_id"></a>
+<a id="#700-counting-the-score-un-natural-law"_id></a>
 # ***7.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
 
 # ***Counting the score¹ ... Part 1.***
@@ -1402,10 +1404,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
 >>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (<ins>EVERYBODY</ins> wins). See 3.16a. Natural law ...***<br><br><br>
 
-
-<a id="#800-land-ownership-id"></a>
+<a id="#800-land-ownership_id"></a>
 8.00
-# ***8.00 LAND OWNERSHIP***<BR><BR><BR>
+# ***8.00 LAND OWNERSHIP***<BR><BR>
 
 8.00-1.    [Aug22,2025]<BR>
 
