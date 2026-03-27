@@ -1392,7 +1392,6 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
 <a id="#700-counting-the-score-un-natural-law"-id></a>
-
 # ***7.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
 
 # ***Counting the score¹ ... Part 1.***
@@ -1404,7 +1403,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (<ins>EVERYBODY</ins> wins). See 3.16a. Natural law ...***<br><br><br>
 
 
-<a id="#800-land-ownership"-id></a>
+<a id="#800-land-ownership-id"></a>
 8.00
 # ***8.00 LAND OWNERSHIP***<BR><BR><BR>
 
