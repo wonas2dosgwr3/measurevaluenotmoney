@@ -1247,19 +1247,19 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***World WITHOUT PRICES-2. Part O. Inflation of length and weight measurements.***
 > ## ***"All I want is a plain old 80 foot 20 X 40. They're not being delivered??? Used to be  <ins>EVERYWHERE,</ins> when they were called 8 foot 2 X 4s."***<br><br>***"All I want is a plain old 10 pound fish. They're not being delivered??? Used to be <ins>EVERYWHERE</ins>, when they were called 1 pound fish."***<br><br>***"MORE feet and inches and pounds, makes <ins>LESS lumber and fish, and - MORE TAPE MEASURES!!!!!?????"</ins>***<br><br>***Non-competitive lumber, fish, and tape-measure companies LOBBIED CONGRESS. Shortage of FEET AND POUNDS was killing them. If a <ins>given amount</ins> of their bad merchandise could be CALLED A BIGGER AMOUNT!!!!! ... <ins>RESTRICTIONS!!!!!, ON HOW MUCH!!!!! a foot or a pound was, were bad ‐ "FLOATING" (UNKNOWN!!!!!) amounts would be better.</ins>***<br><br>***World <ins>without length and weight measurements.</ins> World WITHOUT LUMBER AND FISH!!!!! - WHO NEEDS TAPE MEASURES!!!!!***<BR><BR>***Can't tell WHAT WE'RE SELLING????? - <ins>WE'RE NOT!!!!!</ins>***<BR><BR>
 
-4.01p.    37wop2p.    [Feb20,2026]
+4.01p.    37wop2p.    [Mar27,2026]
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part P.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part P. Money grows on trees. I don't want to get arrested.***<br>
-> ## ***"That's my money tree!"***<br>
-> ## ***"No! It's mine!"***<br>
-> ## ***"No! It's mine!"***<br>
-> ## ***"It's MINE!!!"***<br>
-> ## ***"GIVE ME THAT MONEY TREE!!!"***<br><br>
-> ## ***Monkey swinging 'round on the money tree***
-> ## ***Robbing us blind while we're asleep***
-> ## ***And telling us that we're free***<br>
->>> #### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <int>Growing Upward<\int>, 2019***
+>> ## ***"That's my money tree!"***<br>
+>> ## ***"No! It's mine!"***<br>
+>> ## ***"No! It's mine!"***<br>
+>> ## ***"It's MINE!!!"***<br>
+>> ## ***"GIVE ME THAT MONEY TREE!!!"***<br><br>
+>>> ### ***Monkey swinging 'round on the money tree***<br>
+>>> ***Robbing us blind while we're asleep***<br>
+>>> ***And telling us that we're free***<br>
+>>>>> ##### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <int>Growing Upward</int>, 2019***
 
 
 # ***5.00 MARKETS IN THE SOUTH***<br><br><br>
