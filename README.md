@@ -5,7 +5,7 @@
 
 ## ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
 
-## ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no_mans_land)
+## ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
 
 ## ***4.00 WORLD WITHOUT PRICES-1***<br>
 
