@@ -15,12 +15,10 @@
 
 ## ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600-natural-law)
 
-## ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#counting-the-score--un-natural-law)
+## ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#700-counting-the-score-un-natural-law)
 
 ## ***8.00 LAND OWNERSHIP***
-[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)
-
-<br><br>
+[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)<br><br>
 
 
 
@@ -1393,6 +1391,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 [formatting added]<br>
 >>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
+<a id="#700-counting-the-score-un-natural-law"-id></a>
 
 # ***7.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
 
@@ -1404,6 +1403,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
 >>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (<ins>EVERYBODY</ins> wins). See 3.16a. Natural law ...***<br><br><br>
 
+
+<a id="#800-land-ownership"-id></a>
 8.00
 # ***8.00 LAND OWNERSHIP***<BR><BR><BR>
 
