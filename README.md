@@ -1257,8 +1257,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ## ***"It's MINE!!!"***<br>
 > ## ***"GIVE ME THAT MONEY TREE!!!"***<br><br>
 > ## ***Monkey swinging 'round on the money tree***<br>
-> ## ***Telling us that we're free***<br>
-> ## ***Robbing us blind while we're asleep***
+> ## ***Robbing us blind while we're asleep***<br>
+> ## ***And telling us that we're free***<br>
 >>> ### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <int>Growing Upward<\int>, 2019
 
 
