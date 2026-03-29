@@ -1,8 +1,7 @@
 # **measurevaluenotmoney**<br><br>
 
-# **TOC-1**
-``> ## **Contents**<br>
-
+> `## **TOC-1**<br><br>
+> ## **Contents**<br><br>
 > #### ***1.00***<br>
 > #### ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
 > #### ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
