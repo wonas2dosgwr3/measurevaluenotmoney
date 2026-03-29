@@ -24,8 +24,8 @@
 
 ## ***World Without Prices***[Go to World Without Prices](#world-without-prices)
 ## ***4.00 WORLD WITHOUT PRICES-1*** 
-[Go to 4.00 WORLD WITHOUT PRICES-1](#400-world-without-prices-1)
-## ***4.01 WORLD WITHOUT PRICES-2*** [Go to 4.01 WORLD WITHOUT PRICES-2](#401-world-without-prices-2)
+
+## ***4.01 WORLD WITHOUT PRICES-2*** 
 ## ***After World Without Prices***[Go to After World Without Prices](#after-world-without-prices)
 ### ***1.00 MARKETS IN THE SOUTH*** [Go to 1.00 MARKETS IN THE SOUTH](#100-markets-in-the-south)
 ### ***2.00 NATURAL LAW*** [Go to 2.00 NATURAL LAW](#200-natural-law)
