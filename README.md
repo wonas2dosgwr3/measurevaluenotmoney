@@ -1,24 +1,28 @@
 # **measurevaluenotmoney**<br><br>
-# Contents<br>
 
-## ***1.00***<br>
+`# TOC-1
+## Contents<br>
 
-## ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
+### ***1.00***<br>
 
-## ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
+### ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
 
-## ***4.00 WORLD WITHOUT PRICES-1*** [Go to 4.00 WORLD WITHOUT PRICES-1](#400-world-without-prices-1)
+### ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
 
-## ***4.01 WORLD WITHOUT PRICES-2*** [Go to 4.01 WORLD WITHOUT PRICES-2](#401-world-without-prices-2)
+### ***4.00 WORLD WITHOUT PRICES-1*** [Go to 4.00 WORLD WITHOUT PRICES-1](#400-world-without-prices-1)
 
-## ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500-markets-in-the-south)
+### ***4.01 WORLD WITHOUT PRICES-2*** [Go to 4.01 WORLD WITHOUT PRICES-2](#401-world-without-prices-2)
 
-## ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600-natural-law)
+### ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500-markets-in-the-south)
 
-## ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#700-counting-the-score-un-natural-law)
+### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600-natural-law)
 
-## ***8.00 LAND OWNERSHIP***
-[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)<br><br>
+### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#700-counting-the-score-un-natural-law)
+
+### ***8.00 LAND OWNERSHIP***
+[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)<br><br>`
+
+# TOC-2
 
 
 
