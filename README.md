@@ -31,7 +31,7 @@
 ### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600-natural-law)
 ### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#700-counting-the-score-un-natural-law)
 ### ***8.00 LAND OWNERSHIP***
-[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)``<br><br>
+[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)<br><br>
 
 <a id="#before-world-without-prices_id"></a>
 # **Before World Without Prices**
@@ -1277,9 +1277,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>> ##### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <ins>Growing Upward</ins>, 2019***<br>
 >>>>[Mar28,2026]<br>
 >> ## ***Money is for (ins)POURING DOWN RAT HOLES!!!!!(/ins) Ask any (ins)monkey shaking their money tree, or coming down from the moon¹.(/ins)
->>>>> ##### ***1. See song lyric, "El Guerrero", Los Enanitos Verdes.
-
-
+>>>>> ##### ***1. See NATURAL LAW. Part 2. Song lyric: "El Guerrero", Los Enanitos Verdes.***<br><br>
 
 <a id="#after-world-without-prices_id"></a>
 # **After World Without Prices**<br><br>
