@@ -17,20 +17,24 @@
 `TOC-2`<br><br>
 
 # **Contents**<br><br>
-## ***Before World Without Prices***
+## ***Before World Without Prices*** [Go to Before World Without Prices](#before-world-without-prices)
 ### ***1.00***<br>
 ### ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
 ### ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
-## ***4.00 WORLD WITHOUT PRICES-1*** [Go to 4.00 WORLD WITHOUT PRICES-1](#400-world-without-prices-1)
+
+## ***World Without Prices***[Go to World Without Prices](#world-without-prices)
+## ***4.00 WORLD WITHOUT PRICES-1*** 
+[Go to 4.00 WORLD WITHOUT PRICES-1](#400-world-without-prices-1)
 ## ***4.01 WORLD WITHOUT PRICES-2*** [Go to 4.01 WORLD WITHOUT PRICES-2](#401-world-without-prices-2)
-## ***After World Without Prices***
+## ***After World Without Prices***[Go to After World Without Prices](#after-world-without-prices)
 ### ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500-markets-in-the-south)
 ### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600-natural-law)
 ### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#700-counting-the-score-un-natural-law)
 ### ***8.00 LAND OWNERSHIP***
 [Go to 8.00 LAND OWNERSHIP](#800-land-ownership)``<br><br>
 
-
+<a id="#before-world-without-prices_id"></a>
+`Before World Without Prices`
 
 1.00 
 measurevaluenotmoney
@@ -816,6 +820,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***<br><br><br>
 
+`World Without Prices`
 # ***4.00. WORLD WITHOUT PRICES-1***<br><br>
 
 4.00. 37wop1a
@@ -1271,6 +1276,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> #### ***Monkey swinging 'round on the money tree***<br>***Robbing us blind while we're asleep***<br>***And telling us that we're free***<br>
 >>>>> ##### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <ins>Growing Upward</ins>, 2019***
 
+`After World Without Prices`
 
 # ***5.00 MARKETS IN THE SOUTH***<br><br><br>
 
