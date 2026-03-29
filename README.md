@@ -1121,12 +1121,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***<br><br><br>
 
 
-> # ***4.01. WORLD WITHOUT PRICES-2***<br><br><br> 
+> ## ***4.01. WORLD WITHOUT PRICES-2***<br><br><br> 
 
 4.01a. 37wop2a<br><br>
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part A.]***<br>
 
-# ***World WITHOUT PRICES-2. Part A.***<br><br>
+## ***World WITHOUT PRICES-2. Part A.***<br><br>
 ## ***Clamor (not money) for spoils (other people's stuff) instead. Nothing new. <ins>Jim Smiley-powered.</ins> Nothing new. Ask Mark Twain. Something <ins>brand new (a better mousetrap - Mark Twain, still selling a long time later and to come)</ins> NAILS ANCIENT HISTORY (NOTHING NEW).***
 #### **"Simon Wheeler backed me into a corner and blockaded me there with his chair ... ... "well, there was a feller here once by the name of**<br>
 ## ***Jim*** **Smiley**<br>
@@ -1284,7 +1284,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 <a id="#after-world-without-prices_id"></a>
 # **After World Without Prices**<br><br>
 
-# ***5.00 MARKETS IN THE SOUTH***<br><br><br>
+## ***5.00 MARKETS IN THE SOUTH***<br><br><br>
 
 >> ## ***Nobody's ever at home.¹***
 >> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
@@ -1299,13 +1299,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 6.00
 
-# ***6.00 NATURAL LAW***<BR><BR><br>
+## ***6.00 NATURAL LAW***<BR><BR><br>
 
 > # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
 
 6.1
 
->> ## ***NATURAL LAW. Part 1. Song lyric: "Nowadays Clancy Can't Even Sing." Neil Young.***<br><br>
+>> ### ***NATURAL LAW. Part 1. Song lyric: "Nowadays Clancy Can't Even Sing." Neil Young.***<br><br>
 >> ***"Who's that stomping all over my face***<br>
 >> ***Where's that silhouette I'm trying to trace***<br>
 >> ***Who's putting sponge in the bells I once rung***<br>
@@ -1337,7 +1337,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 6.2     [Oct19,2025]
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
-> ## ***NATURAL LAW. Part 2. Song lyric: "El Guerrero." Horacio Gomez Conrado.***<br><br>
+> ### ***NATURAL LAW. Part 2. Song lyric: "El Guerrero." Horacio Gomez Conrado.***<br><br>
 > ***Algún tiempo atrás***<br>
 > ***En cualquier lugar***<br>
 > ***Murió una mujer***<br>
@@ -1374,16 +1374,16 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
-> # ***NATURAL LAW. Part 3. Lose all.***<br><br>
+> ### ***NATURAL LAW. Part 3. Lose all.***<br><br>
 
->>> ### ***"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
->>>> #### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***<br><br>
+>>> #### ***"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
+>>>> ##### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***<br><br>
 
 6.4
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
-## ***NATURAL LAW. Part 4. Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
+### ***NATURAL LAW. Part 4. Stranded alone on an island.¹ Naturally want some housing, same as everyone.***
 >>> ### ***"Era, sin duda, una excelente jornada para ponerme a trabajar en la construcción de mi nueva casa. ... ... Había pasado más de la mitad del invierno cuando terminé ... mi cabaña"***<br><br>***("It was, without doubt, a great day for me to get to work constructing my new house. ... ...Over half the winter had passed when I finished my house")***
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
 >>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.***<br><br>
@@ -1392,33 +1392,33 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
-## ***NATURAL LAW. Part 5. Some SPACE.***<br><br>
->>> ### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
->>>> #### ***- wonas2dosgwr3 firsthand information.***
+### ***NATURAL LAW. Part 5. Some SPACE.***<br><br>
+>>> #### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
+>>>> ##### ***- wonas2dosgwr3 firsthand information.***
 
 6.6.    [Aug2,2025]
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
-## ***NATURAL LAW. Part 6. Pleasant dreams of a good time coming.***<br><br>
->>> ### ***"I resolved to enter upon a life of industry; and notwithstanding the obstacle of color, and consciousness of my lowly state, indulged in pleasant dreams of a good time coming, when the possession of some humble habitation, with a few surrounding acres, should reward my labors, and bring me the means of happiness and comfort."***<br><br>
->>>> #### ***- Solomon Northup, <ins>Twelve Years A Slave</ins>, 1854. Chap 1. [Penguin Classics edition.]***
+### ***NATURAL LAW. Part 6. Pleasant dreams of a good time coming.***<br><br>
+>>> #### ***"I resolved to enter upon a life of industry; and notwithstanding the obstacle of color, and consciousness of my lowly state, indulged in pleasant dreams of a good time coming, when the possession of some humble habitation, with a few surrounding acres, should reward my labors, and bring me the means of happiness and comfort."***<br><br>
+>>>> ##### ***- Solomon Northup, <ins>Twelve Years A Slave</ins>, 1854. Chap 1. [Penguin Classics edition.]***
 
 6.7  [Sept10,2025]
 
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
-## ***NATURAL LAW. Part 7. SAFE HAVEN. No home, no property.***<br><br>
->>> ### ***"He [Quentin Durward] recovered from his astonishment, to ask his guide where he usually dwelt.***<br>***"Wherever I chance to be for the time," replied the Bohemian. "I have <ins>NO HOME."</ins>***<BR>***"How do you <ins>GUARD YOUR PROPERTY?"</ins>***<BR>***"Excepting the clothes which I wear, and the horse I ride on, I have <ins>NO PROPERTY."</ins> "***<br>
+### ***NATURAL LAW. Part 7. SAFE HAVEN. No home, no property.***<br><br>
+>>> #### ***"He [Quentin Durward] recovered from his astonishment, to ask his guide where he usually dwelt.***<br>***"Wherever I chance to be for the time," replied the Bohemian. "I have <ins>NO HOME."</ins>***<BR>***"How do you <ins>GUARD YOUR PROPERTY?"</ins>***<BR>***"Excepting the clothes which I wear, and the horse I ride on, I have <ins>NO PROPERTY."</ins> "***<br>
 [formatting added]<br>
->>>>>> ##### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
+>>>>>> ###### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
 <a id="#200-copernicus_id"></a>
 <a id="#700-counting-the-score-un-natural-law"_id></a>
-# ***7.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
+## ***7.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
 
-# ***Counting the score¹ ... Part 1.***
+### ***Counting the score¹ ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
 >> #### ***Un Savetier chantait du matin jusqu'au soir. C'était merveilles de le voir, merveillesit deput it l'ouïr; il faisait des passages, plus content qu'aucun des Sept Sages;***<br>
 >> #### ***Son voisin, au contraire, étant tout cousu d'or, chantait peu, dormait moins encor: c'était un homme de finance. ... ... En son hôtel il fait venir le chantier, et lui dit: 《Ah çà, sire Grégoire, <ins>que gagnez-vous par an?</ins>***<br><br>***Par an, moi foi, monsieur, dit avec un ton de rieur le gaillard savetier, ce n'est point ma manière de compter de la sorte, et je n'entasse guère un jour sur l'autre: il suffit qu'à la fin j'att zee rape le bout de l'année; chaque jour amène son pain.***<br><br>***- Eh bien! <ins>que gagnez-vous, dites-moi, par journée?</ins>***<br><br>***Tantôt plus, tantôt moins: le mal est que toujours ... le mal est que dans l'an s'entremêlent des jours qu'il faut chômer; on nous ruine en fêtes; l'une fait tort à l'autre, et monsieur le curé de quelque nouveau saint charge toujours son prône.》***<br><br>***Le Financier, riant de sa naïveté, lui dit: <ins>《Je veux vous mettre aujourd'hui sur le trône: Prenez ces cent écus, gardez-les avec soin, pour vous en servir au besoin.</ins>***<br><br>***Le Savetier crut voir tout l'argent que la terre avait, depuis plus de cent ans, produit pour l'usage des gens. Il retourne chez lui; dans sa cave il enserre l'argent, et sa joie à la fois. Plus de chant: il perdit la voix du moment qu'il gagna ce qui cause nos peínes. Le sommeil quitta son logis; il eut pour hôtes les soucis les soupçons, les alarmes vaines. Tout le jour il avait l'oeil au guet; et la nuit, si quelque chat faisait du bruit, le chat prenait l'argent. A la fin, le pauvre homme s'encourut chez celui qu'il ne réveillait plus:***<br><br>***<ins>《Rendez-moi, lui dit-il, mes chansons et mon somme, et reprenez vos cent écus.》</ins>***
@@ -1432,14 +1432,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 8.00-1.    [Aug22,2025]<BR>
 
-> # ***LAND OWNERSHIP***<br>
-> ## ***Part 1. Columbus***<br><br>
->> ### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***<br>
+> ## ***LAND OWNERSHIP***<br>
+> ### ***Part 1. Columbus***<br><br>
+>> #### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***<br>
 
 8.00-2    [Aug27,2025]
 
 #### ***[LAND OWNERSHIP]***<br>
 
-## ***Part 2. LOW VALUE wants YOUR LAND¹. HIGH VALUE (industrious people) NEVER DOES.***
->> #### ***1. Everyone has land under their feet.***<br><br>
+### ***Part 2. LOW VALUE wants YOUR LAND¹. HIGH VALUE (industrious people) NEVER DOES.***
+>> ##### ***1. Everyone has land under their feet.***<br><br>
 ### ***NOBODY <INS>SPENDS</INS> MONEY ON LOW VALUE. Low value wants NOBODY <INS>SPENDING</INS> MONEY.***<BR><BR>***High value wants NO ONE ELSE'S LAND, EVERYONE <INS>SPENDING</INS> MONEY. The land under high value's own feet is <ins>ENOUGH.</ins>***<BR><BR>***The land under low value's own feet is <ins>NOT ENOUGH.</ins>***<br><br>***HIGH VALUE constantly makes better use of land.***
