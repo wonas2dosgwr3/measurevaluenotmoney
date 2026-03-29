@@ -1,6 +1,6 @@
 # **measurevaluenotmoney**<br><br>
 
-``` TOC-1
+`TOC-1`
 > ##Contents<br>
 
 > ### ***1.00***<br>
@@ -20,8 +20,9 @@
 > ### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#700-counting-the-score-un-natural-law)
 
 > ### ***8.00 LAND OWNERSHIP***
-[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)```<br><br>
-# TOC-2<br><br>
+[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)<br><br>
+
+`TOC-2`<br><br>
 
 
 
