@@ -1289,13 +1289,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # **After** ***World Without Prices***<br><br>
 
 <a id="#500_markets_in_the_south_id"></id>
-## ***5.00 MARKETS IN THE SOUTH***<br><br><br>
+>> ## ***5.00 MARKETS IN THE SOUTH***<br><br><br>
 
->> ## ***Nobody's ever at home.¹***
->> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
+>>> ## ***Nobody's ever at home.¹***
+>>> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
 >>>>> ##### ***¹ "Independence." Always at YOUR home. Always trespassing.***<br><br><br>
 
-# ***And how go the markets in the South?'***<br><br>
+>> ### ***And how go the markets in the South?'***<br><br>
 ## ***'Even in the ordinar' replied Mr. Campbell¹; 'wise folks buy and sell,***<br><br>
 # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
 [formatting added]
@@ -1303,9 +1303,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***<br><br><br>
 
 <a id="#600_natural_law_id"></id>
-## ***6.00 NATURAL LAW***<BR><BR><br>
+>> ## ***6.00 NATURAL LAW***<BR><BR><br>
 
-> ### ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
+>>> ### ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
 
 6.1
 
