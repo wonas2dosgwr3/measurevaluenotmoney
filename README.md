@@ -1288,7 +1288,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 
-<a id="#500_markets_in_the_south_id"></id>
+<a id="#500_markets_in_the_south_id"></a>
 >> ## ***5.00 MARKETS IN THE SOUTH***<br><br><br>
 
 >>> ## ***Nobody's ever at home.¹***
