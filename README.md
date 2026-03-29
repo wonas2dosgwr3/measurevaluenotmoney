@@ -1286,9 +1286,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>> ##### ***1. See 6.2 NATURAL LAW. Part 2. Song lyric: "El Guerrero", Los Enanitos Verdes.***<br><br>
 
 <a id="#after-world-without-prices_id"></a>
-# **After World Without Prices**<br><br>
+# **After** ***World Without Prices***<br><br>
 
-## ***1.00 MARKETS IN THE SOUTH***<br><br><br>
+<a id="#500_markets_in_the_south_id"></id>
+## ***5.00 MARKETS IN THE SOUTH***<br><br><br>
 
 >> ## ***Nobody's ever at home.¹***
 >> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
@@ -1301,11 +1302,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ***¹ Rob Roy***<br><br>
 > ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***<br><br><br>
 
-6.00
+<a id="#600_natural_law_id"></id>
+## ***6.00 NATURAL LAW***<BR><BR><br>
 
-## ***2.00 NATURAL LAW***<BR><BR><br>
-
-> # ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
+> ### ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
 
 6.1
 
@@ -1418,9 +1418,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 [formatting added]<br>
 >>>>>> ###### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
-<a id="#200-copernicus_id"></a>
+
 <a id="#700-counting-the-score-un-natural-law"_id></a>
-## ***3.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
+## ***7.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
 
 ### ***Counting the score¹ ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
