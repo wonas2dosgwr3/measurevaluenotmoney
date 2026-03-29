@@ -17,7 +17,7 @@
 `TOC-2`<br>
 
 # **Contents**<br><br>
-## ***Before World Without Prices*** [Go to Before World Without Prices](#before-world-without-prices)
+## **Before** ***World Without Prices*** [Go to Before World Without Prices](#before-world-without-prices)
 ### ***1.00***<br>
 ### ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
 ### ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
@@ -821,7 +821,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***<br><br><br>
 
 
-# **World Without Prices**<br><br>
+# ***World Without Prices***<br><br>
 >> ### ***4.00 WORLD WITHOUT PRICES-1*** [Go to 4.00 WORLD WITHOUT PRICES-1](#400_world_without_prices-1)
 >> ### ***4.00 WORLD WITHOUT PRICES-2*** [Go to 4.00 WORLD WITHOUT PRICES-2](#400_world_without_prices-2)
 
