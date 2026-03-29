@@ -820,7 +820,13 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***<br><br><br>
 
+
 # **World Without Prices**<br><br>
+>> ### ***4.00 WORLD WITHOUT PRICES-1*** [Go to 4.00 WORLD WITHOUT PRICES-1](#400-world-without-prices-1)
+>> ### ***4.01 WORLD WITHOUT PRICES-2*** [Go to 4.01 WORLD WITHOUT PRICES-2](#401-world-without-prices-2)
+
+
+<a id="#400_world_without_prices-1_id"></id>
 # ***4.00. WORLD WITHOUT PRICES-1***<br><br>
 
 4.00. 37wop1a
@@ -1120,7 +1126,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Sub-zero instead. Global cooling in the <ins>OWE!!!!!-zone</ins> layer since before World War I. IOU - money??? Because you <ins>won't earn your own???</ins>***<br>
 ### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***<br><br><br>
 
-
+<a id="#401_world_without_prices-2_id"></id>
 > ## ***4.01. WORLD WITHOUT PRICES-2***<br><br><br> 
 
 4.01a. 37wop2a<br><br>
