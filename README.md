@@ -1,6 +1,6 @@
 # **measurevaluenotmoney**<br><br>
 
-`>> ## **TOC-1**<br><br>
+> `TOC-1`<br><br>
 >> ## **Contents**<br><br>
 >> #### ***1.00***<br>
 >> #### ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
