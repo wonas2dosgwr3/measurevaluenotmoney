@@ -33,7 +33,6 @@
 [Go to 8 LAND OWNERSHIP](#8-land-ownership)<br><br><br>
 
 
-<span =#"before-world-without-prices"></span>
 # **BEFORE** ***World Without Prices***
 
 >> ### ***1*** **measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
