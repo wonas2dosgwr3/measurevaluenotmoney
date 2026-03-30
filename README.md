@@ -604,8 +604,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
 
 
-<a id="#300_no_mans_land_id"></a>
-# ***3.00 NO MAN'S LAND***
+<a id="#3-no-mans-land_id"></a>
+# ***3 NO MAN'S LAND***
 > # ***No man's land (the marketplace!!!).***
 > ## ***No trespassing.¹***
 >>> ### ***¹ Inalienable rights!!!***
