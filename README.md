@@ -35,9 +35,9 @@
 
 # **BEFORE** ***World Without Prices***
 
->> ### ***1*** **measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
->> ### ***2 COPERNICUS*** [Go to 2 COPERNICUS](#2-copernicus)
->> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3-no-mans-land)
+>> ### ***1*** **measurevaluemotmoney** [1 measurevaluenotmoney](#1-measurevaluenotmoney)
+>> ### ***2 COPERNICUS*** [2 COPERNICUS](#2-copernicus)
+>> ### ***3 NO MAN'S LAND*** [3 NO MAN'S LAND](#3-no-mans-land)
 
 `1`
 
@@ -840,8 +840,6 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 `4`
 
-<a id="#4-world-without-prices"-id></a>
-
 # ***4 WORLD WITHOUT PRICES***<br><br>
 >> ### ***4 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
 >> ### ***4 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2-world-without-prices-2)
@@ -1326,10 +1324,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
->>> ### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
->>> ### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6-natural-law)
->>> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners and losers).*** [Go to COUNTING THE SCORE (UN-NATURAL LAW, winners and losers](#7-counting-the-score-winners-and-losers)
->>> ### ***8 LAND OWNERSHIP*** [Go to 8 LAND OWNERSHIP](#8-land-ownership)
+>>> ### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
+>>> ### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
+>>> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners and losers).*** [COUNTING THE SCORE (UN-NATURAL LAW, winners and losers](#7-counting-the-score-winners-and-losers)
+>>> ### ***8 LAND OWNERSHIP*** [8 LAND OWNERSHIP](#8-land-ownership)
 
 <a id="#5-markets-in-the-south-id"></a>
 >> ## ***5 MARKETS IN THE SOUTH***<br><br>
