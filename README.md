@@ -839,7 +839,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***<br><br><br>
 
 `4`
+
 <a id="#4-world-without-prices"-id></a>
+
 # ***4 WORLD WITHOUT PRICES***<br><br>
 >> ### ***4 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
 >> ### ***4 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2-world-without-prices-2)
@@ -1147,6 +1149,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 `4.2`
 
 <a id="#4-2-world-without-prices-2-id"></a>
+
 > ## ***4.2 WORLD WITHOUT PRICES-2***<br><br><br> 
 
 `4.2a. 37wop2a`
