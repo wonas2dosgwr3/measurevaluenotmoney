@@ -19,7 +19,7 @@
 # **Contents**<br><br>
 ## **BEFORE** ***World Without Prices*** [Go to BEFORE World Without Prices](#before-world-without-prices)
 >> ### ***1***<br>
->> ### ***2 Copernicus.*** [Go to 2 Copernicus](#2_copernicus)
+>> ### ***2 Copernicus.*** [Go to 2 Copernicus](#2-copernicus)
 >> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3_no_mans_land)
 
 ## ***WORLD WITHOUT PRICES*** [Go to WORLD WITHOUT PRICES](#world-without-prices)
@@ -35,12 +35,12 @@
 
 <a id="#before-world-without-prices_id"></a>
 # **BEFORE** ***World Without Prices***
-
 > ## **1 measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1_measurevaluenotmoney)
 > ## ***2 Copernicus*** [Go to 2 Copernicus](#2_copernicus)
 > ## ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3_no_mans_land)
 
 `1`
+
 <a id="#1_measurevaluenotmoney"_id></a>
 1 measurevaluenotmoney
 
