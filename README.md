@@ -41,8 +41,8 @@
 
 `1`
 
-<a id="#1_measurevaluenotmoney"_id></a>
-1 measurevaluenotmoney
+<a id="#1-measurevaluenotmoney"-id></a>
+**1 measurevaluenotmoney**
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
