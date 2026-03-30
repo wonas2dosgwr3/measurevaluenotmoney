@@ -33,7 +33,7 @@
 [Go to 8 LAND OWNERSHIP](#8-land-ownership)<br><br><br>
 
 
-<span ="before-world-without-prices"></span>
+<span =#"before-world-without-prices"></span>
 # **BEFORE** ***World Without Prices***
 
 >> ### ***1*** **measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
@@ -42,7 +42,7 @@
 
 `1`
 
-<span ="1-measurevaluenotmoney"></span>
+<span =#"1-measurevaluenotmoney"></span>
 # **1 measurevaluenotmoney**
 
 ###### Measure length, not inches. Measure weight, not ounces.
