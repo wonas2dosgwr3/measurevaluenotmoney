@@ -18,7 +18,7 @@
 
 # **Contents**<br><br>
 ## **BEFORE** ***World Without Prices*** [Go to BEFORE World Without Prices](#before-world-without-prices)
->> ### ***1***<br>
+>> ### ***1*** **measurevaluenotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
 >> ### ***2 Copernicus.*** [Go to 2 Copernicus](#2-copernicus)
 >> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3_no_mans_land)
 
