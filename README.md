@@ -2,16 +2,16 @@
 
 `TOC-1`<br>
 >>>> ### **Contents**<br><br>
->>>> ###### ***1.00***<br>
->>>> ###### ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
->>> ###### ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
->>>> ###### ***4 WORLD WITHOUT PRICES-1*** [Go to 4 WORLD WITHOUT PRICES-1](#4_1-world-without-prices-1)
->>>> ###### ***4.1 WORLD WITHOUT PRICES-2*** [Go to 4 WORLD WITHOUT PRICES-2](#4_2-world-without-prices-2)
->>>> ###### ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500-markets-in-the-south)
->>>> ###### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600-natural-law)
->>>> ###### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#700-counting-the-score-un-natural-law)
->>>> ###### ***8.00 LAND OWNERSHIP***
-[Go to 8.00 LAND OWNERSHIP](#800-land-ownership)``<br><br>
+>>>> ###### ***1*** **measurevaluenotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
+>>>> ###### ***2 COPERNICUS*** [Go to 2 Copernicus](#2-copernicus)
+>>> ###### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3-no-mans-land)
+>>>> ###### ***4 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
+>>>> ###### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2-world-without-prices-2)
+>>>> ###### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
+>>>> ###### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6-natural-law)
+>>>> ###### ***7 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7 COUNTING THE SCORE (UN-NATURAL law](#7-counting-the-score-un-natural-law)
+>>>> ###### ***8 LAND OWNERSHIP***
+[Go to 8 LAND OWNERSHIP](#8-land-ownership)<br><br>
 
 
 `TOC-2`<br>
@@ -23,8 +23,7 @@
 >> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3-no-mans-land)
 ## ***WORLD WITHOUT PRICES*** [Go to 4 WORLD WITHOUT PRICES](#4-world-without-prices)
 > ### ***4.1 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
-
-> ### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2_world_without_prices-2)<br><br> 
+> ### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2_world_without_prices-2)<br><br>
 ## **AFTER** ***World Without Prices*** [Go to AFTER World Without Prices](#after-world-without-prices)<br><br><br>
 
 >> ### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5_markets_in_the_south)
