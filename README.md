@@ -4,7 +4,7 @@
 >>>> ### **Contents**<br><br>
 >>>> ###### ***1*** **measurevaluenotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
 >>>> ###### ***2 COPERNICUS*** [Go to 2 Copernicus](#2-copernicus)
->>> ###### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3-no-mans-land)
+>>>> ###### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3-no-mans-land)
 >>>> ###### ***4 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
 >>>> ###### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2-world-without-prices-2)
 >>>> ###### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
@@ -26,14 +26,14 @@
 > ### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2_world_without_prices-2)<br><br>
 ## **AFTER** ***World Without Prices*** [Go to AFTER World Without Prices](#after-world-without-prices)<br><br><br>
 
->> ### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5_markets_in_the_south)
->> ### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6_natural-law)
->> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7 COUNTING THE SCORE (UN-NATURAL law](#7_counting_the_score_un-natural_law)
+>> ### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
+>> ### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6-natural-law)
+>> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7 COUNTING THE SCORE (UN-NATURAL law](#7-counting-the-score-un-natural-law)
 >> ### ***8 LAND OWNERSHIP***
-[Go to 8 LAND OWNERSHIP](#8_land-ownership)<br><br><br>
+[Go to 8 LAND OWNERSHIP](#8-land-ownership)<br><br><br>
 
 
-<a id="#before-world-without-prices_id"></a>
+<a id="#before-world-without-prices-id"></a>
 # **BEFORE** ***World Without Prices***
 
 >> ### ***1*** **measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
