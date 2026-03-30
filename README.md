@@ -1287,6 +1287,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
+>>> ### ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500_markets_in_the_south)
+>>> ### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600_natural_law)
+>>> ### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners and losers).*** [Go to COUNTING THE SCORE (UN-NATURAL LAW, winners and losers](#700_counting_the_score_winners_and_losers)
+>>> ### ***8.00 LAND OWNERSHIP*** [Go to 8.00 LAND OWNERSHIP](#800_land_ownership)
 
 <a id="#500_markets_in_the_south_id"></a>
 >> ## ***5.00 MARKETS IN THE SOUTH***<br><br><br>
