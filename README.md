@@ -36,8 +36,13 @@
 <a id="#before-world-without-prices_id"></a>
 # **BEFORE** ***World Without Prices***
 
-1.00 
-measurevaluenotmoney
+> ## **1 measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1_measurevaluenotmoney)
+> ## ***2 Copernicus*** [Go to 2 Copernicus](#2_copernicus)
+> ## ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3_no_mans_land)
+
+`1`
+<a id="#1_measurevaluenotmoney"_id></a>
+1 measurevaluenotmoney
 
 ###### Measure length, not inches. Measure weight, not ounces.
 
@@ -598,7 +603,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
 
 
-<a id="#300_no_mans_land_id"></id>
+<a id="#300_no_mans_land_id"></a>
 # ***3.00 NO MAN'S LAND***
 > # ***No man's land (the marketplace!!!).***
 > ## ***No trespassing.¹***
