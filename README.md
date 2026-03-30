@@ -20,11 +20,11 @@
 ## **BEFORE** ***World Without Prices*** [Go to BEFORE World Without Prices](#before-world-without-prices)
 >> ### ***1*** **measurevaluenotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
 >> ### ***2 COPERNICUS*** [Go to 2 COPERNICUS](#2-copernicus)
->> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3_no_mans_land)
-## ***WORLD WITHOUT PRICES*** [Go to 4 WORLD WITHOUT PRICES](#world-without-prices)
-> ### ***4.1 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4_1-world-without-prices-1)
+>> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3-no-mans-land)
+## ***WORLD WITHOUT PRICES*** [Go to 4 WORLD WITHOUT PRICES](#4-world-without-prices)
+> ### ***4.1 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
 
-> ### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4_2_world_without_prices-2)<br><br> 
+> ### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2_world_without_prices-2)<br><br> 
 ## **AFTER** ***World Without Prices*** [Go to AFTER World Without Prices](#after-world-without-prices)<br><br>
 >> ### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5_markets_in_the_south)
 >> ### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6_natural-law)
