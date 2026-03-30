@@ -34,7 +34,8 @@
 
 <a id="#before-world-without-prices_id"></a>
 # **BEFORE** ***World Without Prices***
->> ### **1 measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1_measurevaluenotmoney)
+
+>> ### ***1*** **measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1_measurevaluenotmoney)
 >> ### ***2 COPERNICUS*** [Go to 2 COPERNICUS](#2_copernicus)
 >> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3_no_mans_land)
 
