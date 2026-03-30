@@ -826,7 +826,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***4.00 WORLD WITHOUT PRICES-2*** [Go to 4.00 WORLD WITHOUT PRICES-2](#400_world_without_prices-2)
 
 
-<a id="#400_world_without_prices-1_id"></id>
+<a id="#400_world_without_prices-1_id">
 # ***4.00. WORLD WITHOUT PRICES-1***<br><br>
 
 4.00. 37wop1a
@@ -1126,7 +1126,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Sub-zero instead. Global cooling in the <ins>OWE!!!!!-zone</ins> layer since before World War I. IOU - money??? Because you <ins>won't earn your own???</ins>***<br>
 ### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***<br><br><br>
 
-<a id="#400_world_without_prices-2_id"></id>
+<a id="#400_world_without_prices-2_id">
 > ## ***4.00. WORLD WITHOUT PRICES-2***<br><br><br> 
 
 4.00-2a. 37wop2a<br><br>
@@ -1281,12 +1281,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ## ***"No! It's mine!"***<br>***"No! It's mine!"***<br>***"It's MINE!!!"***<br>***"GIVE ME THAT MONEY TREE!!!"***<br><br>
 >>> #### ***Monkey swinging 'round on the money tree***<br>***Robbing us blind while we're asleep***<br>***And telling us that we're free***<br>
 >>>>> ##### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <ins>Growing Upward</ins>, 2019***<br>
->>>>[Mar28,2026]<br>
->> ## ***Money is for (ins)POURING DOWN RAT HOLES!!!!!(/ins) Ask any (ins)monkey shaking their money tree, or coming down from the moon¹.(/ins)
->>>>> ##### ***1. See 6.2 NATURAL LAW. Part 2. Song lyric: "El Guerrero", Los Enanitos Verdes.***<br><br>
+>>>>[Mar29,2026]<br>
+>> ## ***Money is for (ins)POURING DOWN RAT HOLES!!!!!(/ins) Ask any (ins)monkey shaking their money tree, or coming down from the moon¹.(/ins)***
+>>>>> ##### ***1. See song lyric: "El Guerrero", Los Enanitos Verdes. 6.2 NATURAL LAW***<br><br>
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
+
 >>> ### ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500_markets_in_the_south)
 >>> ### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600_natural_law)
 >>> ### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners and losers).*** [Go to COUNTING THE SCORE (UN-NATURAL LAW, winners and losers](#700_counting_the_score_winners_and_losers)
@@ -1306,9 +1307,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ***¹ Rob Roy***<br><br>
 > ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***<br><br><br>
 
-<a id="#600_natural_law_id"></id>
+<a id="#600_natural_law_id"></a>
 >> ## ***6.00 NATURAL LAW***<BR><BR><br>
-
 >>> ### ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
 
 6.1
