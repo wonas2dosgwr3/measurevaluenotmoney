@@ -23,9 +23,9 @@
 ### ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
 
 ## ***WORLD WITHOUT PRICES*** [Go to WORLD WITHOUT PRICES](#world-without-prices)
-### ***4.00 WORLD WITHOUT PRICES-1*** 
+### ***4.1 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4_1_world_without_prices-1)
 
-### ***4.00 WORLD WITHOUT PRICES-2***<bt><br> 
+### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4_2_world_without_prices-2)<br><br> 
 ## **AFTER** ***World Without Prices*** [Go to AFTER World Without Prices](#after-world-without-prices)<br><br>
 ### ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500-markets-in-the-south)
 ### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600-natural-law)
