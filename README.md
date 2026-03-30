@@ -31,7 +31,8 @@
 >> ### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6_natural-law)
 >> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7 COUNTING THE SCORE (UN-NATURAL law](#7_counting_the_score_un-natural_law)
 >> ### ***8 LAND OWNERSHIP***
-[Go to 8 LAND OWNERSHIP](#8_land-ownership)<br><br>
+[Go to 8 LAND OWNERSHIP](#8_land-ownership)<br><br><br>
+
 
 <a id="#before-world-without-prices_id"></a>
 # **BEFORE** ***World Without Prices***
@@ -604,6 +605,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 *[formatting added]*<br>
 >>> #### ***- Joseph Conrad, "Karain: A Memory", Chap 5. 1897***<br><br><br>
 
+`3`
 
 <a id="#3-no-mans-land_id"></a>
 # ***3 NO MAN'S LAND***
@@ -612,24 +614,27 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >>> ### ***¹ Inalienable rights!!!***
 >>>> ##### ***- T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July***<br><br><br>
 
-3.00a 
+`3a`
+
 ## ***Part 1.***
-### ***No one owns the marketplace. Everyone owns a piece of it.<br><br>NO MAN'S LAND IS COMMON GROUND created by inalienable rights, MUCH IMPROVED BY A STANDARD OF VALUE.***<br>
-3.00b
+### ***No one owns the marketplace. Everyone owns a piece of it.<br><br>NO MAN'S LAND IS COMMON GROUND created by inalienable rights, MUCH IMPROVED BY A STANDARD OF VALUE.***
+
+`3b`
+
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
 ## ***Part 2.***
 ### ***"No man will speak to his master; but to a wanderer and a friend, to him who does not come to teach or to rule, to him who asks for nothing and accepts all things, words are spoken by the campfires, in the shared solitude of the sea, in riverside villages, in resting-places surrounded by forests - words are spoken that take no account of race or colour. One heart speaks - another one listens; and the earth, the sea, the sky, the passing wind and the stirring leaf, hear also the futile tale of the burden of life."***
 >> ***- Joseph Conrad, "Karain: A Memory", Chap 3. 1897***
 
-3.00c
+`3c`
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
 ## ***Part 3.***
 ### ***"Nobody ever saw a dog make a fair and deliberate exchange of one bone for another with another dog."***
 >> ### ***- ?***
 
-3.00d
+`3d`
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
@@ -637,7 +642,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***"No tengo trono ni reina<br>Ni nadie que me comprenda<br>Pero sigo siendo el rey"<br><br>("I don't have a throne nor a queen<br>Nor anyone who understands me<br>But I continue being the king")***
 >> #### ***song lyric - "El Rey", José Alfredo Jiménez. 1971. See 2009 George Strait album "Twang" for more lyric.***
 
-3.00e
+`3e`
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
@@ -645,7 +650,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***"and you must learn not to despise any man. Even a fool can teach you not to be foolish, and there's no telling where you'll hear the thing that  will help you to do a job easier, or the thing that may save your life."***
 >> ***- <ins>Down The Long Hills</ins>, Louis L'Amour, 1968. Chap 10***
 
-3.00f
+`3f`
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
@@ -653,7 +658,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***"Out of this almost impenetrable forest, Lars K. Ahlstrom early in the century made a clearing and built himself a home. He was a Swede who came in from the ocean after a shipwreck, saw the beach forest, and liked it. I met him on one trip and found him as refreshing as his accent. Now his ranch is in the Olympic Park."***
 >> ***- <ins>My Wilderness: The Pacific West</ins>, William O. Douglas, United States Supreme Court Justice 1939-1975, 1960. Chap II,"Pacific Beach"***
 
-3.00g
+`3g`
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
@@ -666,7 +671,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 > ### ***<ins>"I can't stay long at any ranch" he'd say "because immediately I'm wanting to give orders more than the bosses." "</ins>)***
 >>> #### ***- <ins>Don Segundo Sombra</ins>, Ricardo Güiraldes. 1926; and author-corrected text, 1939***
 
-3.00h
+`3h`
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
@@ -674,7 +679,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***"In the first fire-engines, a boy was constantly employed to open and shut alternately the communication between the boiler and the cylinder, ... One of those boys, who loved to play with his companions, observed that, by tying a string from the handle of the valve which opened this communication to another part of the machine, the valve would open and shut without his assistance, and leave him at liberty to divert himself with his play-fellows. One of the greatest improvements that has been made upon this machine, since it was first invented, was in this manner the discovery of a boy who wanted to save his own labour."***
 >> ***- ?***<br><br>
 
-3.00i
+`3i`
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
@@ -682,7 +687,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***... steals <ins>my</ins> food ... looks down its beak at me 'cause I <ins>can't fly</ins> ... got news for that bluejay ... got an agenda ... noticed that bird was comin' 'round fairly often ... just bein' friendly I figured ... wasn't til I realized <ins>half my important food was gone!!!</ins>, I found out what was <ins>GOIN' ON!!!</ins> ... got news for that bird ... when that bird <ins>least expects</ins> it ... gonna get a <ins>trade secret</ins> from that bird ... that bird's gonna have <ins>an attack</ins> when it sees <ins>ME flyin' by</ins> ...***<br>
 >>> #### ***Wonas2dosgwr3 firsthand experience***
 
-3.00j
+`3j`
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
@@ -691,7 +696,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
    [formatting added]
 >> #### ***"Elisha Comes To Red Horse", Louis L'Amour, <ins>The Collected Short Stories Of Louis L'Amour</ins>, Frontier Stories, Vol. 1. 2003***<br><br><br>
 
-3.00k
+`3k`
 
 >>>>> ##### ***[No man's land (the marketplace!!!). No trespassing.¹*** `¹ Inalienable rights!!! - T. Jefferson, 1776. " The Declaration of Independence ", The Fourth of July`]<br>
 
@@ -699,7 +704,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ### ***<ins>USING!!!!!</ins> land¹ is all they do, same as everybody else. As long as they DON'T CLAIM AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land than anyone else, nothing can explain it (rich) but <ins>BEING INDUSTRIOUS, HAPPY CUSTOMERS, AND A BETTER MOUSETRAP!!!!!</ins><br><br>But CLAIMING AN IOTA MORE RIGHT TO <ins>USE!!!!!</ins> land, getting rich <ins>NEVER REALLY HAPPENED!!!!!</ins>, just timeless ancient history of <ins>INTERFERING WITH OTHER PEOPLE!!!!!²</ins>***
 >> #### ***¹ See 3.14m. 37wopm. World WITHOUT PRICES. Part M. Crossing paths MORE with the land under other people's feet (hunting and gathering).***<br><br>***² See 3.00j. Part 10. Even a marshal***
 
-3.01a
+`3.1a`
+
 # ***THE HOMELESS DOLLAR. Part 28a. No signs of life allowed.*** 
 ## ***A RISING STANDARD OF LIVING (standard of RESOURCE USE, <ins>MORE VALUABLE!!!!! standard of value</ins>) is the biggest threat to homeless dollars (would invariably bring scrutiny and wondering the need for homeless dollars).***
 
@@ -709,7 +715,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ***<ins>JACKPOTS</ins> FOR NO HUMAN LABOR, FOR WASTING RESOURCES (HUMAN AND ALL OTHER), <ins>FOR LOWERING THE STANDARD OF LIVING!!!</ins>***<br><br>
 >> ***<ins>JACKPOTS FOR NO SIGNS OF LIFE.</ins> FOR RETURNED BARBARISM. FOR ANOTHER VANISHED CIVILIZATION.***
 
-3.01b
+`3.1b`
+
 # ***Part 28b. Homeless ghosts.***
 >> ***Quotations from Joseph Conrad, "Karain: A Memory", Chap 6. 1897  [formatting added]***
 
@@ -725,116 +732,123 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ##### ***BUT ONLY DESTRUCTION, NO SIGNS OF LIFE, FOR <ins>PRETENDERS NOT MEASURING VALUE.</ins>*** 
 > #### ***¹ See end of "THE HOMELESS DOLLAR. Part 27. ... "***
 
+`3.2`
 
-3.02
 ## ***Nobody ever saw a bad merchandise peddler make a fair and deliberate exchange of anything with anybody.¹***<br>
 >> ***¹ See "No man's land (the marketplace!!!)." Part 3.***
 
-3.03a
+`3.3a`
+
 # ***THE HOMELESS (HIGH VISIBILITY) DOLLAR. Part 29. Money never changes, everything else in the marketplace does, how much and for better or worse can always be learned from money.***
 ## ***Money the harmless standard of measurement shuns resource waste, leaving resource waste measured "low value".***<br><br>***MONEY WASTE, on the other hand, CAN'T BE SEPARATED FROM RESOURCE WASTE!!!, AND IS FAR MORE VISIBLE THAN MONEY THE MERE STANDARD OF MEASUREMENT. Homeless dollars are entirely a resource wasting and money wasting scheme, HIGHLY VISIBLE, inviting the delusion of money being "EVERYTHING", ALL THAT MATTERS, BLAMING RESOURCE WASTE ON THE HARMLESS STANDARD OF MEASUREMENT MONEY, instead of on MONEY WASTE!!!***<br><br>
 
-3.03b
+`3.3b`
 
 ***Supreme Court Justice¹ William O. Douglas throughout his most interesting natural history book <ins>My Wilderness: The Pacific West</ins> laments the damage threatening the wilderness by "money"  [formatting added]:***
 > ## ***"The loggers and road builders look at every lovely ridge or basin for QUICK PROFITS. They take heavily from the forests, sometimes destroying everything." (Chap V. Mount Adams).<br><br>"Lumber interests would be served; the man who built the road would make A FORTUNE ... That act of desecration would prove that the powers that be downgrade VALUES THAT CANNOT BE CONVERTED INTO DOLLAR SIGNS." (Chap IX. Glacier Peak).<br><br>"These days people think more and more IN TERMS OF DOLLARS. By those standards all of our wilderness will be chewed up by machines. Yet <ins>DOLLARS DO NOT EXPRESS ALL THE VALUES WHICH WE AMERICANS CHERISH.</ins> ... An attempt to put DOLLAR SIGNS on these natural wonders is, I thought, a mark ... of our great decline. We deal with <ins>VALUES THAT NO DOLLARS CAN MEASURE."</ins>(Chap IX. Glacier Peak).***<br><br>
 >>> ***¹ 1939-1975***
  
-3.04a
+`3.4a`
+
 # ***THE HOMELESS DOLLAR. Part 30. "Everything's going up!"¹***
 >>>>>> ### ***¹ Prices. "Inflation" - OF A BUBBLE!!!!! Nothing to manage!!! Only to <ins>STOP THE PROLIFERATION OF HUMAN NEEDS-DEFYING PRICES!!!!!</ins>, which is all there is to inflation management. STOP THE MISERY, THE CONSPICUOUS RESOURCE WASTE, MONEY BEING "EVERYTHING". <ins>RESTORE VALUE MEASUREMENT!!!!!</ins>***<br><br> ***Money should no more be "everything" than the inch or the ounce should be. Everything should be <ins>CONSPICUOUS MARKETS!!!, CONSPICUOUS INVESTMENT OPPORTUNITIES!!!, CONSPICUOUS HUMAN NEEDS!!!, RAISING THE STANDARD OF LIVING!!!</ins>***<br>
 
-3.04b<br><br>
+`3.4b`
 
 >> ### ***"A nation loses the place which it once held in the world's history <ins>WHEN MONEY BECOMES MORE PRECIOUS TO THE SOULS OF ITS PEOPLE THAN HONESTY AND HONOR.</ins> A universal, widespread greed of gain is the forewarning of some great upheaval and disaster. Civilizations have been born and completed and then forgotten again and again. There is nothing new under the sun."<br>- <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap XIV. The Origin of Savagery*** [formatting added]
 
-3.04c
+`3.4c`
 
 ## ***Everything's <ins>PLAIN AS DAY!!!!!</ins>, IN A LEGITIMATE FINANCIAL SYSTEM!!<br>Prices are not an issue, no financial complexity, only <ins>PLAIN INFORMATION ABOUT HUMAN NEEDS, VALUE MEASUREMENTS, ALL THAT PROSPEROUS PEOPLE NEED.</ins><br><br>Illegitimate prices (bad merchandise) is ALL THERE IS TO "INFLATION", "DEFLATION", FINANCIAL COMPLEXITY, NO SIGNS OF LIFE (HUMAN NEEDS, HOMELESS PEOPLE) ALLOWED, TRIPLE-REVERSE UPSIDE-DOWN MORTGAGES.***
 
-3.04d
+`3.4d`
 
 ## ***Everything's going up BECAUSE <ins>NEEDLESS UNCERTAINTY</ins> CONTINUES!!!!!***<br><br>***NO MANAGEMENT OF <ins>NEEDLESS UNCERTAINTY</ins> MATTERS!!!!!.***<br><br> ***<ins>ACCURATE MEASUREMENTS!!!!!</ins> is what matters!!!!!***<br><br>***23,000 plus "employees" at resource-waste headquarters¹ (earth-destruction headquarters), the Federal Reserve, "employed" in DENYING THE NATION <ins>ACCURATE MEASUREMENT!!!!!</ins> OF VALUE, DENYING IN VAIN <ins>THE EXISTENCE OF INALIENABLE RIGHTS AND OTHER PEOPLE'S BUSINESS.</ins>***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
+`3.05a`
 
-3.05a
 # ***THE HOMELESS (NOTHING VENTURED, NOTHING LEFT IF IT CONTINUES) DOLLAR. Part 31a. The next lost continent???¹ (NOTHING VENTURED).***
 ## ***<ins>OUTPUT</ins> - SOMETHING VENTURED!!!, GOOD WILL!!!, MEETING HUMAN NEEDS!!!, COMMITTMENT TO COMMERCE!!!, TO SAFETY!!!, TO HOMES!!!<br><br>Not OSTENTATION!!!, gold and silver for ornament² instead of for money; not HOARDING GOLD AND SILVER!!!, money measurers sitting on it, paranoid of letting gold and silver out of their hands, of letting them BE MONEY!!!, CIRCULATE!!!, well knowing the BAD MERCHANDISE THEY'RE PEDDLING!!! will never bring gold and silver back to them; not HOW BIG!!! the pile of homeless dollars is; not DIVERTING MONEY IN  ANY WAY FROM <ins>OUTPUT</ins>, FROM SOMETHING VENTURED, FROM SERVING HUMAN NEEDS!!!; NOT ANY ADORNMENT, NOT ANYTHING <ins>PUT ON</ins>!!!!!***<br><br>
 
-3.05b
+`3.05b`
+
 >> **" "When the star of Bal fell on the place where now is only the sky and the sea, the seven cities ... quivered and shook ... ... and the wise Mu - the** ***Hieratic Ra Mu*** **- arose and said to them: did I not predict all this? And the women and the men in their precious stones and shining garments lamented ... and Mu  replied: 'You shall all [perish] ... and ... new nations shall arise. If they forget they are superior <ins>not because of what they PUT ON but what they PUT OUT</ins> the same will befall them.' ... the land and its inhabitants were torn to pieces and swallowed up by the depths." "**  [formatting added] mi
 >>>> ***- <ins>The Lhasa Record</ins>, "discovered by Schliemann
  in the old  Buddhist Temple of Lhasa, Tibet. Schliemann deciphered and translated it." <ins>The Lost Continent of Mu</ins>, James Churchward, 1959. Chap IV. RECORDS OF THE LOST CONTINENT***
 
 >>> ### ***¹ See 2.21b. THE HOMELESS DOLLAR. Part 19.<br><br>² See 1.11. "Gold in their pockets, paper on their walls"***
 
-3.05c
+`3.05c`
+
 # ***Part 31b. NOTHING LEFT.***
 ## ***<ins>Destroy prices!!!!!</ins><br><br>The money measurers <ins>DESTROY PRICES!!!!!</ins>, calling it anything but - "inflation", "money supply", "controlling ...", "not enough ...", UNTIL THERE'S NOTHING LEFT!!!<br><br>Nothing left but ADORNMENT!!! - what's PUT ON!!! What's PUT OUT!!! - OUTPUT!!! - forgotten.<br><br>Nothing but FINANCIAL COMPLEXITY!!! - <ins>FINANCIAL TARPITS!!! containing FOSSIL REMAINS OF TRANSACTIONS, OF SOMETHINGS VENTURED, OF COMMERCE!!!</ins><br><br>Nothing but BAD MERCHANDISE!!! Good merchandise all driven out or stolen, <ins>THE BIGGEST BUBBLE BURSTS!!!</ins> Poverty and misery (bad merchandise), returned barbarism (bad merchandise), another vanished civilization (bad merchandise), another sunken continent (bad merchandise), nothing but the sky and the sea.***
 
-3.05d
+`3.5d`
+
 # ***Part 31c. NOTHING LEFT.***
 ## ***<ins>Destroy CAPITAL!!!</ins>***
 ## ***"Financing" <ins>minus what children are taught</ins> - "financing" resource waste, BAD MERCHANDISE!!!<br><br>Grants, programs, etc, etc doling out ENDLESS AMOUNTS OF <ins>UNEARNED (HOMELESS) DOLLARS!!!</ins> No wonder that product <ins>doesn't work!!!, doesn't last!!!, doesn't serve its intended purpose!!!, is pure waste of resources!!!, why did anyone bother to make it???!!!</ins> No wonder IT'S <ins>BAD MERCHANDISE!!!!!</ins><br><br>Capital starts with the firsthand <ins>KNOWLEDGE OF HUMAN NEEDS!!!!!, OF MONEY'S VALUE!!!!!</ins>, that only comes, as children are taught, from <ins>EARNING!!! money.</ins><br><br>Nothing ventured, NOTHING EARNED!!!, nothing for prices, nothing to save, NOTHING FOR CAPITAL!!! - nothing left but BAD MERCHANDISE!!!***
 
-3.06a
+`3.6a`
+
 # ***THE HOMELESS (PRICE-DESTROYING, CURRENCY SPECULATING INSTEAD) DOLLAR. Part 32a. The high cost of no prices (of currency speculation).***
 
 ## ***• <ins>NEEDLESS PROBLEMS!!! galore!!!</ins><br>Human needs (EARNING!!! money, the biggest threat to homeless dollars) ignored/avoided in favor of currency speculation.***<br><br>***• <ins>UNAFFORDABLE!!!</ins><br>NO PRICES IS OVERPRICED!!!, IS BAD MERCHANDISE!!!, IS - NO COMMERCE!!!!!***<br><br>***• <ins>INSECURITY!!! - HOMELESS!!!!!</ins>***<br><br>***Homeless dollars <ins>CAMPED OUT EVERYWHERE!!!!!, BAITING SPECULATORS!!!, SMOTHERING (STARVING) EVERYTHING ELSE (HUMAN NEEDS)!!!</ins>***<br><br>***Exorbitant housing cost that only RESELLERS!!! (CURRENCY SPECULATORS!!!) will pay.<br>That buys <ins>THE OPPOSITE!!! - A PIRATE MAGNET!!!, NOT A HOME!!! Jackpots for resellers!!!, NOT A HOME!!!</ins><br><br><ins>Living in A BUBBLE!!!, NOT A HOME!!!</ins>***
 
-3.06b
+`3.6b`
 
 ## ***Part 32b. 23,000 plus "employees"¹ at price-destruction headquarters, the Federal Reserve, AT WAR WITH THEMSELVES!!!***<br><br>***"Employed" trying to manage WHAT CAN'T BE MANAGED - VALUE MEASUREMENT, INALIENABLE RIGHTS, OTHER PEOPLE'S BUSINESS.***<br><br>***No one but <ins>every person for themself, THEIR PIECE OF NO MAN'S LAND², THEIR PIECE OF THE COMMON GROUND, THEIR INALIENABLE RIGHT,</ins> MEASURES VALUE - <ins>IT'S THEIR PRICETAG ON THEIR PRIVATE PROPERTY. THEIR STANDARD OF VALUE  (DESIGNATED, NOT MANAGED, NO LOOSE ENDS, NO FINANCIAL COMPLEXITY, NO CHEAPENING OF MONEY'S VERY HIGH VALUE!!!).</ins>***<br><br>***23,000 plus people wasting their time, setting the pace at resource waste-price destruction headquarters, NOT MEASURING VALUE, PRODUCING NO VALUE TO MEASURE.***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***<br><br>***² See 3.00-3.00a No man's land (the marketplace!!!).***
 
-3.07
+`3.7`
 
 # ***THE HOMELESS (SAFETY-DESTROYING) DOLLAR. Part 33. Goods and services for a bubble makes them part of it - makes a bigger bubble. Goods and services LESS SAFE, less likely to come to market, OVERPRICED, bad merchandise compared to  <ins>SAFETY FOR SAFETY, goods and services in exchange for SAFETY, FOR A STANDARD OF MEASUREMENT INSTEAD OF UNCERTAINTY.</ins>***
 
 ## ***Safety for safety ,<ins>STARTS WITH HOMES!!!, MINIMIZES LAND COST, PROLIFERATES LAND-HOME OWNERSHIP.</ins>***<br><br>***The first transaction, the first thing ventured: <ins>SAFETY FOR SAFETY. YOUR HOME AND MY HOME.</ins> Without it no others can happen; life in a <ins>NEEDLESS BUBBLE INSTEAD OF A MET HUMAN NEED, A HOME.</ins>***
 
-3.08
+`3.8`
 
 # ***THE HOMELESS (MIDAS TOUCH, BUBBLE-TRAFFICKING) DOLLAR. Part 34. Makes <ins>everything it touches HOMELESS</ins> - A BUBBLE, UNCERTAIN, UNSAFE.***
 ## ***UNSAFE goods and services is a <ins>BUBBLE EXPANDING!!!</ins>, relentless gravitation toward <ins>NO GOODS AND SERVICES!!!, TOWARD THE MIDAS TOUCH!!!, NOTHING BUT MONEY LEFT</ins>, NO REASON FOR MONEY, MONEY USELESS!!!***<br><br>***NOTHING AT ALL INDEED LEFT!!! - ANOTHER VANISHED CIVILIZATION!!!***
 
-3.09
+`3.9`
 
 ## <br>***High house value is¹ (7)***<br>
 > <ins>***HOME SAFETY.***</ins><br><br>***Measuring value greatly increases home safety, because it <ins>GREATLY INCREASES DEPENDENCE ON HOME SAFETY</ins> - INVITES MORE VALUE TO MEASURE, SPECIALIZATION.<br><br>Legitimate prices (measured value) INCREASE SAFETY!!!!! The purpose of commerce is to INCREASE SAFETY!!!!!***
 >>>> #### ***¹ More at 1.01, 1.09, 1.16, 1.27.***
 
-3.10
-
+`3.10`
 
 # ***THE HOMELESS (NON-RECYCLABLE, BUCK-PASSING, POVERTY-RATIONING INSTEAD OF CIRCULATING) DOLLAR. Part 35. Unanimous verdict at poverty headquarters, the Federal Reserve, <ins>23,000 plus¹ THUMBS DOWN!!!, the ENTIRE STAFF!!!</ins> abandoning <ins>THEIR INALIENABLE RIGHT TO MIND THEIR OWN BUSINESS!!!!!</ins> (to measure value, to give money a HOME!!!!!, give <ins>THE REASON!!!!! - real wealth, good merchandise</ins> - FOR MONEY TO CIRCULATE!!!!!).***<br><br>***23,000 plus people SO FAR LOST AND DISTRACTED AND DISORIENTED IN THE IMPOSSIBLE WORLD OF <ins>MEASURING A STANDARD OF MEASUREMENT!!!!!</ins> ... AS TO FORGET THE FOURTH OF JULY, AND THEIR INALIENABLE RIGHT TO MAKE A BETTER MOUSETRAP (MEASURE VALUE)!!!!!***<br><br>***Normally, 23,000 plus people with <ins>NOTHING TO WORRY ABOUT BUT LIFE, LIBERTY AND THE PURSUIT OF HAPPINESS</ins>, AND INALIENABLE RIGHT TO IMPROVE THE WORLD (MEASURE VALUE) COULDN'T BE STOPPED!!!!! They'd be <ins>SO BUSY IMPROVING THE WORLD!!!!!, they'd FORGET ALL ABOUT MONEY!!!!!</ins>, let alone measuring it!!!!!, let alone money "everything".²***<br><br>***23,000 plus Mr. Poppinses ... ²***
 ## ***But worrying about <ins>measuring a standard of measurement</ins>, money "everything", has done it, left the dollars homeless, the 23,000 plus people, like lemmings, choosing instead of wealth and prosperity, the poverty of <ins>PASSING THE BUCK!!!, MINDING OTHER PEOPLE'S BUSINESS!!!!!</ins>***<br><br>***<ins>POVERTY, BAD MERCHANDISE, NOT MONEY, LEAVING THEIR HANDS!!!!!</ins> - to the hands of win-lose "investors"³, who do the same, THE BUCK, THE POVERTY, NEVER STOPPING UNTIL CREDIT RATINGS FAIL!!! and all that's left is the people <ins>EARNING!!! dollars, producing the goods and services, the real wealth, the standard of living.</ins>***<br><br>***But the buck-stoppers <ins>DON'T SUPPLY WHAT THE BUCK-PASSERS LEFT OUT!!!!!, THE DOLLARS ARE STILL HOMELESS, STILL BAD MERCHANDISE, NOT MONEY.</ins>***<br><br>***<ins>THE BUCK-STOPPERS ARE BEING SHORT-CHANGED!!!!!, A BUBBLE, ABNORMAL PRICES, ILLEGITIMATE PRICES; CIRCULATION OF POVERTY, NOT OF WEALTH, NOT OF MONEY.</ins>***<br><br>***The buck passers are a HUGE NEEDLESS COST!!!!! <ins>Who would pay them to INTERFERE WITH HOUSING!!! OR ANYTHING ELSE!!!, pay them for BAD MERCHANDISE!!!, if they had to MIND THEIR OWN BUSINESS?????!!!!!</ins>***<br><br>***Homeless dollars are for <ins>RATIONING POVERTY!!!, NOT NORMAL CIRCULATION OF WEALTH, NOT NORMAL RECYCLING OF MONEY.</ins>***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***<br><br>***² See Lionel Barrymore and Donald Meek (Mr. Poppins) in movie "You Can't Take It With You", 1938, for extended discussion.***<br><br>***³ <ins>Win-lose "investors"</ins> only "win" at the expense of other people losing, <ins>take no real risks</ins>; unlike real investors, win-win investors, who take real risks and only win if everyone does, if the standard of living rises - commerce!!!***
 
-3.11
+`3.11`
+
 # ***Nobody ever saw a dog make a measurement.***
 >>> ### ***See 3.00c. No man's land (the marketplace!!!). Part 3.***
 
-3.12
+`3.12`
+
 # ***THE HOMELESS (PRICE-DESTROYING, FINANCIAL COMPLEXITY-RESTORING) DOLLAR. Part 36. Duking it out with money.***
 ## ***Powerless to <ins>CHANGE ANYTHING!!!!!</ins> about money, nothing to work with but <ins>THEMSELVES!!!!!,</ins> 23,000 plus people¹ <ins>UNANIMOUSLY!!!!! CHOOSE TO PRODUCE NOTHING!!!!!</ins>, ABANDON THE EFFICIENCY (CLOSE SCRUTINY!!!!!) OF A MONEY ECONOMY ALTOGETHER, and seek refuge in the <ins>QUAGMIRE OF THE PRIMITIVE CONDITION - FINANCIAL COMPLEXITY, INEQUALITY, BORROWING AND LENDING, DESTROYED PRICES (NO PRICETAGS)!!!!!</ins>***<br><br>***Nothing (bad merchandise) leaving the hands of 23,000 plus Mr. Poppinses, pre-Grandpa Vanderhoff².***
 # ***Money wins again, as always, ever on the job, <ins>always the servant, the informant, of people of good will.</ins>***
 >> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***<br><br>***² Grandpa Vanderhoff (Lionel Barrymore), Mr. Poppins (Donald Meek), 1938 movie "You Can't Take It With You".***
 
 
-3.13
+`3.13`
 
 # ***Should <ins>the inch or the ounce</ins> require a staff of 23,000 plus people to operate???<br><br>Measuring <ins>length or weight</ins> should require a staff of 23,000 plus people?????<br><br>23,000 plus people to CLARIFY OR OBSCURE things???<br><br>23,000 plus people for a standard of measurement - or BAD MERCHANDISE???***<br><br><br>
 
 `4`
 <a id="#4-world-without-prices"-id></a>
 # ***4 WORLD WITHOUT PRICES***<br><br>
->> ### ***4 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4_1_world_without_prices-1)
->> ### ***4 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4_2_world_without_prices-2)
+>> ### ***4 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
+>> ### ***4 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2-world-without-prices-2)
 
 `4.1`
-<a id="#4_1_world_without_prices-1_id">
+<a id="#4-1-world-without-prices-1-id"></a>
 # ***4.1 WORLD WITHOUT PRICES-1***<br><br>
 
 `4.1a. 37wop1a`
@@ -1135,7 +1149,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 `4.2`
 
-<a id="#400_world_without_prices-2_id"></a>
+<a id="#4-2-world-without-prices-2-id"></a>
 > ## ***4.2 WORLD WITHOUT PRICES-2***<br><br><br> 
 
 `4.2a. 37wop2a`
@@ -1312,15 +1326,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
-
 >>> ### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
 >>> ### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6-natural-law)
 >>> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners and losers).*** [Go to COUNTING THE SCORE (UN-NATURAL LAW, winners and losers](#7-counting-the-score-winners-and-losers)
 >>> ### ***8 LAND OWNERSHIP*** [Go to 8 LAND OWNERSHIP](#8-land-ownership)
 
-<a id="#5-markets-in-the-south_id"></a>
->> ## ***5 MARKETS IN THE SOUTH***<br><br><br>
-
+<a id="#5-markets-in-the-south-id"></a>
+>> ## ***5 MARKETS IN THE SOUTH***<br><br>
 >>> ## ***Nobody's ever at home.¹***
 >>> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
 >>>>> ##### ***¹ "Independence." Always at YOUR home. Always trespassing.***<br><br><br>
@@ -1449,7 +1461,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 `7`
 
-<a id="#7-counting-the-score-un-natural-law"_id></a>
+<a id="#7-counting-the-score-un-natural-law"-id></a>
 ## ***7 COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
 
 ### ***Counting the score¹ ... Part 1.***
