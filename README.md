@@ -25,7 +25,8 @@
 > ### ***4.1 WORLD WITHOUT PRICES-1*** [Go to 4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
 
 > ### ***4.2 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4-2_world_without_prices-2)<br><br> 
-## **AFTER** ***World Without Prices*** [Go to AFTER World Without Prices](#after-world-without-prices)<br><br>
+## **AFTER** ***World Without Prices*** [Go to AFTER World Without Prices](#after-world-without-prices)<br><br><br>
+
 >> ### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5_markets_in_the_south)
 >> ### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6_natural-law)
 >> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7 COUNTING THE SCORE (UN-NATURAL law](#7_counting_the_score_un-natural_law)
@@ -1312,13 +1313,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 
->>> ### ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500_markets_in_the_south)
->>> ### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600_natural_law)
->>> ### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners and losers).*** [Go to COUNTING THE SCORE (UN-NATURAL LAW, winners and losers](#700_counting_the_score_winners_and_losers)
->>> ### ***8.00 LAND OWNERSHIP*** [Go to 8.00 LAND OWNERSHIP](#800_land_ownership)
+>>> ### ***5 MARKETS IN THE SOUTH*** [Go to 5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
+>>> ### ***6 NATURAL LAW*** [Go to 6 NATURAL LAW](#6-natural-law)
+>>> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners and losers).*** [Go to COUNTING THE SCORE (UN-NATURAL LAW, winners and losers](#7-counting-the-score-winners-and-losers)
+>>> ### ***8 LAND OWNERSHIP*** [Go to 8 LAND OWNERSHIP](#8-land-ownership)
 
-<a id="#500_markets_in_the_south_id"></a>
->> ## ***5.00 MARKETS IN THE SOUTH***<br><br><br>
+<a id="#5-markets-in-the-south_id"></a>
+>> ## ***5 MARKETS IN THE SOUTH***<br><br><br>
 
 >>> ## ***Nobody's ever at home.¹***
 >>> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
@@ -1331,11 +1332,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ***¹ Rob Roy***<br><br>
 > ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***<br><br><br>
 
-<a id="#600_natural_law_id"></a>
->> ## ***6.00 NATURAL LAW***<BR><BR><br>
+<a id="#6-natural-law-id"></a>
+>> ## ***6 NATURAL LAW***<BR><BR><br>
 >>> ### ***Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).***<br><br>
 
-6.1
+`6.1`
 
 >> ### ***NATURAL LAW. Part 1. Song lyric: "Nowadays Clancy Can't Even Sing." Neil Young.***<br><br>
 >> ***"Who's that stomping all over my face***<br>
@@ -1366,7 +1367,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>> #### ***Song lyric "Nowadays Clancy Can't Even Sing". Neil Young. 1965***<br><br>https://en.m.wikipedia.org/wiki/Nowadays_Clancy_Can%27t_Even_Sing<br><br>***1966. Buffalo Springfield album <ins>Buffalo Springfield</ins>***<br><br>https://youtu.be/7SmxEw3b1qg?feature=shared<br><br><br>
 
-6.2     [Oct19,2025]
+`6.2 [Oct19,2025]`
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 > ### ***NATURAL LAW. Part 2. Song lyric: "El Guerrero." Horacio Gomez Conrado.***<br><br>
@@ -1402,7 +1403,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >> https://youtu.be/KNTnazSh28g?si=Lefm-88ag-9sV9HF
 
-6.3
+`6.3`
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
@@ -1411,7 +1412,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> #### ***"Quien todo lo quiere, todo lo pierde."<br><br>("Want all, lose all.")***<br><br>
 >>>> ##### ***- <ins>Segundo Curso Progresando</ins>, 3rd Ed., J. M. Pittaro and A. Green, 1960. Appendix B, "La Filosofía Española A Través Del Refrán", p523***<br><br>
 
-6.4
+`6.4`
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
@@ -1420,7 +1421,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> #### ***- <ins>La Isla De Los Delfines Azules</ins>, Scott O'Dell, 1960. Chaps 10-11***
 >>>> #### ***¹ San Nicolas Island, most remote of the S. California channel islands, 61 miles offshore.***<br><br>
 
-6.5.   [Feb17,2025]
+`6.5 [Feb17,2025]`
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
@@ -1428,7 +1429,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> #### ***"Everybody needs some space." Young parent put it like so, asking a homeless person if they'd mind the  parent's small child playing in a not too far away part of the large abandoned parking lot they were in. 2020.***<br><br>
 >>>> ##### ***- wonas2dosgwr3 firsthand information.***
 
-6.6.    [Aug2,2025]
+`6.6. [Aug2,2025]`
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
@@ -1436,7 +1437,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> #### ***"I resolved to enter upon a life of industry; and notwithstanding the obstacle of color, and consciousness of my lowly state, indulged in pleasant dreams of a good time coming, when the possession of some humble habitation, with a few surrounding acres, should reward my labors, and bring me the means of happiness and comfort."***<br><br>
 >>>> ##### ***- Solomon Northup, <ins>Twelve Years A Slave</ins>, 1854. Chap 1. [Penguin Classics edition.]***
 
-6.7  [Sept10,2025]
+`6.7 [Sept10,2025]`
 
 
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
@@ -1446,9 +1447,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 [formatting added]<br>
 >>>>>> ###### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
+`7`
 
-<a id="#700-counting-the-score-un-natural-law"_id></a>
-## ***7.00a COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
+<a id="#7-counting-the-score-un-natural-law"_id></a>
+## ***7 COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
 
 ### ***Counting the score¹ ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
@@ -1458,17 +1460,18 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ##### ***- La Fontaine, "La Ronde de la Vie", Otto F. Bond, Ed., XXII, Le Savetier Et Le Financier. <ins>Deuxième Étape: Basic French Readings</ins>, Retold and Edited by Otto F. Bond, 1938-42***<br><br>
 >>> ***¹ <ins>UN-NATURAL</ins> law. Winners <ins>AND</ins> losers (<ins>"counting the score"</ins>), instead of commerce (<ins>EVERYBODY</ins> wins). See 3.16a. Natural law ...***<br><br><br>
 
-<a id="#800-land-ownership_id"></a>
-8.00
-# ***8.00 LAND OWNERSHIP***<BR><BR>
+`8`
 
-8.00-1.    [Aug22,2025]<BR>
+<a id="#8-land-ownership-id"></a>
+# ***8 LAND OWNERSHIP***<BR><BR>
+
+`8.1 [Aug22,2025]`
 
 > ## ***LAND OWNERSHIP***<br>
 > ### ***Part 1. Columbus***<br><br>
 >> #### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***<br>
 
-8.00-2    [Aug27,2025]
+`8.2 [Aug27,2025]`
 
 #### ***[LAND OWNERSHIP]***<br>
 
