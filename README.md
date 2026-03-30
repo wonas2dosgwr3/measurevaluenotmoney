@@ -22,11 +22,11 @@
 ### ***2.00 Copernicus.*** [Go to 2.00 Copernicus](#200-copernicus)
 ### ***3.00 NO MAN'S LAND*** [Go to 3.00 NO MAN'S LAND](#300-no-mans-land)
 
-## ***WORLD WITHOUT PRICES***[Go to WORLD WITHOUT PRICES](#world-without-prices)
+## ***WORLD WITHOUT PRICES*** [Go to WORLD WITHOUT PRICES](#world-without-prices)
 ### ***4.00 WORLD WITHOUT PRICES-1*** 
 
 ### ***4.00 WORLD WITHOUT PRICES-2***<bt><br> 
-## **AFTER** ***World Without Prices***[Go to AFTER World Without Prices](#after-world-without-prices)<br><br>
+## **AFTER** ***World Without Prices*** [Go to AFTER World Without Prices](#after-world-without-prices)<br><br>
 ### ***5.00 MARKETS IN THE SOUTH*** [Go to 5.00 MARKETS IN THE SOUTH](#500-markets-in-the-south)
 ### ***6.00 NATURAL LAW*** [Go to 6.00 NATURAL LAW](#600-natural-law)
 ### ***7.00 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [Go to 7.00 COUNTING THE SCORE (UN-NATURAL law](#700-counting-the-score-un-natural-law)
