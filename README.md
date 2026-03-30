@@ -28,7 +28,7 @@
 
 >> ### ***5 MARKETS IN THE SOUTH*** [5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
 >> ### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
->> ### ***7 COUNTING THE SCORE (UN-NATURAL law, winners AND losers)*** [7 COUNTING THE SCORE (UN-NATURAL law](#7-counting-the-score-un-natural-law)
+>> ### ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)*** [7 COUNTING THE SCORE (UN-NATURAL LAW ...](#7-counting-the-score-un-natural-law-)
 >> ### ***8 LAND OWNERSHIP***
 [8 LAND OWNERSHIP](#8-land-ownership)<br><br><br>
 
@@ -1459,8 +1459,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 `7`
 
-<a id="#7-counting-the-score-un-natural-law"-id></a>
-## ***7 COUNTING THE SCORE (<ins>UN-NATURAL</ins> law, winners <ins>AND</ins> losers).***<br><br><br>
+<a id="#7-counting-the-score-un-natural-law-"-id></a>
+
+## ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)***
 
 ### ***Counting the score¹ ... Part 1.***
 >> ## ***Le Savetier Et Le Financier***<br>
@@ -1473,11 +1474,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 `8`
 
 <a id="#8-land-ownership-id"></a>
-# ***8 LAND OWNERSHIP***<BR><BR>
+
+# ***8 LAND OWNERSHIP***
 
 `8.1 [Aug22,2025]`
 
-> ## ***LAND OWNERSHIP***<br>
+> ## ***LAND OWNERSHIP***
 > ### ***Part 1. Columbus***<br><br>
 >> #### ***Columbus claimed his first stop in the New World for the king of Spain, <INS>BY RIGHT OF DISCOVERY.</INS> Trouble with this system is, the native inhabitants already living there, <ins>INVARIABLY!!!!!</INS> think they got there first (discovered it before the king did).***<br>
 
