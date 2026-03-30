@@ -38,7 +38,7 @@
 
 >> ### ***1*** **measurevaluemotmoney** [Go to 1 measurevaluenotmoney](#1-measurevaluenotmoney)
 >> ### ***2 COPERNICUS*** [Go to 2 COPERNICUS](#2-copernicus)
->> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3-no_mans_land)
+>> ### ***3 NO MAN'S LAND*** [Go to 3 NO MAN'S LAND](#3-no-mans-land)
 
 `1`
 
