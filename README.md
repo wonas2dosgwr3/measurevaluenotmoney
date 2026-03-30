@@ -826,8 +826,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***4 WORLD WITHOUT PRICES-2*** [Go to 4.2 WORLD WITHOUT PRICES-2](#4_2_world_without_prices-2)
 
 `4.1`
-<a id="#4_1_world_without_prices-1_id"><\a>
-# ***4.00. WORLD WITHOUT PRICES-1***<br><br>
+<a id="#4_1_world_without_prices-1_id">
+# ***4.1 WORLD WITHOUT PRICES-1***<br><br>
 
 `4.1a. 37wop1a`
 > # ***THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part A.***
@@ -1128,7 +1128,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 `4.2`
 
 <a id="#400_world_without_prices-2_id"></a>
-> ## ***4.00. WORLD WITHOUT PRICES-2***<br><br><br> 
+> ## ***4.2 WORLD WITHOUT PRICES-2***<br><br><br> 
 
 `4.2a. 37wop2a`
 
