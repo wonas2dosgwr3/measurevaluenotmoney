@@ -5,7 +5,7 @@
 >>> #### ***1*** **measurevaluenotmoney** [1 measurevaluenotmoney](#1-measurevaluenotmoney)
 >>> #### ***2 COPERNICUS*** [2 COPERNICUS](#2-copernicus)
 >>> #### ***3 NO MAN'S LAND*** [3 NO MAN'S LAND](#3-no-mans-land)
-## **4**  ***WORLD WITHOUT PRICES*** [4 WORLD WITHOUT PRICES](#4-world-without-prices)
+## *4*  ***WORLD WITHOUT PRICES*** [4  WORLD WITHOUT PRICES](#4-world-without-prices)
 >> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
 >> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
 ## **AFTER** ***World Without Prices*** [AFTER World Without Prices](#after-world-without-prices)
@@ -824,7 +824,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 <span =#"4-world-without-prices"></span>
 
-# **4**   ***WORLD WITHOUT PRICES*** 
+# *4*   ***WORLD WITHOUT PRICES*** 
 >> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
 >> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
 
