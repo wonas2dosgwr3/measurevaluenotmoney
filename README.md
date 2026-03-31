@@ -16,14 +16,14 @@
 `TOC-2`<br>
 
 ## **Contents**<br><br>
-# **BEFORE** ***World Without Prices*** [BEFORE World Without Prices](#before-world-without-prices)
+## **BEFORE** ***World Without Prices*** [BEFORE World Without Prices](#before-world-without-prices)
 >>> #### ***1*** **measurevaluenotmoney** [1 measurevaluenotmoney](#1-measurevaluenotmoney)
 >>> #### ***2 COPERNICUS*** [2 COPERNICUS](#2-copernicus)
 >>> #### ***3 NO MAN'S LAND*** [3 NO MAN'S LAND](#3-no-mans-land)
-# ***WORLD WITHOUT PRICES*** [4 WORLD WITHOUT PRICES](#4-world-without-prices)
+## ***WORLD WITHOUT PRICES*** [4 WORLD WITHOUT PRICES](#4-world-without-prices)
 >> ### ***4.1 WORLD WITHOUT PRICES-1*** [4.1 WORLD WITHOUT PRICES-1](#4-1-world-without-prices-1)
 >> ### ***4.2 WORLD WITHOUT PRICES-2*** [4.2 WORLD WITHOUT PRICES-2](#4-2-world-without-prices-2)
-# **AFTER** ***World Without Prices*** [AFTER World Without Prices](#after-world-without-prices)
+## **AFTER** ***World Without Prices*** [AFTER World Without Prices](#after-world-without-prices)
 >>> #### ***5 MARKETS IN THE SOUTH*** [5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
 >>> #### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
 >>> #### ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)*** [7 COUNTING THE SCORE (UN-NATURAL LAW ...](#7-counting-the-score-un-natural-law-)
