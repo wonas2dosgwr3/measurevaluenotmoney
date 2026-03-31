@@ -17,7 +17,6 @@
 >>>> #### ***Index*** [Index](index)
 <br><br><br><br>
 
-
 # **BEFORE** ***World Without Prices***
 
 >> #### ***1*** **measurevaluemotmoney** [1 measurevaluenotmoney](#1-measurevaluenotmoney)
