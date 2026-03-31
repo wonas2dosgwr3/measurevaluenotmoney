@@ -1301,7 +1301,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> #### ***Monkey swinging 'round on the money tree***<br>***Robbing us blind while we're asleep***<br>***And telling us that we're free***<br>
 >>>>> ##### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <ins>Growing Upward</ins>, 2019***<br>
 >>>>[Mar29,2026]<br>
->> ## ***Money is for (ins)POURING DOWN RAT HOLES!!!!!(/ins) Ask any (ins)monkey shaking their money tree, or coming down from the moon¹.(/ins)***
+>> ## ***Money is for (ins)POURING DOWN RAT HOLES!!!!! (/ins)Ask any (ins)monkey shaking their money tree, or coming down from the moon¹.(/ins)***
 >>>>> ##### ***1. See song lyric: "El Guerrero", Los Enanitos Verdes. 6.2 NATURAL LAW***<br><br>
 
 <a id="#after-world-without-prices_id"></a>
