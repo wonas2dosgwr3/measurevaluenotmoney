@@ -1,18 +1,21 @@
 # **measurevaluenotmoney**<br><br>
 
-## **Contents**<br><br>
-## **BEFORE** ***World Without Prices*** [BEFORE World Without Prices](#before-world-without-prices)
->>> #### ***1*** **measurevaluenotmoney** [1 measurevaluenotmoney](#1-measurevaluenotmoney)
->>> #### ***2 COPERNICUS*** [2 COPERNICUS](#2-copernicus)
->>> #### ***3 NO MAN'S LAND*** [3 NO MAN'S LAND](#3-no-mans-land)
-## **4** ***WORLD WITHOUT PRICES*** [4 WORLD WITHOUT PRICES](#4-world-without-prices)
->> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
->> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
-## **AFTER** ***World Without Prices*** [AFTER World Without Prices](#after-world-without-prices)
->>> #### ***5 MARKETS IN THE SOUTH*** [5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
->>> #### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
->>> #### ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)*** [7 COUNTING THE SCORE (UN-NATURAL LAW ...](#7-counting-the-score-un-natural-law-)
->>> #### ***8 LAND OWNERSHIP*** [8 LAND OWNERSHIP](#8-land-ownership)<br><br><br>
+> ## **Contents**<br><br>
+> ## **BEFORE** ***World Without Prices*** [BEFORE World Without Prices](#before-world-without-prices)
+>>>> #### ***1*** **measurevaluenotmoney** [1 measurevaluenotmoney](#1-measurevaluenotmoney)
+>>>> #### ***2 COPERNICUS*** [2 COPERNICUS](#2-copernicus)
+>>>> #### ***3 NO MAN'S LAND*** [3 NO MAN'S LAND](#3-no-mans-land)
+> ## **4** ***WORLD WITHOUT PRICES*** [4 WORLD WITHOUT PRICES](#4-world-without-prices)
+>>> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
+>>> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
+> ## **AFTER** ***World Without Prices*** [AFTER World Without Prices](#after-world-without-prices)
+>>>> #### ***5 MARKETS IN THE SOUTH*** [5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
+>>>> #### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
+>>>> #### ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)*** [7 COUNTING THE SCORE (UN-NATURAL LAW ...](#7-counting-the-score-un-natural-law-)
+>>>> #### ***8 LAND OWNERSHIP*** [8 LAND OWNERSHIP](#8-land-ownership)
+
+>>>> #### ***Index*** [Index](index)
+<br><br><br><br>
 
 
 # **BEFORE** ***World Without Prices***
@@ -1468,3 +1471,5 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ### ***Part 2. LOW VALUE wants YOUR LAND¹. HIGH VALUE (industrious people) NEVER DOES.***
 >> ##### ***1. Everyone has land under their feet.***<br><br>
 ### ***NOBODY <INS>SPENDS</INS> MONEY ON LOW VALUE. Low value wants NOBODY <INS>SPENDING</INS> MONEY.***<BR><BR>***High value wants NO ONE ELSE'S LAND, EVERYONE <INS>SPENDING</INS> MONEY. The land under high value's own feet is <ins>ENOUGH.</ins>***<BR><BR>***The land under low value's own feet is <ins>NOT ENOUGH.</ins>***<br><br>***HIGH VALUE constantly makes better use of land.***
+
+>> ## ***Index***
