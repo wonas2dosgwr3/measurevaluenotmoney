@@ -827,7 +827,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 >> ### ***WORLD WITHOUT PRICES-2*** [4.2 WORLD WITHOUT PRICES](#4-2-world-without-prices)
 
 `4.1`
-<a id="#world-without-prices-1-id"></a>
+<a id="#4-1-world-without-prices-id"></a>
 # ***WORLD WITHOUT PRICES-1***<br><br>
 
 `4.1a. 37wop1a`
@@ -1128,7 +1128,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 `4.2`
 
-<a id="#world-without-prices-2-id"></a>
+<a id="#4-2-world-without-prices-id"></a>
 
 > ## ***WORLD WITHOUT PRICES-2***<br><br><br> 
 
