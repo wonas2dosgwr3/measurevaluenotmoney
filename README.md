@@ -822,8 +822,6 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 
 `4`
 
-<span =#"4-world-without-prices">
-
 # *4*   ***WORLD WITHOUT PRICES*** 
 >> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
 >> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
