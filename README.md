@@ -12,8 +12,7 @@
 >>>> #### ***5 MARKETS IN THE SOUTH*** [5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
 >>>> #### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
 >>>> #### ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)*** [7 COUNTING THE SCORE (UN-NATURAL LAW ...](#7-counting-the-score-un-natural-law-)
->>>> #### ***8 LAND OWNERSHIP*** [8 LAND OWNERSHIP](#8-land-ownership)
-
+>>>> #### ***8 LAND OWNERSHIP*** [8 LAND OWNERSHIP](#8-land-ownership)<br><br>
 >>>> #### ***Index*** [Index](#index)
 <br><br><br><br>
 
