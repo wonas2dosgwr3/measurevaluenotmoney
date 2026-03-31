@@ -1308,7 +1308,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> #### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
 >>> #### ***7 COUNTING THE SCORE (UN-NATURAL LAW ...).*** [COUNTING THE SCORE (UN-NATURAL LAW ...)](#7-counting-the-score-un-natural-law-))
 >>> #### ***8 LAND OWNERSHIP*** [8 LAND OWNERSHIP](#8-land-ownership)
->>> ##### ***Index*** [Index](index)
+>>> ##### ***Index*** [Index](#index)
 
 <a id="#5-markets-in-the-south-id"></a>
 >> ## ***5 MARKETS IN THE SOUTH***<br><br>
