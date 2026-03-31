@@ -14,7 +14,7 @@
 >>>> #### ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)*** [7 COUNTING THE SCORE (UN-NATURAL LAW ...](#7-counting-the-score-un-natural-law-)
 >>>> #### ***8 LAND OWNERSHIP*** [8 LAND OWNERSHIP](#8-land-ownership)
 
->>>> #### ***Index*** [Index](index)
+>>>> #### ***Index*** [Index](#index)
 <br><br><br><br>
 
 # **BEFORE** ***World Without Prices***
