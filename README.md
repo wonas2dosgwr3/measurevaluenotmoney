@@ -1473,6 +1473,4 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 `Index`
 
-<a id="#index"-id></a>
-
 >>> ## ***Index*** 
