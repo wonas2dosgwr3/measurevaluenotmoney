@@ -1289,11 +1289,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***World WITHOUT PRICES-2. Part O. Inflation of length and weight measurements.***
 > ## ***"All I want is a plain old 80 foot 20 X 40. They're not being delivered??? Used to be  <ins>EVERYWHERE,</ins> when they were called 8 foot 2 X 4s."***<br><br>***"All I want is a plain old 10 pound fish. They're not being delivered??? Used to be <ins>EVERYWHERE</ins>, when they were called 1 pound fish."***<br><br>***"MORE feet and inches and pounds, makes <ins>LESS lumber and fish, and - MORE TAPE MEASURES!!!!!?????"</ins>***<br><br>***Non-competitive lumber, fish, and tape-measure companies LOBBIED CONGRESS. Shortage of FEET AND POUNDS was killing them. If a <ins>given amount</ins> of their bad merchandise could be CALLED A BIGGER AMOUNT!!!!! ... <ins>RESTRICTIONS!!!!!, ON HOW MUCH!!!!! a foot or a pound was, were bad ‐ "FLOATING" (UNKNOWN!!!!!) amounts would be better.</ins>***<br><br>***World <ins>without length and weight measurements.</ins> World WITHOUT LUMBER AND FISH!!!!! - WHO NEEDS TAPE MEASURES!!!!!***<BR><BR>***Can't tell WHAT WE'RE SELLING????? - <ins>WE'RE NOT!!!!!</ins>***<BR><BR>
 
-`4.2p. 37wop2p. [Mar27,2026]`
+`4.2p. 37wop2p. [Mar27, Ap9,2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part P.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part P. Money grows on trees. I don't want to get arrested.***<br>
+
+`4.2pa. 37wop2pa. [Mar27,2026]`
+
 >> ## ***"That's my money tree!"***<br>
 >> ## ***"No! It's mine!"***<br>***"No! It's mine!"***<br>***"It's MINE!!!"***<br>***"GIVE ME THAT MONEY TREE!!!"***<br><br>
 >>> #### ***Monkey swinging 'round on the money tree***<br>***Robbing us blind while we're asleep***<br>***And telling us that we're free***<br>
@@ -1301,6 +1304,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>[Mar29,2026]<br>
 >> ## ***Money is for (ins)POURING DOWN RAT HOLES!!!!! (/ins)Ask any (ins)monkey shaking their money tree, or coming down from the moon¹.(/ins)***
 >>>>> ##### ***1. See song lyric: "El Guerrero", Los Enanitos Verdes. 6.2 NATURAL LAW***<br><br>
+
+`4.2pb. 37wop2pb. [Ap9,2026]`
+
+>> ## ***There's not enough gold for pouring down ratholes (ABNORMAL PRICES!!!!!, low value), <ins>ONLY ENOUGH FOR HIGH VALUE!!!!! (CHANGING HANDS!!!!!)</ins>***<br><br>***Low value doesn't sell (doesn't MOVE!!!!!), <ins>CAN'T MOVE GOLD!!!!!</ins>***<br><br>***Call low value (ABNORMAL PRICES!!!!!) money in vain. Mountains of low value (ABNORMAL PRICES!!!!!)-called-money <ins>PILING UP ON GOLD!!!!!, TALLIED BY GOLD!!!!!, ANSWERING TO GOLD!!!!! - ANSWERING TO HIGH VALUE!!!!!, THE MARKETPLACE!!!!!, EXCHANGING THINGS!!!!!, GOOD WILL!!!!!, NORMAL PRICES!!!!! The gold standard lives on, alive and well as ever.</ins>***<br><br>***<ins>SITTING ON THE GOLD STANDARD, MY LOW VALUE RELENTLESSLY GETTING MEASURED, NEVER ENOUGH GOLD TO SIT ON, FOR A RATHOLE ...***</ins>
+
+
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
