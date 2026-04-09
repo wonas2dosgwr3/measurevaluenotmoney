@@ -1300,12 +1300,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ## ***"That's my money tree!"***<br>
 >> ## ***"No! It's mine!"***<br>***"No! It's mine!"***<br>***"It's MINE!!!"***<br>***"GIVE ME THAT MONEY TREE!!!"***<br><br>
 >>> #### ***Monkey swinging 'round on the money tree***<br>***Robbing us blind while we're asleep***<br>***And telling us that we're free***<br>
->>>>> ##### ***song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <ins>Growing Upward</ins>, 2019***
+>>>>> ##### ***Song lyric "I Don't Want To Get Arrested", Rupa and the April Fishes, album <ins>Growing Upward</ins>, 2019***
 >>>>>> https://youtu.be/FZwToZ0-woE?si=dDB41SPsBVDbW2_m
 
 `4.2pb. 37wop2pb. [Mar29,2026]`
 
->> ## ***Money is for <ins>POURING DOWN RAT HOLES!!!!! </ins>Ask any <ins>monkey shaking their money tree, or coming down from the moon¹.</ins>***
+>> ## ***Money is for <ins>POURING DOWN RAT HOLES!!!!!</ins> Ask any <ins>monkey shaking their money tree, or coming down from the moon¹.</ins>***
 >>>>> ##### ***1. Song lyric: "El Guerrero", Los Enanitos Verdes (NATURAL LAW 6.2)***
 >>>>> https://youtu.be/KNTnazSh28g?si=Lefm-88ag-9sV9HF
 
