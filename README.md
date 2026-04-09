@@ -1306,7 +1306,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 `4.2pb. 37wop2pb. [Mar29,2026]`
 
 >> ## ***Money is for <ins>POURING DOWN RAT HOLES!!!!! </ins>Ask any <ins>monkey shaking their money tree, or coming down from the moon¹.</ins>***
->>>>> ##### ***1. See song lyric: "El Guerrero", Los Enanitos Verdes. 6.2 NATURAL LAW***
+>>>>> ##### ***1. Song lyric: "El Guerrero", Los Enanitos Verdes (NATURAL LAW 6.2)***
+>>>>> https://youtu.be/KNTnazSh28g?si=Lefm-88ag-9sV9HF
 
 `4.2pc. 37wop2pc. [Ap9,2026]`
 
@@ -1397,14 +1398,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ***Las piedras del camino le dieron la clave***<br>
 > ***La muerte no termina con todo***<br>
 > ***Dos cosas distintas***<br>
-> ***Los sueños y el destino final***<br><br>
-
+> ***Los sueños y el destino final***
 >>> #### ***Source: Musixmatch***<br>
->>> #### ***Songwriters: Horacio Gomez Conrado***<br><br>
-
->> ## ***Enanitos Verdes - El Guerrero" on YouTube***<br><br>
-
->> https://youtu.be/KNTnazSh28g?si=Lefm-88ag-9sV9HF
+>>> #### ***Songwriters: Horacio Gomez Conrado***
+>> ## ***Enanitos Verdes - El Guerrero" on YouTube***
+>>> https://youtu.be/KNTnazSh28g?si=Lefm-88ag-9sV9HF
 
 `6.3`
 
