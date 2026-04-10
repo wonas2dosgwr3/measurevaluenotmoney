@@ -1324,17 +1324,25 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ##### ***Index*** [Index](#index)
 
 <a id="#5-markets-in-the-south-id"></a>
->> ## ***5 MARKETS IN THE SOUTH***<br><br>
->>> ## ***Nobody's ever at home.¹***
->>> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
->>>>> ##### ***¹ "Independence." Always at YOUR home. Always trespassing.***<br><br><br>
+>> ## ***5 MARKETS IN THE SOUTH***
 
+`5.1`
+
+> ### ***MARKETS IN THE SOUTH. Part 1.***
 >> ### ***And how go the markets in the South?'***<br><br>
 ## ***'Even in the ordinar' replied Mr. Campbell¹; 'wise folks buy and sell,***<br><br>
 # ***<ins>AND FOOLS ARE BOUGHT AND SOLD.'[!!!!!]</ins>***
 [formatting added]
 >>> ***¹ Rob Roy***<br><br>
-> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***<br><br><br>
+> ***- <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 4***
+
+`5.2`
+
+> ### ***MARKETS IN THE SOUTH. Part 2.***
+>>> ## ***Nobody's ever at home.¹***
+>>> #### ***Homeless dollar headquarters.<br><br>Always out to lunch (up the creek).<br><br>If 23,000 plus people won't mind their own business, <ins>WHO WILL?????</ins>***
+>>>>> ##### ***¹ "Independence." Always at YOUR home. Always TRESPASSING.***<br><br><br>
+
 
 <a id="#6-natural-law-id"></a>
 >> ## ***6 NATURAL LAW***<BR><BR><br>
