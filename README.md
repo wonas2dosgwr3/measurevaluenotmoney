@@ -1455,9 +1455,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 [formatting added]<br>
 >>>>>> ###### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
-`6.8` [Ap10,2026]
+`6.8a` [Ap10,2026]
 
->>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
+>>>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
 ### ***NATURAL LAW. Part 8.***
 > ## ***ABNORMAL PRICES. Part A.***
@@ -1468,7 +1468,6 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 `7`
 
-<a id="#7-counting-the-score-un-natural-law-"-id></a>
 ## ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)***
 
 ### ***Counting the score¹ ... Part 1.***
