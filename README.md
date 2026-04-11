@@ -1460,7 +1460,10 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
 
 ### ***NATURAL LAW. Part 8.***
-> ## ***ABNORMAL PRICES***
+> ## ***ABNORMAL PRICES. Part A.***
+>> ### ***[Approximately.] I've made more money <ins>than I know what to do with</ins> ... you've served your country (Falklands island naval veteran), and you're living on the street ... <ins>this ISN'T RIGHT</ins> ...***
+>>>> #### ***Paul McCartney in London. 2004?***
+>>>> https://youtu.be/3xCIaXfNP6Q?si=r-ULue7tCi_ad4Di
 
 `7`
 
