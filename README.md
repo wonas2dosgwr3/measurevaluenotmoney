@@ -1453,7 +1453,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***NATURAL LAW. Part 7. SAFE HAVEN. No home, no property.***<br><br>
 >>> #### ***"He [Quentin Durward] recovered from his astonishment, to ask his guide where he usually dwelt.***<br>***"Wherever I chance to be for the time," replied the Bohemian. "I have <ins>NO HOME."</ins>***<BR>***"How do you <ins>GUARD YOUR PROPERTY?"</ins>***<BR>***"Excepting the clothes which I wear, and the horse I ride on, I have <ins>NO PROPERTY."</ins> "***<br>
 [formatting added]<br>
->>>>>> ###### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***
+>>>>>> ###### ***<ins>Quentin Durward</ins>, Walter Scott, 1823. Chap XVI. The Vagrant.***<br><br><br>
 
 `6.8` [Ap10,2026]
 
@@ -1462,8 +1462,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***NATURAL LAW. Part 8.***
 > ## ***ABNORMAL PRICES. Part A.***
 >> ### ***[Approximately.] I've made more money <ins>than I know what to do with</ins> ... you've served your country (Falklands island naval veteran), and you're living on the street ... <ins>this ISN'T RIGHT</ins> ...***
->>>> #### ***Paul McCartney in London. 2004?***
->>>> https://youtu.be/3xCIaXfNP6Q?si=r-ULue7tCi_ad4Di
+>>> ## ***- <ins>Paul McCartney</ins>***
+>>>> ### ***in London, Coven Garden, Oct 2003***
+>>>> https://youtu.be/3xCIaXfNP6Q?si=r-ULue7tCi_ad4Di<br><br><br>
 
 `7`
 
