@@ -1461,7 +1461,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 ### ***NATURAL LAW. Part 8.***
 > ## ***ABNORMAL PRICES. Part A.***
->> ### ***[Approximately.] I've made more money <ins>than I know what to do with</ins> ... you've served your country (Falklands island naval veteran), and you're living on the street ... <ins>this ISN'T RIGHT</ins> ...***
+>> ### ***[Approximately.] I've made more money <ins>than I know what to do with</ins> ... you've served your country (Falkland Islands naval veteran living on the street) ... and you've been forgotten ... <ins>this ISN'T RIGHT</ins> ...***
 >>> ## ***- <ins>Paul McCartney</ins>***
 >>>> ### ***in London, Coven Garden, Oct 2003***
 >>>> https://youtu.be/3xCIaXfNP6Q?si=r-ULue7tCi_ad4Di<br><br><br>
@@ -1469,7 +1469,6 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 `7`
 
 <a id="#7-counting-the-score-un-natural-law-"-id></a>
-
 ## ***7 COUNTING THE SCORE (UN-NATURAL LAW ...)***
 
 ### ***Counting the score¹ ... Part 1.***
