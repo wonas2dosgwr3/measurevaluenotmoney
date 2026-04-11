@@ -1458,8 +1458,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 `6.8a` [Ap10,2026]
 
 >>>>>> ##### ***[NATURAL LAW<br>Natural law (signs of life, Fourth of July-mode; INALIENABLE RIGHTS).]***<br><br>
-
-### ***NATURAL LAW. Part 8.***
+> ### ***NATURAL LAW. Part 8.***
 > ## ***ABNORMAL PRICES. Part A.***
 >> ### ***[Approximately.] I've made <ins>MORE MONEY THAN I KNOW WHAT TO DO WITH</ins> ... you've served your country (Falkland Islands naval veteran living on the street) ... and <ins>you've been forgotten ... this ISN'T RIGHT</ins> ...***
 >>> ## ***- <ins>Paul McCartney</ins>***
