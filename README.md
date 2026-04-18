@@ -1314,6 +1314,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ## ***There's not enough gold for pouring down ratholes (ABNORMAL PRICES!!!!!, low value), <ins>ONLY ENOUGH FOR HIGH VALUE!!!!! (CHANGING HANDS!!!!!)</ins>***<br><br>***Low value doesn't sell (doesn't MOVE!!!!!), <ins>CAN'T MOVE GOLD!!!!!</ins>***<br><br>***Call low value (ABNORMAL PRICES!!!!!) MONEY in vain. Mountains of low value (ABNORMAL PRICES!!!!!)-called-money <ins>PILING UP ON GOLD!!!!!, TALLIED BY GOLD!!!!!, ANSWERING TO GOLD!!!!! - ANSWERING TO HIGH VALUE!!!!!, THE MARKETPLACE!!!!!, EXCHANGING THINGS!!!!!, GOOD WILL!!!!!, LEGITIMATE PRICES!!!!! The gold standard lives on, alive and well as ever.</ins>***<br><br>***<ins>SITTING ON THE GOLD STANDARD!!!!!, MY LOW VALUE RELENTLESSLY GETTING MEASURED!!!!!</ins>*** ... ***NEVER ENOUGH GOLD TO SIT ON, FOR A RATHOLE*** ...<br><br>***GOLD DOESN'T GROW ON TREES*** ... <br><br>***Never enough high value to <ins>BE!!!!!</ins> low value ...***<br><br><br>
 
 `4.2q. 37wop2q. [Ap18,2026]`
+
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part Q.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part Q. HARD EARNED money.***<br>
