@@ -1316,8 +1316,15 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 `4.2q. 37wop2q. [Ap18,2026]
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part Q.]***<br><br>
 
-# ***World WITHOUT PRICES-2. Part . HARD EARNED money.***<br>
-> ## ***Not spending your HARD EARNED money on BAD MERCHANDISE is a SHORTAGE OF MONEY.***\***23,000 blindfolded wooden Indians swinging from the money tree and pouring money down ratholes, but not POURING GOLD DOLLARS DOWN RATHOLES, proves there's a SHORTAGE OF GOLD, not that there's A DIFFERENCE BETWEEN WHAT THEY'RE POURING DOWN RATHOLES AND GOLD DOLLARS.
+# ***World WITHOUT PRICES-2. Part Q. HARD EARNED money.***<br>
+> ## ***Not spending your HARD EARNED money on BAD MERCHANDISE is a SHORTAGE OF MONEY. Six people¹ claiming this at Jekyll Island in 1910 got the US government to believe it and legislate it, the 1913 Federal Reserve Act.***
+>>> ### ***1. (1) Senator Nelson Aldrich***
+>>> ***(2) A. Piatt Andrew, Assistant Secretary of the Treasury***
+>>> ***(3) Henry Davison, J. P. Morgan partner***
+>>> ***(4) Arthur Shelton, notable banker***
+>>> ***(5) Frank Vanderlip, notable banker***
+>>> ***(6) Paul Warburg, banking expert***
+> ***23,000 blindfolded wooden Indians swinging from the money tree and pouring money down ratholes, but not POURING GOLD DOLLARS DOWN RATHOLES, proves there's a SHORTAGE OF GOLD, not that there's A DIFFERENCE BETWEEN WHAT THEY'RE POURING DOWN RATHOLES AND GOLD DOLLARS.
 
 
 
