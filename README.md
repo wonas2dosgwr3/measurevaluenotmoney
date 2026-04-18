@@ -1321,7 +1321,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ##### ***1. (1) Senator <ins>Nelson Aldrich</ins>***<br>***(2) <ins>A. Piatt Andrew</ins>, Assistant Secretary of the Treasury***<br>***(3) <ins>Henry Davison</ins>, J. P. Morgan partner***<br>***(4) <ins>Arthur Shelton</ins>, notable banker***<br>***(5) <ins>Frank Vanderlip</ins>, notable banker***<br>***(6) <ins>Paul Warburg</ins>, banking expert***
 > ## ***23,000 blindfolded wooden Indians swinging from the money tree and pouring money down ratholes¹, but not POURING GOLD DOLLARS DOWN RATHOLES, proves there's a SHORTAGE OF GOLD, not that WHAT THEY'RE POURING DOWN RATHOLES IS DIFFERENT THAN GOLD. Two different things called money?????!!!!!***
 >>> ##### ***1. Federal Reserve staff***
-> # ***The US - ANYBODY!!!!! - needs money for pouring down ratholes??????!!!!!<br><br><br>
+> # ***The US - ANYBODY!!!!! - needs money for pouring down ratholes??????!!!!!***<br><br><br>
 
 
 
