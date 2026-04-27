@@ -1332,7 +1332,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part R.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part R. Describing money. What money trail???***<br>
-> ## "***Describing money as <ins>INFLATION AND INTEREST RATES</ins> restores the primitive condition of financial complexity (barter economy), confuses, divides and conquers people, guarantees <ins>SUSTAINED HEAVY FLOW OF MONEY DOWN RATHOLES.</ins>***<br><br>***
+> ## ***Describing money as <ins>INFLATION AND INTEREST RATES</ins> restores the primitive condition of financial complexity (barter economy), confuses, divides and conquers people, guarantees <ins>SUSTAINED HEAVY FLOW OF MONEY DOWN RATHOLES.</ins>***<br><br>***Describing money as <ins>GOLD DOLLARS</ins>, on the other hand, means <ins>THE ONLY OPTION IS IMPROVEMENT (AFFORDABLE HOUSING, HAPPY CUSTOMERS, BETTER MOUSETRAPS).</ins> 23,000 blindfolded wooden Indians swinging from the money tree, pointing their fingers at each other, pouring money down ratholes <ins>COULD NEVER HAPPEN.</ins>***<br><br><br>
 
 
 
