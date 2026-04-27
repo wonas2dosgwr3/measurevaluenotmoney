@@ -1327,6 +1327,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > # ***The US - ANYBODY!!!!! - needs money for pouring down ratholes??????!!!!!***<br><br><br>
 
 
+`4.2r. 37wop2r. [Ap27,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part R.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part R. Describing money. What money trail???***<br>
+> ## "***Describing money as <ins>INFLATION AND INTEREST RATES</ins> restores the primitive condition of financial complexity (barter economy), confuses, divides and conquers people, guarantees <ins>SUSTAINED HEAVY FLOW OF MONEY DOWN RATHOLES.</ins>***<br><br>***
+
+
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
