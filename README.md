@@ -1341,7 +1341,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part S.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part S. Not enough ratholes.***<br>
-> ## ***Without inflation and interest rates and 23,000 wooden Indians <ins>BLOCKING THE VIEW, RATHOLES CAN'T COMPETE</ins> - the only way to get money into ratholes is <ins>BY MISTAKE.</ins>***<br><br>***THE WHOLE WORLD SCRUTINIZING AND BIDDING FOR GOLD DOLLARS (better mousetraps everywhere), <ins>ONLY BY MISTAKE WOULD GOLD DOLLARS GO INTO RATHOLES.</ins>***<br><br>***Even though it's <ins>THE SAME AMOUNT OF MONEY!!!!!¹</ins>, if it won't go in a rathole, it's a <ins>SHORTAGE OF RATHOLES!!!!!</ins>, not a shortage of money.***
+> ## ***Without inflation and interest rates and 23,000 wooden Indians <ins>BLOCKING THE VIEW, RATHOLES CAN'T COMPETE</ins> - the only way to get money into ratholes is <ins>BY MISTAKE.</ins>***<br><br>***THE WHOLE WORLD SCRUTINIZING AND BIDDING FOR GOLD DOLLARS (better mousetraps everywhere), <ins>ONLY BY MISTAKE WOULD GOLD DOLLARS GO INTO RATHOLES.</ins>***<br><br>***Even though it's <ins>THE SAME AMOUNT OF MONEY!!!!!¹</ins>, if it won't go in a rathole, it's a <ins>SHORTAGE OF RATHOLES!!!!!</ins>, not a shortage of money.***<br><br>***Liberating money from inflation and interest rates and 23,000 wooden Indians, liberates it from ratholes as well.***<br><br><br>
 
 
 <a id="#after-world-without-prices_id"></a>
