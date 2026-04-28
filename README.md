@@ -1336,6 +1336,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 
 
+`4.2s. 37wop2s. [Ap28,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part S.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part S. Not enough ratholes.***<br>
+> ## ***Without inflation and interest rates and 23,000 wooden Indians <ins>BLOCKING THE VIEW, RATHOLES CAN'T COMPETE</ins> - the only way to get money into ratholes is <ins>BY MISTAKE.</ins>***<br><br>***THE WHOLE WORLD SCRUTINIZING AND BIDDING FOR GOLD DOLLARS (better mousetraps everywhere), <ins>ONLY BY MISTAKE WOULD GOLD DOLLARS GO INTO RATHOLES.</ins>***<br><br>***Even though it's <ins>THE SAME AMOUNT OF MONEY!!!!!¹</ins>, if it won't go in a rathole, it's a <ins>SHORTAGE OF RATHOLES!!!!!</ins>, not a shortage of money.***
+
+
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 >>> #### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
