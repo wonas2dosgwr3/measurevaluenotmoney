@@ -1347,6 +1347,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>https://www.usatoday.com/story/money/personalfinance/2026/04/28/gold-price-on-april-28-2026/89833547007/ <br><br><br>
 
 
+`4.2t. 37wop2t. [May9,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part T.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part T. Lose your money here.***<br>
+> ## ***LOSE YOUR MONEY HERE.***<br><br>***INTOXICATION is what it's for. Free for the asking for INTOXICATION. Endless amounts more where that came from. NO RATHOLE REFUSED, the bigger the better. Anything that DOESN'T CAUSE COMPETITION.***<br><br><br>
+
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 >>> #### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
