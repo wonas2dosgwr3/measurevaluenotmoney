@@ -1354,6 +1354,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***World WITHOUT PRICES-2. Part T. Lose your money here.***<br>
 > ## ***LOSE YOUR MONEY HERE.***<br><br>***INTOXICATION is what it's for. Free for the asking for INTOXICATION. Endless amounts more where that came from. NO RATHOLE REFUSED, the bigger the better. Anything that DOESN'T CAUSE COMPETITION.***<br><br><br>
 
+`4.2u. 37wop2u. [May15,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part U.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part U. Not enough gold. To tell what it's worth.***<br>
+> ## ***<ins>A BUSHEL of $1 bills</ins> is enough to tell what THEY'RE WORTH?????. But not enough to tell what <ins>GOLD IS WORTH?????¹</ins>***
+>>>> ### ***1. ***
+
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 >>> #### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
