@@ -1352,7 +1352,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part T.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part T. Lose your money here.***<br>
-> ## ***LOSE YOUR MONEY HERE.***<br><br>***INTOXICATION is what it's for. Free for the asking for INTOXICATION. Endless amounts more where that came from. NO RATHOLE REFUSED, the bigger the better. Anything that DOESN'T CAUSE COMPETITION.***<br><br><br>
+> ## ***LOSE YOUR MONEY HERE.***<br><br>***INTOXICATION is what it's for. Free for the asking for INTOXICATION. Endless amounts more where that came from. NO RATHOLE REFUSED, the bigger the better. Anything that DOESN'T CAUSE COMPETITION.***
+>> ### ***"It is not the multitude of ale-houses that gives occasion to drunkenness among the common people;<br><br><br>
 
 `4.2u. 37wop2u. [May15,2026]`
 
