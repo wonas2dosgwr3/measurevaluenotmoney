@@ -1354,8 +1354,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***World WITHOUT PRICES-2. Part T. Lose your money here.***<br>
 > ## ***LOSE YOUR MONEY HERE.***<br><br>***INTOXICATION is what it's for. Free for the asking for INTOXICATION. Endless amounts more where that came from. NO RATHOLE REFUSED, the bigger the better. Anything that DOESN'T CAUSE COMPETITION.***
 >> ### ***"It is not the multitude of ale-houses ... that occasions A GENERAL DISPOSITION TO DRUNKENNESS among the common people; but that disposition arising from other causes necessarily gives employment to a multitude of ale-houses."***<br>[formatting added]<br>
->>>>> #### ***- ?***<br>
->> ### ***Fear COMPETITION?????***<br>
+>>>>> #### ***- ?***<br><br>
+>> ### ***Fear COMPETITION?????***
 >>> #### ***Merchant's "competition might perhaps ruin some of themselves; but to take care of this is the business of the parties concerned, and it may safely be trusted to THEIR DISCRETION."***<br>[formatting added]<br>
 >>>>> ### ***- ?***<br>
 > ## ***<ins>Not enough DISCRETION¹?????</ins>***<br>
