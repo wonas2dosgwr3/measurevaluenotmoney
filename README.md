@@ -1359,8 +1359,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part U.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part U. Not enough gold. To tell what it's worth.***<br>
-> ## ***<ins>A BUSHEL of $1 bills</ins> is enough to tell what THEY'RE WORTH?????. But not enough to tell what <ins>GOLD IS WORTH?????¹</ins>***
->>>> ### ***1. One ounce of gold today May 15, 2026 equals $4,535.15 per ounce.***<br><br>https://www.usatoday.com/story/money/personalfinance/2026/05/15/gold-price-on-may-15-2026/90094459007/
+> ## ***<ins>A BUSHEL¹ of $1 bills is enough</ins> to tell what THEY'RE WORTH?????. But <ins>not enough</ins> to tell what GOLD EQUIVALENT IS WORTH?????***
+>>>> #### ***1. 4,535 dollar bills. One ounce of gold today May 15, 2026 equals $4,535.15.***<br><br>https://www.usatoday.com/story/money/personalfinance/2026/05/15/gold-price-on-may-15-2026/90094459007/
+> ## ***Not enough CHEESEBURGERS????? $1 equals one cheeseburger²?????***<br><br>Not enough FOREVER STAMPS????? Budgets by forever stamps²?????
+>>>> #### ***2. Idea once suggested (NOT by wonas2dosgwr3) in prominent Internet discussion forum.***
+
+
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
