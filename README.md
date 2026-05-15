@@ -1360,7 +1360,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***World WITHOUT PRICES-2. Part U. Not enough gold. To tell what it's worth.***<br>
 > ## ***<ins>A BUSHEL of $1 bills</ins> is enough to tell what THEY'RE WORTH?????. But not enough to tell what <ins>GOLD IS WORTH?????¹</ins>***
->>>> ### ***1. ***
+>>>> ### ***1. One ounce of gold today May 15, 2026 equals $4,535.15 per ounce.***<br><br>https://www.usatoday.com/story/money/personalfinance/2026/05/15/gold-price-on-may-15-2026/90094459007/
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
