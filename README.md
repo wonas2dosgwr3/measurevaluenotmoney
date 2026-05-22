@@ -1376,6 +1376,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 
 
+`4.2v. 37wop2v. [May22,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part V.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part V. Spend WHAT????? Photo IDs instead????? Inmates instead of citizens????? Cell blocks instead of houses?????***
+> ## ***<ins>MORE FOR YOUR MONEY!!!!!</ins> if it's a bushel of paper with strings attached as far as the eye can see in all directions?????!!!!!***<br><br><br>
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 >>> #### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
