@@ -994,9 +994,6 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***- Eso es. (Contando) Diez, veinte ... [That's right. (Counting) Ten, twenty ...]***<br>
  [formatting added]
 >>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***<br><br>
- 
-<br><br><br>
-
 `4.1lb. 37wop1lb`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part L-b.]***
 
