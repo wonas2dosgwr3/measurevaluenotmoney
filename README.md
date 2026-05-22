@@ -835,17 +835,23 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Minding other people's business instead, HUNTING AND GATHERING, only bubbles, only bad merchandise.<br><br>Over-priced is a price nobody pays, NO TRANSACTION!!!, NO PRICE AT ALL!!!<br><br>23,000 plus HUNTERS AND GATHERERS¹ unanimously taking the 5th Amendment, instead of exercizing their inalienable right TO MEASURE VALUE, TO MIND THEIR OWN BUSINESS, <ins>TO CREATE PRICES!!!!!</ins>***
 >>> ### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
+<br><br><br>
+
 `4.1b. 37wop1b`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part B.]***
 
 # ***World WITHOUT PRICES-1. Part B.***<br><br>
 ## ***23,000 plus HUNTERS AND GATHERERS refusing <ins>TO REDUCE THEIR LAND REQUIREMENT by specializing (measuring value)</ins>, instead regarding all <ins>value measurement (LAND REQUIREMENT REDUCTION) BY OTHER PEOPLE!!!!!</ins> as LEGAL PLUNDER FOR LEGAL TENDER (HOMELESS DOLLARS). <ins>Sight of legitimate costs disappears!!!!!, as hunters and gatherers engaged in LEGAL TENDER" SPECULATION DESTROY PRICES!!!!!</ins>, robbing consumers and producers.***
 
+<br><br><br>
+
 `4.1c. 37wop1c`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part C.]***
 
 # ***World WITHOUT PRICES-1. Part C.***<br><br>
 ## ***<ins>Payments (RENT!!!) and poverty-rationing, instead of buying and selling and recycling of bad merchandise.</ins><br><br>Bad merchandise doesn't sell, <ins>the main reason for obstructing commerce and DEMANDING RENT!!! (PAYMENTS!!!; ENLARGING INSTEAD OF REDUCING LAND REQUIREMENT).</ins> As long as buying and selling controls the government, bad merchandise is removed from the marketplace and recycled. But when bad merchandise controls the  government, <ins>currency speculation REPLACES PRICES WITH FINANCIAL COMPLEXITY!!!!! (ANYBODY'S GUESS WHAT THE LEGITIMATE COST OF ANYTHING IS!!!!!)</ins>, good merchandise deserts the marketplace, and government with no resource but bad merchandise (poverty), DISPENCING EVER-BIGGER <ins>JACKPOTS OF POVERTY (BAD MERCHANDISE)</ins> TO THE CURRENCY SPECULATORS, DEMANDING <ins>EVER MORE PAYMENTS (POVERTY!!!), AND RATIONING POVERTY</ins> TO EVERYONE ELSE TO THE BITTER END, goes under, <ins>the biggest bubble bursts.</ins>***
+
+<br><br><br>
 
 `4.1d. 37wop1d`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part D.]***
@@ -859,7 +865,9 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 ## ***Sure doesn't sound like minding MY business!!!!! ... SIGNS OF LIFE!!!!! ... No wonder I couldn't find the money trail, I was looking in the wrong place - <ins>no signs of life, wooden Indians, financial complexity, no prices, BARTER ECONOMY DOESN'T HAVE MONEY, can't have a money trail</ins> ... The money trail is ALWAYS ALIVE AND WELL!!!, but it <ins>starts with ME!!!, MY TWO GUINEAS!!!, goes from me to the wooden Indians, THINK I'LL KEEP MY TWO GUINEAS!!!</ins>***
 
 ¹ Gold Vault
-Learn about the Federal Reserve Bank of New York's gold vault https://www.newyorkfed.org/aboutthefed/goldvault.html<br><br>
+Learn about the Federal Reserve Bank of New York's gold vault https://www.newyorkfed.org/aboutthefed/goldvault.html
+
+<br><br><br>
 
 `4.1e. 37wop1e`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part E.]***
@@ -872,7 +880,9 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ## ***Besides not knowing the value of TWO GUINEAS (TO HIS TWICE LIFE-SAVER DOUGAL!!!!!), the Bailie proposed <ins>DRAINING LOCH LOMOND FOR FARMLAND!!!!!, saying he knew "something o' the different values of land."</ins>²***<br><br>
 # ***Indeed!!! - land value WITHOUT DOUGAL TWICE SAVING HIS LIFE!!!!! - LAND VALUE WITH THE BAILIE DEAD!!!!!***<br><br>***But land value if he's alive includes <ins>THE VALUE OF MONEY TO DOUGAL (OTHER PEOPLE)!!!!!, ALWAYS HIGHER THE LESS LAND COST IS!!!!!</ins>***<br><br>
 ## ***No law you have to measure value, remember having your life saved, even if government recognizes such a thing ... ... natural-born idiot Bailie.***<br><br>
->>>> #### ***¹ Loch Lomond (Wikipedia). https://en.m.wikipedia.org/wiki/Loch_Lomond***<br><br><br>***² <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***<br><br><br>
+>>>> #### ***¹ Loch Lomond (Wikipedia). https://en.m.wikipedia.org/wiki/Loch_Lomond***<br><br><br>***² <ins>Rob Roy</ins>, Sir Walter Scott, 1817. Chap 36***
+
+<br><br><br>
 
 `4.1f. 37wop1f`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part F.]***
@@ -882,6 +892,8 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ## ***Except LAND!!!!!***
 ### ***<ins>Tyrants (bad merchandise) pay WITH THE LAND UNDER THEIR OWN FEET!!!!!</ins> - the glory that was Rome, etc, etc, etc ...***<br><br>***GOOD WILL¹ squares it for everyone else.***<br><br>***NO MAN'S LAND² (NO TRESPASSING) <ins>strictly enforced!!!!!</ins> - the glory that was Rome, etc, etc, etc ...***<br><br>***Goods and services (COMPETITION!!!) in full retreat (world without goods and services!!!, WITHOUT COMPETITION!!!), <ins>NOTHING IN SIGHT BUT LAND (ALL MINE!!!!!)!!!, bad merchandise feels safe</ins> - until THE PLUNDER RUNS OUT, THEN THE LAND UNDERFOOT RUNS OUT!!!!!; <ins>bad merchandise SUBMERGES</ins> IN THE FINANCIAL TARPIT IT REPLACED PRICES WITH, <ins>EVICTED</ins>, THE SAME AS EVERY OTHER BUBBLE!!!!! - the glory that was Rome, etc, etc, etc. <ins>ANOTHER EXTINCT DINASOUR</ins>.***
 >>> #### ***¹ Good will: The LONG-NEGLECTED LEGITIMATE BUSINESS OF THE PETTIFOGGING (US JUDICIAL) BRANCH OF GOVERNMENT. NATURAL LAW. Common sense. Commerce. The marketplace. NO MAN'S LAND.***<br><br>***² No man's land. See 3.00***
+
+<br><br><br>
 
 `4.1g. 37wop1g`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part G.]***
@@ -901,6 +913,8 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 
 >>> #### ***¹ See 2.32. THE HOMELESS DOLLAR. Part 26. Rent with a facelift.***
 
+<br><br><br>
+
 `4.1h. 37wop1h`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part H.]***
 
@@ -909,6 +923,8 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ## ***Homeless dollar DISPENSERS. Can't be a HOME!!!!!***
 ### ***Houses are not for living in, if you can help it.***<br><br>***Living in a homeless dollar dispenser you own, <ins>TURNS IT OFF!!!!!</ins>***<br><br>***MOVING OUT!!!!! - SOMEBODY ELSE!!!!! living in it - <ins>TURNS IT ON!!!!!</ins>***<br><br>***<ins>REVERSING THE AMERICAN DREAM!!!!!¹</ins> HITS THE JACKPOT!!!!! Owning a house <ins>SOMEBODY ELSE!!!!!²</ins> lives in¹, instead of owning YOUR OWN house, PREVENTS IT FROM BEING EITHER <ins>THEIR HOME OR YOURS!!!!!</ins> - the only requirement (no signs of life, installment plan, poverty) for a homeless dollar dispenser to <ins>turn on.</ins>***<br><br>***A "very smart investor" owns FIFTEEN houses - FIFTEEN homeless dollar dispensers!!!!! - FIFTEEN <ins>HOMELESS HOUSES!!!!!³</ins>***<br><br>***Living ON WHEELS⁴ (TRAVELING) instead: Shopping carts to RVs for people who EARN homeless dollars; luxury modes (liners, etc) for those who DON'T - CURRENCY SPECULATORS ... till the plunder runs out.***
 >>> #### ***¹ Returning barbarism.***<br><br>***² You lose, I win!!!!!***<br><br>***³ wonas2dosgwr3 firsthand report.***<br><br>***⁴ <ins>One-quarter of US population</ins> living on wheels? - wonas2dosgwr3 guestimate. One dissenter, career 18-wheeler driver Paul, said MORE, he'd guess.***
+
+<br><br><br>
 
 `4.1i. 37wop1i`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part I.]***
@@ -928,6 +944,8 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >>>> #### ***¹ Except groceries, and thrift stores.***<br><br>
 >>>> #### ***² By Clayton Mcmichen***
 
+<br><br><br>
+
 `4.1j. 37wop1j`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part J.]***
 
@@ -942,6 +960,8 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 >> ### ***Going through an affluent neighborhood, near TWO DECADES ago², enough stuff - a la windows, doors, appliances, all manner of supplies, lumber, etc, etc, etc - by the street with "FREE" signs, to build - <ins>HOW MANY????? tiny homes - 4????? - 10????? - !!!!!?????!!!!!</ins>***<br><br>
 >>>> #### ***² Wonas2dosgwr3 information.***
 
+<br><br><br>
+
 `4.1k. 37wop1k`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part K.]***
 
@@ -950,6 +970,8 @@ Learn about the Federal Reserve Bank of New York's gold vault https://www.newyor
 ### ***As long as competition <ins>GOING DOWN!!!!! is called</ins> "everything's <ins>GOING UP"!!!!!</ins>, bad merchandise is safe (from everything except natural law, inalienable rights). The <ins>BUBBLE'S!!!!! going up!!!!!</ins> <br><br>Paycheck blight - EVERGREEN TO DECIDUOUS!!!!!¹ - paychecks <ins>no longer include housing cost</ins> - homeless greenbacks (homeless dollars) <ins>turn brown all year around.²</ins>***<br><br>
 >> #### ***¹ Non-seasonal, ALL YEAR AROUND!!!!!<br><br>² Definitive discussion by The Silhouettes:***
 https://youtu.be/R97L-nkgrxo?feature=shared
+
+<br><br><br>
 
 `4.1la. 37wop1la`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part L-a.]***
@@ -973,6 +995,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
  [formatting added]
 >>>> ##### ***- <ins>Spoken Spanish For Students And Travelers</ins>, Revised Ed., Charles E. Kany, 1961. "EN EL BANCO", pp 98-9.***<br><br>
  
+<br><br><br>
 
 `4.1lb. 37wop1lb`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part L-b.]***
@@ -983,6 +1006,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
+<br><br><br>
+
 `4.1m. 37wop1m`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part M.]***
 
@@ -992,6 +1017,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Neglecting <ins>LAND USE!!!!! (THE LAND UNDER YOUR OWN FEET!!!!!)</ins>, crossing paths MORE.***<br><br>***Can't be <ins>a better mouse trap (specialization)</ins> if it's NEGLECTING LAND USE, crossing paths MORE.***<br><br>***Without <ins>LAND USE!!!!! (SPECIALIZATION!!!!!)</ins>, there can only be crossing paths, hunting and gathering, resource waste, BUBBLES.***<br><br>***The RICHEST PERSON has an iota more right to LAND***
 # ***<ins>USE!!!!!</ins>***
 ### ***than anyone else, would <ins>WANT</ins> an iota more, could <ins>LEGITIMATELY BE!!!!!</ins> the richest with an iota more, would be <ins>CROSSING PATHS MORE?????</ins>***
+
+<br><br><br>
 
 `4.1n. 37wop1n`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part N.]***
@@ -1005,12 +1032,16 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### ***" "Homeless" tells the story of a woman and her children living on the streets. Hillman told <ins>The Tennessean</ins> in 1988: "I saw a woman who had the look in her, not of a drug addict or a mental patient, but just of a person. Steve Hill and I concocted a scenario based on that."[5]"***<br>
 >>>> ##### ***- Goldsmith, Thomas (October 8, 1988). "'Troubles and trials in three-part harmony'". <ins>The Tennessean</ins>. [From Wikipedia. "Running (The Desert Rose Band album)"]<br>https://en.m.wikipedia.org/wiki/Running_(The_Desert_Rose_Band_album)***
 
+<br><br><br>
+
 `4.1o. 37wop1o`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part O.]***
 
 # ***World WITHOUT PRICES-1. Part 0.***<br><br>
 ## ***The REVERSE OF PROSPERITY (shortage of <ins>SHORTAGES!!!!!</ins>).***
 ### ***Shortages of <ins>EVERYTHING (GOODS AND SERVICES)!!!!!</ins>,  and <ins>superabundance</ins> (butterfly nets full of "money" from showering confetti clouds, "money" growing on trees, etc) <ins> of "MONEY"!!!!!</ins>.***<br><br>***Instead of PROSPERITY, abundance of <ins>everything EXCEPT</ins> -  MANDITORY SHORTAGE OF MONEY!!!!!***
+
+<br><br><br>
 
 `4.1p. 37wop1p`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part P.]***
@@ -1021,6 +1052,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***The high cost of nothing: Mountains out of molehills. Shortages. Unaffordability.***<br><br>***Superstition to the rescue. Nothing disguised as something.***<br><br>***Resale-powered prices. Your move.<br>Resale for sale. Your move.<br>Resale (nothing) for sale. Your move.<br>How high can the price of nothing (resale) go? Your move.<br>Cash in before it's too late. Your move.***<br><br>***Homeless prices. Your move.<br>Much ado about nothing. Your move.***<br><br>***Nothing left. Your move.<br><br> Nothing left? Your move.<br><br>It's all gone??? ... Your move.<br><br>You're sure it's all gone??? ...<br><br>... Your ...***
 ## ***Much ado about nothing.<br>Nothing left.***
 
+<br><br><br>
 
 `4.1q. 37wop1q`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part Q.]***
@@ -1033,6 +1065,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> #### [formatting added]
 >>>> ##### ***_ <ins>A First Spanish Reader</ins>, Erwin W. Roessler and Alfred Remy, High  School of Commerce, New York, N.Y., <ins>1916</ins>. "39. Los Cuatro hermanos."*** 
 
+<br><br><br>
 
 `4.1R. 37wop1R`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part R.]***
@@ -1043,6 +1076,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Whoppers come true. Resource waste galore. Investing in whoppers.<br><br>Fighting whoppers with whoppers.<br><br>Heard a rumor. A big country that's mostly cold-winter climate. The country was invented in a cold-winter climate. Two-and-a half centuries ago. Same country that invented the light bulb and the telephone. This country <ins>last FOUR DECADES AT LEAST!!!!!</ins>, has had a huge housing (invented long before the country) problem, <ins>at least FOUR DECADES OF HOMELESS PEOPLE BEING A LARGE ISSUE!!!!!</ins>***<br><br>
 # ***Now I'll tell one.***
 
+<br><br><br>
 
 `4.1s. 37wop1s`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part S.]***
@@ -1052,7 +1086,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Dollars without borders (without goods and services).***
 ### ***Buying PRICES, not goods and services. PRICES for sale.***<br><br>***A PRICE, not a house.***<br><br>***One house for the LEGITIMATE PRICE - of fifteen houses!!!!!***<br><br>***CAN'T!!!!! be a house.***<br><br>***Besides, nobody LIVES!!!!! in them. Rent them out, THAT'S!!!!! when your ship comes in, not when you own them. The normal occupants of FIFTEEN!!!!! houses - tenants in ONE!!!!! house?????!!!!!<br>Who wants to live in a <ins>sardine can?????</ins>***<br><br>***CAN'T BE A HOUSE.***<br><br>***Full time job forever, for nothing but a - PRICE????? For - NOTHING?????!!!!! And a 100 mile commute. Pretty much livin' ON WHEELS already, come to think of it.***<br><br>***This is insane. Land under EVERYBODY'S feet. LAND!!!!! Who's to <ins>take it away?????</ins>***
 
-
+<br><br><br>
 
 `4.1t. 37wop1t`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part T.]***
@@ -1062,8 +1096,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Trapped in win-lose land. Where the Fourth of July never shines. Divided and conquered. The end is near.***
 ### ***Surrounded by <ins>MONEY AND SHORTAGES.</ins> Money everywhere except where it's supposed to be. The flood of money and the shortages are closing in.***<br><br>***Never think about the inch or the ounce, but <ins>MONEY'S DIFFERENT - AVALANCHE just keeps comin'.</ins>***<br><br>***Worst of all, EVEN THE EXPERTS CAN'T AGREE!!!!! Thousands of government money experts, but <ins>SURE AS THE SUN COMES UP!!!!!, no two would be caught dead reaching AGREEMENT (COMMERCE, A TRANSACTION!!!!!)</ins> - might be mistaken for <ins>money USERS!!!!!</ins><br>The whole song and dance would come down, 23,000 plus money experts unemployed, FORCED to become nothing else but <ins>money USERS.</ins><br><ins>BETTER DISAGREERS THAN MONEY USERS.</ins>***<br><br>***The expert-powered <ins>AVALANCHE AND SHORTAGES</ins> are closing in. Insurmountable problems as far as the eye can see in all directions. The end is near. Where's the white flag?????***
 
-
-
+<br><br><br>
 
 `4.1u. 37wop1u`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part U.]***
@@ -1073,7 +1106,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Land use without money use. We're hiring.***
 ### ***23,000 plus experts, and still - NO TWO WOULD BE CAUGHT DEAD AGREEING ON <ins>THE LENGTH OF THE INCH OR THE WEIGHT OF THE OUNCE?????!!!!!</ins>***<br><br>***23,000 plus experts who CAN'T AGREE!!!!! what a standard of measurement is <ins>CAN'T POSSIBLY!!!!! want to make such a measurement. CAN'T POSSIBLY!!!!! have ever looked up the word "MONEY" in the dictionary</ins>, can only be for STOPPING!!!!! money use, STOPPING!!!!! commerce, STOPPING!!!!! the safe havens (HOMES!!!!!) commerce requires, <ins>FOR USING (OWNING!!!!!) ALL THE LAND IN SIGHT!!!!!</ins>***
 
-
+<br><br><br>
 
 `4.1V. 37wop1V`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part V.]***
@@ -1086,6 +1119,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> ##### ***- Nanty Ewart, in <ins>Redgauntlet</ins>, Walter Scott, 1824. Chap 20***
 ### ***I can afford houses with the proceeds of <ins>sardine cans full of TENANTS.</ins>***
 
+<br><br><br>
 
 `4.1W. 37wop1W`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part W.]***
@@ -1095,6 +1129,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***Without WHAT????? Without ME?????!!!!!***
 ### ***My house (castle!!!!!) is worth FAR MORE  <ins>WITHOUT ME?????</ins>***<br><br>***Every house is worth far more <ins>WITHOUT ITS OWNER!!!!!?????</ins>***<br><br>***To a <ins>NEW!!!!!</ins> owner????? To <ins>BUYERS ONLY!!!!!?????, NOT TO SELLERS!!!!!????? Not to ME!!!!!?????</ins>***<br><br>***To <ins>TRAVELING SALESMEN BUYING</ins> houses?????<br>"Just driving by, noticed you were out in the yard, no, I don't want directions, just wondered if you'd <ins>sell your house?</ins>"***<br><br>***<ins>SELLERS PAY!!!!! (NO HOME)</ins> - for <ins>WHAT?????</ins> Buyers do <ins>WHAT?????</ins>***<br><br>***How come far higher value CAN'T MAKE THEIR OWN HOMES!!!!!?????, <ins>ONLY WANT MINE!!!!!?????</ins><br>Life, liberty, and the pursuit of <ins>OTHER PEOPLE'S</ins> houses?????***<br><br>***Open season on <ins>HOMES</ins> (houses and house sellers).***<br><br>***SARDINE CANS FULL OF TENANTS, DECADES OF HOMELESS PEOPLE. FORECLOSURES. BUBBLES.***<br><br>***In Fourth of July-land <ins>houses are more important than people?????</ins>***
 
+<br><br><br>
 
 `4.1X. 37wop1X`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part X.]***
@@ -1104,6 +1139,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***The more people hired to mind <ins>other people's</ins>  business¹, the more obvious the waste becomes. 23,000 people minding <ins>THEIR OWN</ins> business would be a <ins>tremendous source of wealth creation</ins>, as close as measuring value.***<br><br>***Poverty stricken instead, slaves to <ins>inefficiency and inequality</ins>, clamoring for independence from <ins>THE BLAME AND THE INSANITY</ins> of it, high time to restore humanity (natural law, common sense), <ins>move up to a money economy, and STOP THE WASTE!!!!!</ins>***<br><br>***Dollars <ins>backed by WASTE!!!!!?????</ins>***<br><br>***Never think about THE INCH OR THE OUNCE with waste, but sure think about MONEY WITH WASTE!!!!! - <ins>when money is "EVERYTHING"!!!!!</ins>***<br><br>
 >> #### ***¹ <ins>Reuters,</ins> "Fed is cutting staff after more than a decade of payroll growth" By Howard Schneider, September 22, 2023 3:13 AM PDTUpdated 5 months ago"***
 
+<br><br><br>
 
 `4.1Y. 37wop1Y`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part Y.]***
@@ -1116,7 +1152,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>[formatting added]
 >>>> ##### ***Hero explaining himself to a bad guy. <ins>The High Graders</ins>, Louis L'Amour, 1965. Chap 6.***
 
-
+<br><br><br>
 
 `4.1Z. 37wop1Z`
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part Z.]***
@@ -1124,7 +1160,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***World WITHOUT PRICES-1. Part Z.***<br><br>
 ## ***Sub-zero instead. Global cooling in the <ins>OWE!!!!!-zone</ins> layer since before World War I. IOU - money??? Because you <ins>won't earn your own???</ins>***<br>
-### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***<br><br><br>
+### ***IOU NOT INTERFERING WITH OTHER PEOPLE (with what you've <ins>already got</ins>, with what <ins>money can't buy</ins>) - INALIENABLE RIGHTS; LAND USE (everyone has land under their feet, the only issue is how much); a SAFE HAVEN (CAN'T <ins>DO BUSINESS WITH YOU!!!!!, benefit the most from you!!!!!</ins> if you don't, AM LEFT <ins>GETTING RENT, GETTING LESS!!!!!, GETTING POOR!!!!!</ins> instead).***<br><br>***IOU <ins>ACCESS!!!!! to money, (the right to EARN!!!!! money)</ins>. But NOT MONEY.***<br><br>***IOU money, <ins>so I can BORROW it from you?????</ins> So you can INTERFERE with me?????***<br><br>***Getting LESS!!!!! Getting POOR!!!!! Global INTERFERENCE WITH OTHER PEOPLE!!!!! in the <ins>owe-zone</ins> layer.***<br><br>***The OH! NO!-zone layer????? Not <ins>MORE!!!!! interference?????</ins> Will it NEVER end!!!!!?????***
+
+<br><br><br>
 
 `4.2`
 
@@ -1144,6 +1182,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> # ***<ins>Mark Twain's "first great success, the celebrated story</ins>, THE NOTORIOUS JUMPING FROG OF CALAVERAS COUNTY".***<br>
 >> ### ***<ins>The Complete Short Stories of Mark Twain</ins>, Charles Neider, Ed., 1957, p1-6 and frontispiece.***
 
+<br><br><br>
+
 `4.2b. 37wop2b`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part B.]***
@@ -1151,6 +1191,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***World WITHOUT PRICES-2. Part B.***<br><br>
 ## ***<ins>HOUSETRAPS</ins> instead of mousetraps.***
 ### ***Homeless dollars instead of HOMES.***<br><br>***No improvement for homeless dollars but <ins>NO HOMES.</ins>***<br><br>***Traveling salesmen <ins>SELLING HOMELESS DOLLARS!!!!!</ins> can't wait to IMPROVE YOUR HOME BY <INS>MOVING YOU OUT!!!!!, IMPROVE YOU BY YOU HAVING NO HOME!!!!!</INS>***<br><br>***Once you're living in a <INS>HOUSETRAP, NO HOME, UNAFFORDABLE!!!!!</INS>, homeless dollars are safe.***<br><br>***<INS>TRAPPED IN A HOUSETRAP.</INS> NO HOME, UNAFFORDABLE, THE OWE-ZONE LAYER - HOMELESS DOLLARS ARE SAFE.***
+
+<br><br><br>
 
 `4.2c. 37wop2c`
 
@@ -1160,6 +1202,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Without home improvement, it's your BALL AND CHAIN, not your home. It's Jim Smiley's, and sporting with him is all there is.***<br><br>***Without Jim Smiley,***
 # ***<ins>THE MONEY THAT WENT INTO HOUSE PRICES (Jim Smiley's pocket) WENT INTO HOME IMPROVEMENT (YOUR!!!!! POCKET - YOU!!!!!). Went into PEOPLE, NOT LAND (JIM SMILEY).</INS>***
 
+<br><br><br>
+
 `4.2d. 37wop2d`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part D.]***
@@ -1168,6 +1212,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***<ins>Needless solutions to needless problems.</ins> Demagogue-powered.***<br>
 ### ***Unlike a money economy (EQUALITY-powered, HOME IMPROVEMENT-powered), inequality <ins>turns HOUSES LOOSE</ins>, destroys homes.***<br><br>***"My house is SLOWLY ESCAPING, I <ins>could afford it when I bought it, but NOT NOW</ins>.¹ ... I'm the owner??? ... Thin ice is the owner??? ... All this HOUSING CRISIS??? ... Sure would feel better if I <ins>could afford this house NOW</ins>. ... ... <ins>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***"Whose HOME IMPROVEMENT <ins>turns MY HOME!!!!! LOOSE?????</INS> ... ... <INS>Somebody's MORE EQUAL!!!!! than me."</ins>***<br><br>***INEQUALITY is INTERFERENCE WITH OTHER PEOPLE. <ins>Needless solutions to needless problems.</ins> Demagogues.***<br><br>***A money economy (EQUALITY) <ins>turns PEOPLE!!!!! LOOSE (FREEDOM!!!!!)</ins>, not their homes.***
 >> #### ***¹ USA homeowner.***
+
+<br><br><br>
 
 `4.2e. 37wop2e`
 
@@ -1189,6 +1235,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> #### [formatting added]<br>
 >>>> #### ***From poem "¡Quién sabe!" by Peruvian poet José Santos Chocano (1875-1934), 1906, in <ins>Alma América</ins>. In <ins>Los Otros Americanos</ins>, N. L. Weisinger and M. C. Johnston, 1934. Pp 103-4 and 195***
 
+<br><br><br>
+
 `4.2f. 37wop2f`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part F.]***
@@ -1198,6 +1246,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ### ***Eighty percent of houses converted to <ins>GOLD MINES!!!!! (RENTAL properties)</ins>. Traveling salesmen <ins>unloading U-Hauls full of money with pitchforks</ins> in exchange for houses. Brink's trucks delivering <ins>handfuls of money</ins> to high danger zones where working people might be encountered. Working people only wanting to buy a HOME, <ins>can't afford a GOLD MINE.</ins>***<br><br>***Starting with EQUALITY, hardly anybody thinks about money, goods and services are so abundant. As Jim Smiley¹ gains influence, goods and services begin to SHY AWAY, money BEGINS TO BE THOUGHT OF. Ongoing, <ins>goods and services retreat as money advances</ins>, shortages, unaffordability. Jim Smiley's pets (demagogues) rush to the rescue, needless solutions to needless problems, promising everyone a GOLD MINE, <ins>INTERFERING WITH EQUALITY!!!!! (with PRICES!!!!!, with OTHER PEOPLE!!!!!, with STANDARDS OF MEASUREMENT!!!!!)</ins> any way they can, <ins>INCREASING MONEY. WHEN MONEY'S VALUE HITS ZERO!!!!!</ins>, THE MIDAS TOUCH FULLY IMPLEMENTED, GOODS AND SERVICES HAVE VANISHED, THERE'S NOTHING FOR MONEY TO BUY, NOTHING BUT MONEY, MONEY IS "EVERYTHING", <ins>the expiration date of the nation has arrived.</ins>***<br><br>***SPOILS ALWAYS!!!!! has an expiration date. Ask any vanished civilization.***
 >> ##### ***¹ See 3.14-2. 37wop2a***<br>***World WITHOUT PRICES-2. Part A. ... <ins>Jim Smiley-powered.</ins> Nothing new. Ask Mark Twain. ...***
 
+<br><br><br>
+
 `4.2g. 37wop2g [Feb1,2025]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part G.]***
@@ -1206,6 +1256,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 ## ***NOT ENOUGH. Could have spent the money on <ins>BETTER THINGS.</ins> Too late now. The money packed up and left. Malibu.***
 ### ***A house was NOT ENOUGH. Commerce was NOT ENOUGH. Equality was NOT ENOUGH.<BR><BR>Couldn't have just my house, <ins>instead had to have YOUR HOUSE, AND YOURS, AND YOURS, AND YOURS. Instead had to have a house price ONLY I CAN AFFORD!!!!! Instead had to have the house YOU LIVE IN, and the houses NO ONE LIVES IN, because ONLY I CAN AFFORD!!!!! the house price.</ins><br><br>ABNORMALITY!!!!! SPOILS!!!!! GREED!!!!!<BR><BR>Could have spent the money on a lot of <ins>BETTER THINGS.</ins> Too late now. My house and the money are gone. No change in the amount of money in the world, only the amount in MY HANDS. Never did belong in my hands. Money is for <ins>BETTER THINGS</ins>, I couldn't be bothered.<br><br>Homeless dollars <ins>lookin' for a home?</ins> Even homeless dollars know - <ins>somethin' ain't right?</ins> Even homeless dollars are <ins>RESOURCE-WASTE DETECTORS?</ins> Know when <ins>it's time to leave?</ins><BR><BR><ins>MONEY BELONGS TO THE WORLD, FOR BETTER THINGS. BETTER-THINGS POWERED.</ins>***
 
+<br><br><br>
 
 `4.2h. 37wop2h [Mar.10,2025]`
 
@@ -1217,6 +1268,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>[formatting added]
 >> #### ***Washington Irving, "The Great Mississippi Bubble", in his 1825 book of essays <ins>The Crayon Papers</ins>.***
 
+<br><br><br>
+
 `4.2i. 37wop2i [May 28, 2025]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part I.]***
@@ -1227,13 +1280,17 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> [formatting added]
 >>> #### ***<ins>Guns Of The Timberlands</ins>, Louis L'Amour, 1955. Chap 6.***
 
+<br><br><br>
+
 `4.2j. 37wop2j [Aug22,2025]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part J.]***
  
 # ***World WITHOUT PRICES-2. Part J.***<br><br>
 ## ***Raising money by other people <ins>LOSING</ins> it, not <ins>SPENDING</ins> it.***<br><br>
-> ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***<br><br>
+> ### ***Government 24/7 dreaming up new ways for people to <INS>LOSE</INS> their money.***<br><br>***Citizens <ins>LOSING,</INS> not <INS>SPENDING,</INS> their money, the time-honored system of vanished civilizations.***<br><br>***Raising <INS>NOTHING.</INS>***
+
+<br><br><br>
 
 `4.2k. 37wop2k     [Aug29,31,Sept4,23,Oct3,2025]`
 
@@ -1254,16 +1311,18 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >> ### ***Life support for <ins>LOW VALUE and a BARTER ECONOMY.</ins>***<br><br>***LOW VALUE is paranoid of <ins>VALUE (money).</ins>***<br><br>
 [Aug29,2025]
 >> ## ***"Medium of exchange." Avoids suggesting MEASURING ANYTHING!!!!!, all around much better than either MEASURING <ins>VALUE!!!!!</ins> (EVERYONE!!!!! very well understands, anathema to <ins>LOW!!!!!</ins> VALUE), or "MEASURING" MONEY (<ins>VERY DEEP!!!!!</ins> subject, no one but money measurers understands, no two money measurers agree on).***<br><br>
->>> ### ***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***<br><br>
+>>> ### ***Forget <ins>NOT EXCHANGING!!!!!</ins> (main thing that happens, nobody buys everything in the store).***<BR><BR>***Forget happy customers <ins>SPENDING!!!!!</ins> their money on better mousetraps.***<br><br>***Intoxicated customers <ins>LOSING!!!!!</ins> their money on <ins>RESOURCE WASTE</ins> is all <ins>LOW VALUE</ins> needs.***<br><br>***"Medium of exchange": <ins>ENTITLEMENT for LOW VALUE.</ins>***
 
+<br><br><br>
 
 `4.2l. 37wop2l [Sept15,2025]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part L.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part L. Moving up??? SCAVENGING <ins>LOST money,</ins> need <ins>ALL THE LAND IN SIGHT!!!!!</ins> Instead of acorns and berries????? - need <INS>ALL THE LAND IN SIGHT?????</INS> Moving up?????!!!!!***
-## ***<INS>EARNING SPENT</ins> money, needing SAFE HAVENS (LIMITED LAND, HOMES), is obsolete.***<br><br><br>
+## ***<INS>EARNING SPENT</ins> money, needing SAFE HAVENS (LIMITED LAND, HOMES), is obsolete.***
 
+<br><br><br>
 
 `4.2m.  37wop2m [Jan23,26,2026]`
 
@@ -1273,21 +1332,27 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>> ## ***1. The standard of living.***<br><br><br>
 >> ## ***Shortages discussed endlessly (laundered) as "inflation." Money-measurers intent on suggesting <ins>their ship is not sinking, that they are in charge, that there is such a thing as EARNING IT-FREE money creation.</ins>***<br><br>***WHY BOTHER?????!!!!!***<br><br>***<ins>DEFAULT PAYMENT OF MERCENARIES BY PLUNDER.¹</ins>***<br>
 >>>> ### ***1. Timeless European (barbarian, aristocrat) financial system.***<br><br>
->>> ### ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! <ins>Plundered painlessly?????</ins> U-Hauls full of - <ins>what???</ins> Money - <ins>not earned???</ins> "Money"??? Money's - <ins>VALUE?????!!!!!</ins> That U-Haul full of money I just gave away my sunny California house for, will make a down payment on <ins>a luxury igloo at the North Pole????? My house is gone?????</ins> Can't afford what I used to be able to afford????? I'm <ins>RICH?????</ins> I'm  on the waiting list for central heating for my igloo????? <INS>Three igloos have MELTED?????!!!!!</ins>***<br><br><br>
+>>> ### ***U-Hauls full of money, unloading with pitchforks. It's all yours in exchange for YOUR HOUSE. Five minutes after CREATING MONEY BY UNLOADING ("buying" your house), THE MERCENARY (U-Haul driver, traveling salesman) SELLS OUT TO THE NEXT MERCENARY IN LINE, who always has more money to create by unloading.<br><br>WHY BOTHER?????!!!!! <ins>Plundered painlessly?????</ins> U-Hauls full of - <ins>what???</ins> Money - <ins>not earned???</ins> "Money"??? Money's - <ins>VALUE?????!!!!!</ins> That U-Haul full of money I just gave away my sunny California house for, will make a down payment on <ins>a luxury igloo at the North Pole????? My house is gone?????</ins> Can't afford what I used to be able to afford????? I'm <ins>RICH?????</ins> I'm  on the waiting list for central heating for my igloo????? <INS>Three igloos have MELTED?????!!!!!</ins>***
+
+<br><br><br>
 
 `4.2n. 37wop2n. [Feb5,2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part N.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part N. A bushel of money for a bushel of tomatoes. Efficient VALUE STORAGE????? Efficient VALUE MEASUREMENT?????***
-> ## ***Shortages of everything <ins>except money. HIGH VALUE (HUMAN LABOR!!!!!) is being STORED WHERE?????</INS>***<br><br>***LESS EFFICIENT!!!!! storage of <ins>high value (human labor!!!!!)</ins> - less <ins>value stored</ins> per storage unit - is LOW VALUE STORAGE!!!!!***<BR><BR>***Is <ins>changing the AMOUNT of storage?????</ins>***<br><br>***Less efficient value storage, LOW VALUE STORAGE (MONEY?????), AND RESOURCE WASTE!!!!! - as far as the eye can see in all directions. Everyone <ins>living in a gold mine, at least a part-time gold miner.</ins>***<br><br>***Money everywhere, MONEY IS EVERYTHING!!!!!, LOW VALUE (RESOURCE WASTE)!!!!! STORAGE, low value (resource waste)!!!!! EVERYWHERE.***<br><br>***Nothing but money. No value to store. Nothing to buy. Midas rules.***<br><br><br>
+> ## ***Shortages of everything <ins>except money. HIGH VALUE (HUMAN LABOR!!!!!) is being STORED WHERE?????</INS>***<br><br>***LESS EFFICIENT!!!!! storage of <ins>high value (human labor!!!!!)</ins> - less <ins>value stored</ins> per storage unit - is LOW VALUE STORAGE!!!!!***<BR><BR>***Is <ins>changing the AMOUNT of storage?????</ins>***<br><br>***Less efficient value storage, LOW VALUE STORAGE (MONEY?????), AND RESOURCE WASTE!!!!! - as far as the eye can see in all directions. Everyone <ins>living in a gold mine, at least a part-time gold miner.</ins>***<br><br>***Money everywhere, MONEY IS EVERYTHING!!!!!, LOW VALUE (RESOURCE WASTE)!!!!! STORAGE, low value (resource waste)!!!!! EVERYWHERE.***<br><br>***Nothing but money. No value to store. Nothing to buy. Midas rules.***
+
+<br><br><br>
 
 `4.2o. 37wop2o. [Feb20,2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part O.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part O. Inflation of length and weight measurements.***
-> ## ***"All I want is a plain old 80 foot 20 X 40. They're not being delivered??? Used to be  <ins>EVERYWHERE,</ins> when they were called 8 foot 2 X 4s."***<br><br>***"All I want is a plain old 10 pound fish. They're not being delivered??? Used to be <ins>EVERYWHERE</ins>, when they were called 1 pound fish."***<br><br>***"MORE feet and inches and pounds, makes <ins>LESS lumber and fish, and - MORE TAPE MEASURES!!!!!?????"</ins>***<br><br>***Non-competitive lumber, fish, and tape-measure companies LOBBIED CONGRESS. Shortage of FEET AND POUNDS was killing them. If a <ins>given amount</ins> of their bad merchandise could be CALLED A BIGGER AMOUNT!!!!! ... <ins>RESTRICTIONS!!!!!, ON HOW MUCH!!!!! a foot or a pound was, were bad ‐ "FLOATING" (UNKNOWN!!!!!) amounts would be better.</ins>***<br><br>***World <ins>without length and weight measurements.</ins> World WITHOUT LUMBER AND FISH!!!!! - WHO NEEDS TAPE MEASURES!!!!!***<BR><BR>***Can't tell WHAT WE'RE SELLING????? - <ins>WE'RE NOT!!!!!</ins>***<BR><BR>
+> ## ***"All I want is a plain old 80 foot 20 X 40. They're not being delivered??? Used to be  <ins>EVERYWHERE,</ins> when they were called 8 foot 2 X 4s."***<br><br>***"All I want is a plain old 10 pound fish. They're not being delivered??? Used to be <ins>EVERYWHERE</ins>, when they were called 1 pound fish."***<br><br>***"MORE feet and inches and pounds, makes <ins>LESS lumber and fish, and - MORE TAPE MEASURES!!!!!?????"</ins>***<br><br>***Non-competitive lumber, fish, and tape-measure companies LOBBIED CONGRESS. Shortage of FEET AND POUNDS was killing them. If a <ins>given amount</ins> of their bad merchandise could be CALLED A BIGGER AMOUNT!!!!! ... <ins>RESTRICTIONS!!!!!, ON HOW MUCH!!!!! a foot or a pound was, were bad ‐ "FLOATING" (UNKNOWN!!!!!) amounts would be better.</ins>***<br><br>***World <ins>without length and weight measurements.</ins> World WITHOUT LUMBER AND FISH!!!!! - WHO NEEDS TAPE MEASURES!!!!!***<BR><BR>***Can't tell WHAT WE'RE SELLING????? - <ins>WE'RE NOT!!!!!</ins>***
+
+<br><br><br>
 
 `4.2p. 37wop2p. [Mar27,29,Ap9,2026]`
 
@@ -1311,7 +1376,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 `4.2pc. 37wop2pc. [Ap9,2026]`
 
->> ## ***There's not enough gold for pouring down ratholes (ABNORMAL PRICES!!!!!, low value), <ins>ONLY ENOUGH FOR HIGH VALUE!!!!! (CHANGING HANDS!!!!!)</ins>***<br><br>***Low value doesn't sell (doesn't MOVE!!!!!), <ins>CAN'T MOVE GOLD!!!!!</ins>***<br><br>***Call low value (ABNORMAL PRICES!!!!!) MONEY in vain. Mountains of low value (ABNORMAL PRICES!!!!!)-called-money <ins>PILING UP ON GOLD!!!!!, TALLIED BY GOLD!!!!!, ANSWERING TO GOLD!!!!! - ANSWERING TO HIGH VALUE!!!!!, THE MARKETPLACE!!!!!, EXCHANGING THINGS!!!!!, GOOD WILL!!!!!, LEGITIMATE PRICES!!!!! The gold standard lives on, alive and well as ever.</ins>***<br><br>***<ins>SITTING ON THE GOLD STANDARD!!!!!, MY LOW VALUE RELENTLESSLY GETTING MEASURED!!!!!</ins>*** ... ***NEVER ENOUGH GOLD TO SIT ON, FOR A RATHOLE*** ...<br><br>***GOLD DOESN'T GROW ON TREES*** ... <br><br>***Never enough high value to <ins>BE!!!!!</ins> low value ...***<br><br><br>
+>> ## ***There's not enough gold for pouring down ratholes (ABNORMAL PRICES!!!!!, low value), <ins>ONLY ENOUGH FOR HIGH VALUE!!!!! (CHANGING HANDS!!!!!)</ins>***<br><br>***Low value doesn't sell (doesn't MOVE!!!!!), <ins>CAN'T MOVE GOLD!!!!!</ins>***<br><br>***Call low value (ABNORMAL PRICES!!!!!) MONEY in vain. Mountains of low value (ABNORMAL PRICES!!!!!)-called-money <ins>PILING UP ON GOLD!!!!!, TALLIED BY GOLD!!!!!, ANSWERING TO GOLD!!!!! - ANSWERING TO HIGH VALUE!!!!!, THE MARKETPLACE!!!!!, EXCHANGING THINGS!!!!!, GOOD WILL!!!!!, LEGITIMATE PRICES!!!!! The gold standard lives on, alive and well as ever.</ins>***<br><br>***<ins>SITTING ON THE GOLD STANDARD!!!!!, MY LOW VALUE RELENTLESSLY GETTING MEASURED!!!!!</ins>*** ... ***NEVER ENOUGH GOLD TO SIT ON, FOR A RATHOLE*** ...<br><br>***GOLD DOESN'T GROW ON TREES*** ... <br><br>***Never enough high value to <ins>BE!!!!!</ins> low value ...***
+
+<br><br><br>
 
 `4.2q. 37wop2q. [Ap18,2026]`
 
@@ -1324,17 +1391,18 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ## ***23,000 blindfolded wooden Indians swinging from the money tree and pouring money down ratholes¹, but not POURING GOLD DOLLARS DOWN RATHOLES, proves there's a SHORTAGE OF GOLD, not that THEY THINK THERE'S A BIG DIFFERENCE!!!!! between gold and what they're pouring down ratholes. Two different things called money?????!!!!!***
 >>> ##### ***1. Federal Reserve staff***<br>
 
-> # ***The US - ANYBODY!!!!! - needs money for pouring down ratholes??????!!!!!***<br><br><br>
+> # ***The US - ANYBODY!!!!! - needs money for pouring down ratholes??????!!!!!***
 
+<br><br><br>
 
 `4.2r. 37wop2r. [Ap27,2026]`
 
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part R.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part R. Describing money. What money trail???***<br>
-> ## ***Describing money as <ins>INFLATION AND INTEREST RATES</ins> restores the primitive condition of financial complexity (barter economy), confuses, divides and conquers people, guarantees <ins>SUSTAINED HEAVY FLOW OF MONEY DOWN RATHOLES.</ins>***<br><br>***Describing money as <ins>GOLD DOLLARS</ins>, on the other hand, means <ins>THE ONLY OPTION IS IMPROVEMENT (AFFORDABLE HOUSING, HAPPY CUSTOMERS, BETTER MOUSETRAPS).</ins> 23,000 blindfolded wooden Indians swinging from the money tree, pointing their fingers at each other, pouring money down ratholes <ins>COULD NEVER HAPPEN.</ins>***<br><br><br>
+> ## ***Describing money as <ins>INFLATION AND INTEREST RATES</ins> restores the primitive condition of financial complexity (barter economy), confuses, divides and conquers people, guarantees <ins>SUSTAINED HEAVY FLOW OF MONEY DOWN RATHOLES.</ins>***<br><br>***Describing money as <ins>GOLD DOLLARS</ins>, on the other hand, means <ins>THE ONLY OPTION IS IMPROVEMENT (AFFORDABLE HOUSING, HAPPY CUSTOMERS, BETTER MOUSETRAPS).</ins> 23,000 blindfolded wooden Indians swinging from the money tree, pointing their fingers at each other, pouring money down ratholes <ins>COULD NEVER HAPPEN.</ins>***
 
-
+<br><br><br>
 
 `4.2s. 37wop2s. [Ap28,2026]`
 
@@ -1344,8 +1412,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ## ***Without inflation and interest rates and 23,000 wooden Indians <ins>BLOCKING THE VIEW, RATHOLES CAN'T COMPETE</ins> - the only way to get money into ratholes is <ins>BY MISTAKE.</ins>***<br><br>***THE WHOLE WORLD SCRUTINIZING AND BIDDING FOR GOLD DOLLARS (better mousetraps everywhere), <ins>ONLY BY MISTAKE WOULD GOLD DOLLARS GO INTO RATHOLES.</ins>***<br><br>***Even though it's <ins>THE SAME AMOUNT OF MONEY!!!!!¹</ins>, if it won't go in a rathole, it's a <ins>SHORTAGE OF RATHOLES!!!!!</ins>, not a shortage of money.***<br><br>***Liberating money from inflation and interest rates and 23,000 wooden Indians, <ins>liberates it from ratholes as well.</ins>***
 >>> #### ***1. An ounce of gold today (April 28, 2026) equals $4584.16.***<br>
 >>>> ##### ***- <ins>USA Today</ins>, April 28, 2026.***<br>
->>>>https://www.usatoday.com/story/money/personalfinance/2026/04/28/gold-price-on-april-28-2026/89833547007/ <br><br><br>
+>>>>https://www.usatoday.com/story/money/personalfinance/2026/04/28/gold-price-on-april-28-2026/89833547007/
 
+<br><br><br>
 
 `4.2t. 37wop2t. [May9,15,2026]`
 
