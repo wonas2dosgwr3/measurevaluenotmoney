@@ -1446,8 +1446,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part V.]***<br><br>
 
-# ***World WITHOUT PRICES-2. Part V. Spend WHAT????? Photo IDs instead????? Inmates instead of citizens????? Cell blocks instead of houses?????***
-> ## ***<ins>MORE FOR YOUR MONEY!!!!!</ins> if it's a bushel of paper with strings attached as far as the eye can see in all directions?????!!!!!***
+# ***World WITHOUT PRICES-2. Part V. Spend WHAT????? Photo IDs instead????? Inmates instead of citizens????? Cell blocks instead of houses????? Not enough WHAT?????***
+> ## ***<ins>MORE FOR YOUR MONEY!!!!!</ins> if it's a bushel of paper with <ins>strings attached as far as the eye can see in all directions?????!!!!!</ins>***<br><br>***Not enough <ins>WHAT?????!!!!!</ins>***<br><br>***Standard of <ins>WHAT?????</ins>***<br><br>***VALUE?????!!!!!?????</ins Never heard of it.***
 
 <br><br><br>
 
