@@ -1372,16 +1372,19 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ## ***<ins>A BUSHEL¹ of $1 bills is enough</ins> to tell what THEY'RE WORTH????? But <ins>not enough</ins> to tell what GOLD EQUIVALENT IS WORTH?????***
 >>>> #### ***1. 4,535 dollar bills. One ounce of gold today May 15, 2026 equals $4,535.15.***<br><br>https://www.usatoday.com/story/money/personalfinance/2026/05/15/gold-price-on-may-15-2026/90094459007/
 > ## ***Not enough CHEESEBURGERS - to tell what <ins>they're WORTH?????</ins> $1 equals one cheeseburger²?????***<br><br>***Not enough FOREVER STAMPS - to tell what <ins>they're WORTH?????</ins> Budgets by forever stamps²?????***
->>>> #### ***2. Idea once suggested (<ins>NOT</ins> by wonas2dosgwr3) in prominent Internet discussion forum.***<br><br><br>
+>>>> #### ***2. Idea once suggested (<ins>NOT</ins> by wonas2dosgwr3) in prominent Internet discussion forum.***
 
-
+<br><br><br>
 
 `4.2v. 37wop2v. [May22,2026]`
 
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part V.]***<br><br>
 
 # ***World WITHOUT PRICES-2. Part V. Spend WHAT????? Photo IDs instead????? Inmates instead of citizens????? Cell blocks instead of houses?????***
-> ## ***<ins>MORE FOR YOUR MONEY!!!!!</ins> if it's a bushel of paper with strings attached as far as the eye can see in all directions?????!!!!!***<br><br><br>
+> ## ***<ins>MORE FOR YOUR MONEY!!!!!</ins> if it's a bushel of paper with strings attached as far as the eye can see in all directions?????!!!!!***
+
+<br><br><br>
+
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 >>> #### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
