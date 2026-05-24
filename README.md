@@ -1018,7 +1018,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 <br><br><br>
 
 `4.1n. 37wop1n`
->>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-1. Part N.]***
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 3 is7. World WITHOUT PRICES-1. Part N.]***
 
 # ***World WITHOUT PRICES-1. Part N.***<br><br>
 ## ***Decades long, ongoing, outrageous, needless, <ins>HUGE MISALLOCATION!!!!!</ins> of resources depriving people of so basic a human need as <ins>HOUSING</ins>, dating from - <ins>WHEN?????</ins>***
@@ -1419,11 +1419,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***World WITHOUT PRICES-2. Part T. Lose your money here.***<br>
 > ## ***LOSE YOUR MONEY HERE.***<br><br>***INTOXICATION is what it's for. Free for the asking for INTOXICATION. Endless amounts more where that came from. NO RATHOLE REFUSED, the bigger the better. Anything that DOESN'T CAUSE COMPETITION.***
->> ### ***"It is not the multitude of ale-houses ... that occasions A GENERAL DISPOSITION TO DRUNKENNESS among the common people; but that disposition arising from other causes necessarily gives employment to a multitude of ale-houses."***<br>       [formatting added]
+>> ### ***"It is not the multitude of ale-houses ... that occasions A GENERAL DISPOSITION TO DRUNKENNESS among the common people; but that disposition arising from other causes necessarily gives employment to a multitude of ale-houses."***<br>      >>> [formatting added]
 >>>>> #### ***- ?***
 
 >> ### ***Fear COMPETITION?????***
->>> #### ***Merchant's "competition might perhaps ruin some of themselves; but to take care of this is the business of the parties concerned, and it may safely be trusted to THEIR DISCRETION."***<br>   [formatting added]
+>>> #### ***Merchant's "competition might perhaps ruin some of themselves; but to take care of this is the business of the parties concerned, and it may safely be trusted to THEIR DISCRETION."***   >>>> [formatting added]
 >>>>> ### ***- ?***
 > ## ***<ins>Not enough DISCRETION¹?????</ins>***<br>
 >>> #### ***1. FREEDOM!!!!!***
