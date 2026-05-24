@@ -1461,7 +1461,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>> ### ***"It is not ... in the richest countries, but in the most thriving ... that the wages of labour are highest. England is certainly [in 1700s] ... a much richer country than any part of North America. The wages of labour, however, are much higher in North America than in any part of England. ... The price of provisions is every where in North America much lower than in England. A dearth has never been known there. In the worst seasons, they have always had a sufficiency for themselves, though less for exportation. ... But though North America is not yet so rich as England, it is much more thriving ..."***
 >>>>> #### ***- ?***
 
-
+<br><br><br>
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
