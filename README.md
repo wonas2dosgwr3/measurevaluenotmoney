@@ -1456,8 +1456,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part W.]***<br><br>
 
-# ***World WITHOUT PRICES-2. Part W. Property values instead of money value. Instead of MEASURING value. Instead of PEOPLE!!!!! value. Instead of HIGH VALUE!!!!! Sweating the small stuff.***<br>
-> ## ***Pouring money into PROPERTY INSTEAD OF PEOPLE, <ins>making property UNAFFORDABLE, LOW VALUE.</ins>***<br><br>***Pouring money into PEOPLE INSTEAD OF PROPERTY, <ins>makes property AFFORDABLE, HIGH VALUE.</ins> A bargain is high value!!!!!***
+# ***World WITHOUT PRICES-2. Part W. Property values instead of money value. Instead of MEASURING value. Instead of PEOPLE!!!!! value. Instead of HIGH VALUE!!!!! <ins>Sweating the small stuff instead.</ins>***<br>
+> ## ***Pouring money into PROPERTY INSTEAD OF PEOPLE, <ins>making property UNAFFORDABLE, LOW VALUE.</ins>***<br><br>***Pouring money into PEOPLE INSTEAD OF PROPERTY, <ins>makes property AFFORDABLE, HIGH VALUE.</ins> Bargains are high value!!!!!***<br><br>***The WHOLE IDEA - BARGAINS - HIGH VALUE!!!!!***
+>>> ### *** ***
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 >>> #### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
