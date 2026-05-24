@@ -1452,6 +1452,12 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ### ***Never heard of it.***
 
 <br><br><br>
+`4.2w. 37wop2w. [May24,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part W.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part W. Property values instead of money value. Instead of MEASURING value. Instead of PEOPLE!!!!! value. ***<br>
+> ## ***
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
