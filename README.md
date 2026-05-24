@@ -1458,7 +1458,101 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***World WITHOUT PRICES-2. Part W. Property values instead of money value. Instead of MEASURING value. Instead of PEOPLE!!!!! value. Instead of HIGH VALUE!!!!! <ins>Sweating the small stuff instead.</ins>***<br>
 > ## ***Pouring money into PROPERTY INSTEAD OF PEOPLE, <ins>making property UNAFFORDABLE, LOW VALUE.</ins>***<br><br>***Pouring money into PEOPLE INSTEAD OF PROPERTY, <ins>makes property AFFORDABLE, HIGH VALUE.</ins> Bargains are high value!!!!!***<br><br>***The WHOLE IDEA - BARGAINS - HIGH VALUE!!!!!***
->>> ### *** ***
+>>> ### ***"It is not ... in the richest countries, but in the most thriving ... that the wages of labour are highest. England is certainly [in 1700s] ... a much richer country than any part of North America. The wages of labour, however, are much higher in North America than in any part of England. ... The price of provisions is every where in North America much lower than in England. A dearth has never been known there. In the worst seasons, they have always had a sufficiency for themselves, though less for exportation. ... But though North America is not yet so rich as England, it is much more thriving ..."***
+>>>>> #### ***- ?***
+
+It is not, accordingly, in the richest countries, but in the moſt
+thriving or in those which are growing rich the faſteſt, that the
+wages of labour are highest. England is certainly, in the preſent
+times, a much richer country than any part of North America.
+The wages of labour, however, are much higher in North America
+than in any part of England. In t
+in the other colonies as in New York. The price ofproviſions is
+every where in North America much lower than in England.. A
+dearth has never been known there. In the worſt ſeaſons, they
+VOL. I. M 3
+have 86 THE NATURE AND CAUSES OF
+:
+BOOK I. have always had
+a ſufficiency for themſelves, though leſs for expor-
+tation. If the money price of labour, therefore, be higher than
+it is any where in the mother country, its real price, the real com-
+mand of the neceffaries and conveniencies of life which it conveys
+to the labourer
+, muſt be higher in
+a ſtill greater proportion
+.
+-1- Bur though North America is not yet ſo rich as England
+, it is
+much more thriving, and advancing with much greater rapidity to
+the further acquifition of riches
+. The moſt deciſive mark of the
+profperity of any country is the increaſe of the number of its
+inhabitants
+. In Great Britain and most other European countries
+they are not ſuppoſed to double in leſs than five hundred years
+.
+In the Britiſh colonies in North America, it has been found, that
+they double in twenty or five and twenty years
+. Nor in the preſent times is this increaſe principally owing to the continual
+importation of new inhabitants
+, but to the great multiplication of
+the fpecies
+. Those who live to old age
+, it is ſaid, frequently fee
+there from fifty to
+a hundred, and fometimes many more
+, defcend-
+ants from their own body. Labour is there ſo well rewarded that a numerous family of children, inſtead of being a burthen, is a
+fource of opulence and profperity to the parents
+. The labour of
+each child, before it can leave their houſe
+, is computed to be worth
+a hundred pounds cleargain to them
+.
+Ayoung widow with four or
+five young children
+, who
+, among the middling or inferior ranks of
+people in Europe, would have ſo little chance for
+a fecond hufſband,
+is there frequently courted as
+a fort of fortune. The value of
+children is the greatest of all encouragements to marriage
+. We
+cannot, therefore, wonder that the people inNorth America ſhould
+generally marry very young
+. Notwithstanding the great increaſe
+occaſioned by ſuch early marriages, there is
+a continual complaint
+of the ſcarcity of hands in North America. The demand for
+labourers
+, the funds destined for maintaining them, increaſe, it
+ſeems, ſtill faſter than they can find labourers to employ
+.
+3
+1
+i
+THOUGH THE WEALTH OF NATIONS. 87 1
+THOUGH the wealth of a country ſhould be very great, yet CHAP.
+if it has been long ſtationary, we must not expect to find the
+wages of labour very high in it. The funds deſtined for the pay-
+ment of wages, the revenue and ſtock of its inhabitants, may be
+of the greateſt extent, but if they have continued for ſeveral cen-
+turies of the fame, or very nearly of the ſame extent, the number of
+labourers employed every year could eaſily ſupply, and even more
+than fupply, the number wanted the following year. There could
+feldom be any ſcarcity of hands, nor could the maſters be obliged
+to bid against one another in order to get them. The hands, on
+the contrary, would, in this cafe, naturally multiply beyond their
+employment. There would be a conſtant ſcarcity of employment,
+and the labourers would be obliged to bid against one another in
+order to get it. If in ſuch a country the wages of labour had ever
+beenmore than ſufficient to maintain the labourer and to enable him
+to bring up a family, the competition 
+
+
+
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 >>> #### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
