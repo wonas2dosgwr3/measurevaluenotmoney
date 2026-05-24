@@ -1458,7 +1458,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***World WITHOUT PRICES-2. Part W. <ins>Property values instead</ins> of money value. Instead of MEASURING value. Instead of PEOPLE!!!!! value. Instead of HIGH VALUE!!!!! <ins>Sweating the small stuff instead.</ins>***<br>
 > ## ***Pouring money into PROPERTY INSTEAD OF PEOPLE, <ins>making property UNAFFORDABLE, LOW VALUE.</ins>***<br><br>***Pouring money into PEOPLE INSTEAD OF PROPERTY, <ins>makes property AFFORDABLE, HIGH VALUE.</ins> Bargains are high value!!!!!***<br><br>***The WHOLE IDEA - BARGAINS - HIGH VALUE!!!!!***
->>> ### ***"It is not ... in the richest countries, but in the most thriving ... that the wages of labour are highest. England is certainly [in 1700s] ... a much richer country than any part of North America. The wages of labour, however, are much higher in North America than in any part of England. ... The price of provisions is every where in North America much lower than in England. A dearth has never been known there. In the worst seasons, they have always had a sufficiency for themselves, though less for exportation. ... But though North America is not yet so rich as England, it is much more thriving ..."***
+>>> ### ***"It is not ... in the richest countries, but in the most thriving ... that the wages of labour are highest. England is certainly [in 1700s] ... a much richer country than any part of North America. <ins>The wages of labour, however, are much higher in North America than in any part of England. ... The price of provisions is every where in North America much lower than in England.</ins> A dearth has never been known there. In the worst seasons, they have always had a sufficiency for themselves, though less for exportation. ... But <ins>though North America is not yet so rich as England, it is much more thriving</ins> ..."***
+>>>> [formatting added]
 >>>>> #### ***- ?***
 
 <br><br><br>
