@@ -1465,6 +1465,21 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>> #### ***- ?***
 
 <br><br><br>
+`4.2x. 37wop2x. [June3,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part X.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part X. BAD COMPANY. Gold staying as far away from homeless (US) dollars as it can get. <ins>Not enough gold. Same reason the horse and buggy and the Edsel aren't here.</ins>***<br>
+
+<br><br><br>
+`4.2y. 37wop2y. [June 3,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part Y.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part Y. Not enough bushels (identity crisis, <ins>ADVERTISING LOW VALUE). Gold wants nothing to do with homeless (US) dollars.</ins>***<br>
+> ## ***I NEVER let gold out of my hands!!!!! NEVER stop doing my part to protect the world's <ins>ENDANGERED GOLD SUPPLY!!!!!</ins>***<br><br>***But the harder I hang onto gold, the less it wants anything to do with <ins>those homeless (US) dollars I spend mountains of!!!!!</ins>***<br><br>***Which way's the ALE-HOUSE???***<br><br>***Give me an ale. TWO BUSHELS!!!!! of homeless (US) dollars - for ONE ALE!!!!! Just <ins>yesterday only cost me ONE bushel!!!!!</ins>***<br><br>***<ins>NOT ENOUGH BUSHELS!!!!!</ins>***
+
+<br><br><br>
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
