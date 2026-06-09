@@ -1483,6 +1483,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 > ## ***Give me an ale. TWO BUSHELS!!!!! of homeless (US) dollars - for ONE ALE!!!!! Just <ins>yesterday only cost me ONE bushel!!!!!</ins>***<br><br>***<ins>NOT ENOUGH BUSHELS!!!!!</ins>***
 
 <br><br><br>
+`4.2z. 37wop2z. [June 9,2026]`
+
+>>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-2. Part Z.]***<br><br>
+
+# ***World WITHOUT PRICES-2. Part Z. Bound to lose. Duking it out with SAVERS. Safety nets and high wires, instead of SAFE HAVENS AND THE FOURTH OF JULY. THE SAVERS ALWAYS WIN.***<br>
+> ## ***SAVERS supply the world, save <ins>to specialize, for a rainy day, to BE.</ins>***<br><br>***SAVERS MUST HAVE SAFE HAVENS - without them they <ins>SAVE THEMSELVES, SUPPLY NOTHING!!!!! to the plunderers running the world, STARVE OUT BAD GOVERNMENT. Ask any vanished civilization. Pay me next week. Too much monkey business.***
+
+>>> ### ***"
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
