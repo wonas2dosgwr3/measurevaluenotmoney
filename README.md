@@ -1490,7 +1490,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***World WITHOUT PRICES-2. Part Z. Bound to lose. Duking it out with SAVERS. Safety nets and high wires, instead of SAFE HAVENS AND THE FOURTH OF JULY. THE SAVERS ALWAYS WIN.***<br>
 > ## ***SAVERS supply the world, save <ins>to specialize, for a rainy day, to BE.</ins>***<br><br>***SAVERS MUST HAVE SAFE HAVENS - without them they <ins>SAVE THEMSELVES, SUPPLY NOTHING!!!!! to the plunderers running the world, STARVE OUT BAD GOVERNMENT. Ask any vanished civilization. Pay me next week. Too much monkey business.***
 
->>> ### ***"
+>>> ### ***"voglio fare un'osservazione importante. Ognuno deve saper vivere del suo; e chi fa debiti vive più o meno dell'altrui. Io ebbi, ed ho, debbo dirlo, l'orrore dei debiti. Perciò, avendo poco, invece di far debiti, imparai a vivere con quel che avevo. E così ho sempre fatto e sempre farò."
+>>>>> ##### ***Massimo Taparelli D'Azeglio (1798-1866), <ins>I Miei Ricordi</ins>, . In <ins>Letture Varie</ins>, V. Cioffari and J. Van Horne, 1961. Book Four, XIX.***
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
