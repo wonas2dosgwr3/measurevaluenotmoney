@@ -1507,7 +1507,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 `4.3a. 37wop3a [July28 2026]`
 
->>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-3. Part A.]***<br>
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part A.]***<br>
 
 ## ***WORLD WITHOUT PRICES-3. Part A. Instead of falling prices <ins>MAKING MONEY A GOLD MINE,</ins> ... rising prices making <ins>NOT ENOUGH GOLD MINES!!!!!</ins> Making money a <ins>DISTRACTION!!!!! - FOR CHASING NOT EARNING, FOR LOSING NOT SPENDING, FOR INTOXICATION.</ins>***
 
