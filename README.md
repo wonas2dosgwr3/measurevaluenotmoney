@@ -8,7 +8,8 @@
 > ## **4** ***WORLD WITHOUT PRICES*** [4 WORLD WITHOUT PRICES](#4-world-without-prices)
 >>> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
 >>> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
->>> ### ***WORLD WITHOUT PRICES-3***[WORLD WITHOUT PRICES-3](#world-without-prices-3)
+>>> ### ***WORLD WITHOUT PRICES-3*** [WORLD WITHOUT PRICES-3](#world-without-prices-3)
+
 > ## **AFTER** ***World Without Prices*** [AFTER World Without Prices](#after-world-without-prices)
 >>>> #### ***5 MARKETS IN THE SOUTH*** [5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
 >>>> #### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
