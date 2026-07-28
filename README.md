@@ -8,6 +8,8 @@
 > ## **4** ***WORLD WITHOUT PRICES*** [4 WORLD WITHOUT PRICES](#4-world-without-prices)
 >>> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
 >>> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
+>>> ### ***WORLD WITHOUT PRICES-3***
+[WORLD WITHOUT PRICES-3](#world-without-prices-3)
 > ## **AFTER** ***World Without Prices*** [AFTER World Without Prices](#after-world-without-prices)
 >>>> #### ***5 MARKETS IN THE SOUTH*** [5 MARKETS IN THE SOUTH](#5-markets-in-the-south)
 >>>> #### ***6 NATURAL LAW*** [6 NATURAL LAW](#6-natural-law)
@@ -1495,6 +1497,19 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>> ### ***"Salesman talkin' to me - tryin' to run me up a creek. Says you can buy it, go on try it - you can pay me mext week, ahh!"***
 >>>>> ##### ***- song lyric, "Too Much Monkey Business", Chuck Berry, 1956.***
+
+<br><br><br>
+
+`4.3`
+
+# ***WORLD WITHOUT PRICES-3***<br><br>
+
+`4.3a. 37wop3a` [July28 2026]
+
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-3. Part A.]***<br>
+
+## ***World WITHOUT PRICES-3. Part A.***<br><br>
+## ***Instead of falling prices<ins>MAKING MONEY A GOLD MINE,</ins> ... rising prices making money a <ins>DISTRACTION, FOR CHASING NOT EARNING, FOR LOSING NOT SPENDING, FOR INTOXICATION.</ins>***
 
 <br><br><br>
 
