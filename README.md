@@ -827,6 +827,8 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # **4** ***WORLD WITHOUT PRICES*** 
 >> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
 >> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
+>> ### ***WORLD WITHOUT PRICES-3***
+[WORLD WITHOUT PRICES-3](#world-without-prices-3)
 
 `4.1`
 <a id="#world-without-prices-1-id"></a>
@@ -1508,8 +1510,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-3. Part A.]***<br>
 
-## ***World WITHOUT PRICES-3. Part A.***<br><br>
-## ***Instead of falling prices<ins>MAKING MONEY A GOLD MINE,</ins> ... rising prices making money a <ins>DISTRACTION, FOR CHASING NOT EARNING, FOR LOSING NOT SPENDING, FOR INTOXICATION.</ins>***
+## ***World WITHOUT PRICES-3. Part A. Instead of falling prices<ins>MAKING MONEY A GOLD MINE,</ins> ... rising prices making money a <ins>DISTRACTION, FOR CHASING NOT EARNING, FOR LOSING NOT SPENDING, FOR INTOXICATION.</ins>***
 
 <br><br><br>
 
