@@ -1505,7 +1505,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***WORLD WITHOUT PRICES-3***<br><br>
 
-`4.3a. 37wop3a` [July28 2026]
+`4.3a. 37wop3a [July28 2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. World WITHOUT PRICES-3. Part A.]***<br>
 
