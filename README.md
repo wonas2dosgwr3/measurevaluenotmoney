@@ -827,8 +827,7 @@ Abnormal prices (inaccurate measurements) advertise danger, some people more equ
 # **4** ***WORLD WITHOUT PRICES*** 
 >> ### ***WORLD WITHOUT PRICES-1*** [WORLD WITHOUT PRICES-1](#world-without-prices-1)
 >> ### ***WORLD WITHOUT PRICES-2*** [WORLD WITHOUT PRICES-2](#world-without-prices-2)
->> ### ***WORLD WITHOUT PRICES-3***
-[WORLD WITHOUT PRICES-3](#world-without-prices-3)
+>> ### ***WORLD WITHOUT PRICES-3***[WORLD WITHOUT PRICES-3](#world-without-prices-3)
 
 `4.1`
 <a id="#world-without-prices-1-id"></a>
