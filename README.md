@@ -1519,7 +1519,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***WORLD WITHOUT PRICES-3. Part B. Numbers instead. How much of WHAT????? - MONEY?????***
 > ## ***Changing NUMBERS!!!!! is regulating the value thereof?????¹***
->>> ### ***1. US Constitution.***<br><br>
+>>> ##### ***1. US Constitution. Section 8. Powers of Congress.***<br><br>
 > ## ***What money IS!!!!! doesn't matter?????***<br><br>***Numbers ALONE!!!!! can be the value of ANYTHING?????***<br><br>***23,000 NUMBER CHANGERS?????***<br><br>***Anyone can be EXCUSED OR PREVENTED from deciding what money is worth?????***
 
 
