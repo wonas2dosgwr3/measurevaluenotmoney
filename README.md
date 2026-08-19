@@ -1505,13 +1505,24 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***WORLD WITHOUT PRICES-3***<br><br>
 
-`4.3a. 37wop3a [July28 2026]`
+`4.3a. 37wop3a [July28,2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part A.]***<br>
 
 ## ***WORLD WITHOUT PRICES-3. Part A. Instead of falling prices <ins>MAKING MONEY A GOLD MINE,</ins> ... rising prices making <ins>NOT ENOUGH GOLD MINES!!!!!</ins> Making money a <ins>DISTRACTION!!!!! - FOR CHASING NOT EARNING, FOR LOSING NOT SPENDING, FOR INTOXICATION.</ins>***
 
 <br><br><br>
+
+`4.3b. 37wop3b [Aug19,2026]`
+
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part B.]***<br>
+
+# ***WORLD WITHOUT PRICES-3. Part B. Numbers instead. How much of WHAT????? - MONEY?????***
+> ## ***Changing NUMBERS!!!!! is regulating the value thereof?????¹***
+>>> ### ***1. US Constitution.***<br><br>
+> ## ***What money IS!!!!! doesn't matter?????***<br><br>***Numbers ALONE!!!!! can be the value of ANYTHING?????***<br><br>***23,000 NUMBER CHANGERS?????***<br><br>***Anyone can be EXCUSED OR PREVENTED from deciding what money is worth?????***
+
+
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
