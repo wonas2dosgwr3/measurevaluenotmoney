@@ -1524,6 +1524,13 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 <br><br><br>
 
+`4.3c. 37wop3c [Sept2,2026]`
+
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part C.]***<br>
+
+# ***WORLD WITHOUT PRICES-3. Part C. Not paying for land. INSTEAD ...***
+> ## ***INEQUALITY (INTERFERING WITH OTHER PEOPLE) <INS>INSTEAD.</INS>***
+
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
 >>> #### ***5 MARKETS IN THE SOUTH*** [MARKETS IN THE SOUTH](#5-markets-in-the-south)
