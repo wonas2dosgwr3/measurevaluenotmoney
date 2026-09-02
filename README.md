@@ -1513,14 +1513,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 <br><br><br>
 
-`4.3b. 37wop3b [Aug19,2026]`
+`4.3b. 37wop3b [Aug19,Sept2,2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part B.]***<br>
 
 # ***WORLD WITHOUT PRICES-3. Part B. Numbers instead. How much of WHAT????? - MONEY?????***
 > ## ***Changing NUMBERS!!!!! is regulating the value thereof?????¹***<br>
 >>>> ##### ***1. US Constitution. Section 8. Powers of Congress.***<br><br>
-> ## ***What money IS!!!!! doesn't matter?????***<br><br>***Numbers ALONE!!!!! can be the value of ANYTHING?????***<br><br>***23,000 NUMBER CHANGERS?????***<br><br>***Anyone can be EXCUSED OR PREVENTED from deciding what money is worth?????***
+> ## ***What money IS!!!!! doesn't matter?????***<br><br>***Numbers ALONE!!!!! can be the value of ANYTHING?????***<br><br>***23,000 NUMBER CHANGERS?????***<br><br>***Anyone can be EXCUSED OR STOPPED from deciding what money is worth?????***
 
 <br><br><br>
 
