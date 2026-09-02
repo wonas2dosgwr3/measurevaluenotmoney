@@ -1529,7 +1529,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part C.]***<br>
 
 # ***WORLD WITHOUT PRICES-3. Part C. Not paying for land. INSTEAD ...***
-> ## ***INEQUALITY (INTERFERING WITH OTHER PEOPLE) <INS>INSTEAD.</INS>***
+> ## ***INEQUALITY (INTERFERING WITH OTHER PEOPLE) <INS>INSTEAD.</INS>***<br><br>***RISING (UNAFFORDABLE) PRICES <INS>INSTEAD.</INS>***<BR><BR>***SHORTAGES <INS>INSTEAD.</INS>***<BR><BR>***THE DARK AGES <INS>INSTEAD.</INS>***
+
+<BR><BR><BR>
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
