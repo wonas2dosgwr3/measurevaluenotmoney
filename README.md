@@ -1540,6 +1540,8 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***WORLD WITHOUT PRICES-3. Part D. Less and less gold buys a homeless dollar. Gold CAN'T CATCH UP???, NOT ENOUGH???, homeless dollar SETTING THE PACE???, gold can't catch up with NO VALUE?????, FALLING-DOWN SHACKS!!!!! (BAD MERCHANDISE) worth millions of GOLD!!!!! dollars would be GREAT, BUT ...***
 > ## ***THROWING AWAY!!!!! gold????? NO VALUE!!!!!?????***<BR><BR>***ADVERTISE!!!!! inequality.***<br>***ADVERTISE!!!!! no value.***<br>***VALUE won't go away.***<br>***HIGH VALUE won't go away.***<br>***RISING (ABNORMAL) PRICES AND SHORTAGES won't go away.***<br>***EQUALITY won't go away.***<br><br>***Less and less HIGH VALUE buys a homeless dollar.***
 
+<br><br><br>
+
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
