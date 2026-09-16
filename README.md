@@ -1527,6 +1527,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 `4.3c. 37wop3c [Sept2,2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part C.]***<br>
+
 # ***WORLD WITHOUT PRICES-3. Part C. Not paying for land. INSTEAD ...***
 > ## ***INEQUALITY (INTERFERING WITH OTHER PEOPLE) <INS>INSTEAD.</INS>***<br><br>***RISING (UNAFFORDABLE) PRICES <INS>INSTEAD.</INS>***<BR><BR>***SHORTAGES <INS>INSTEAD.</INS>***<BR><BR>***THE DARK AGES <INS>INSTEAD.</INS>***
 
@@ -1535,7 +1536,9 @@ br><br><br>
 `4.3d. 37wop3d [Sept16,2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part D.]***<br>
+
 # ***WORLD WITHOUT PRICES-3. Part D. Less and less gold buys a homeless dollar. Gold CAN'T CATCH UP???, NOT ENOUGH???, homeless dollar SETTING THE PACE???, gold can't catch up with NO VALUE?????, FALLING-DOWN SHACKS!!!!! (BAD MERCHANDISE) worth millions of GOLD!!!!! dollars would be GREAT, BUT ...
+> ## ***THROWING AWAY!!!!! gold????? NO VALUE!!!!!?????***<BR><BR>***ADVERTISE!!!!! inequality.***<br>***ADVERTISE!!!!! no value.***<br>***VALUE won't go away.***<br>***HIGH VALUE won't go away.***<br>***RISING (ABNORMAL) PRICES AND SHORTAGES won't go away.***<br>***EQUALITY won't go away.***<br><br>***Less and less HIGH VALUE buys a homeless dollar.***
 
 
 <a id="#after-world-without-prices_id"></a>
