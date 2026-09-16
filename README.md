@@ -1531,7 +1531,7 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***WORLD WITHOUT PRICES-3. Part C. Not paying for land. INSTEAD ...***
 > ## ***INEQUALITY (INTERFERING WITH OTHER PEOPLE) <INS>INSTEAD.</INS>***<br><br>***RISING (UNAFFORDABLE) PRICES <INS>INSTEAD.</INS>***<BR><BR>***SHORTAGES <INS>INSTEAD.</INS>***<BR><BR>***THE DARK AGES <INS>INSTEAD.</INS>***
 
-br><br><br>
+<br><br><br>
 
 `4.3d. 37wop3d [Sept16,2026]`
 
