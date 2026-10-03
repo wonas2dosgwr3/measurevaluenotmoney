@@ -1542,6 +1542,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 <br><br><br>
 
+`4.3e. 37wop3e [Oct3,2026]`
+
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part E.]***<br>
+
+# ***WORLD WITHOUT PRICES-3. Part E. Stopping land USE (WHAT MONEY BUYS!!!!!), with what DOESN'T CARE!!!!! what money buys, except the land under YOUR!!!!! feet, LEGAL INEQUALITY (legal tender).***
+
+
+
 
 <a id="#after-world-without-prices_id"></a>
 # **After** ***World Without Prices***<br><br>
