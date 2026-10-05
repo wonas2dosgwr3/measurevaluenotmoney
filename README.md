@@ -1549,16 +1549,15 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***WORLD WITHOUT PRICES-3. Part E. Stopping land USE (WHAT MONEY BUYS!!!!!), with what DOESN'T CARE!!!!! what money buys, except the land under YOUR!!!!! feet, LEGAL INEQUALITY (legal tender).***<br>
 > ## ***ONE-TIME USE dollars, INEQUALITY dollars, HOMELESS dollars, UNEARNED dollars is all I need.***<br><br>***Soon as I own the land under YOUR!!!!! feet, forget the rest.***<br><br>***INEQUALITY dollars can't buy land????? EQUALITY (NOT INTERFERING WITH OTHER PEOPLE) is the price of land?????***<br><br>***No matter how RICH I GET living off (interfering with!!!!!) the land under YOUR feet - I HAVEN'T PAID FOR THAT LAND?????!!!!!***
 
-
 <br><br><br>
-
 
 `4.3f. 37wop3f [Oct5,2026]`
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part F.]***<br>
 
-# ***WORLD WITHOUT PRICES-3. Part F. Stopping the CIRCULATION of money. Stopping EQUALITY!!!!! Money is for HOARDING, for BIG PILES!!!!! For <ins>DIMMING THE LIGHTS AND CONFUSING PEOPLE, SETTING THE STAGE FOR THE INEQUALITY CIRCUS¹: </ins> LOGJAMS!!!!! of money owned by some land user; HUGE PILES!!!!!  of money owned by a land user; <ins>RICHEST!!!!!</ins> land users; ZILLIONAIRE!!!!! land users; maybe I'll (land user) be one, <ins>WIN THE LOTTERY!!!!!; IF ONLY I (land user) WAS RICH!!!!!;</ins> money is EVERYTHING!!!!! (to a land user); 23,000 fence posts (pile-size experts, land users) guarantees MY PILE!!!!! (land user); but <ins>LAND USERS ALL!!!!! - HAS ANY OF THEM PAID FOR THE LAND - ANY OF THEM NOT INTERFERING WITH OTHER PEOPLE?????</ins>***<br>
->>> ### ***1. Any song and dance anybody, especially a politician, might believe.***<br><br>
+# ***WORLD WITHOUT PRICES-3. Part F. Stopping the CIRCULATION of money. Stopping EQUALITY!!!!! Money is for HOARDING, for BIG PILES!!!!! For <ins>DIMMING THE LIGHTS AND CONFUSING PEOPLE, SETTING THE STAGE FOR THE INEQUALITY CIRCUS¹:</ins> LOGJAMS!!!!! of money owned by some land user; HUGE PILES!!!!! of money owned by a land user; <ins>RICHEST!!!!!</ins> land users; ZILLIONAIRE!!!!! land users; maybe I'll (land user) be one, <ins>WIN THE LOTTERY!!!!!; IF ONLY I (land user) WAS RICH!!!!!;</ins> money is EVERYTHING!!!!! (to a land user); 23,000 fence posts (pile-size experts, land users) guarantees MY PILE!!!!! (land user); but <ins>LAND USERS ALL!!!!! - HAS ANY OF THEM PAID FOR THE LAND - ANY OF THEM NOT INTERFERING WITH OTHER PEOPLE?????</ins>***<br>
+>>> ### ***1. Any song and dance anybody, especially a politician, might believe.***<br>
+
 > ## ***My pile's BIGGER THAN YOURS.***
 
 <br><br><br>
