@@ -1557,9 +1557,11 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part F.]***<br>
 
-# ***WORLD WITHOUT PRICES-3. Part F. Stopping the CIRCULATION of money. Stopping EQUALITY!!!!!  Money is for HOARDING, for BIG PILES!!!!! DIMMING THE LIGHTS AND CONFUSING PEOPLE, SETTING THE STAGE FOR THE INEQUALITY SHOW¹: 
+# ***WORLD WITHOUT PRICES-3. Part F. Stopping the CIRCULATION of money. Stopping EQUALITY!!!!!  Money is for HOARDING, for BIG PILES!!!!! DIMMING THE LIGHTS AND CONFUSING PEOPLE, SETTING THE STAGE FOR THE INEQUALITY CIRCUS¹: LOGJAMS!!!!! of money owned by some land user; HUGE PILES!!!!!  of money owned by a land user; RICHEST!!!!!  land users; ZILLIONAIRE!!!!!  land users; maybe I'll (land user) WIN THE LOTTERY!!!!!; IF ONLY I (land user) WAS RICH!!!!!; money is EVERYTHING!!!!! (to a land user); 23,000 fence posts (pile-size experts, land users) guarantees MY PILE!!!!! (land user); but LAND USERS ALL!!!!! - HAS ANY OF THEM PAID FOR THE LAND - ANY OF THEM NOT INTERFERING WITH OTHER PEOPLE????? ***<br>
+>>> ### ***1. Any song and dance anybody, especially a politician, might believe.***<br><br>
+> ## ***My pile's BIGGER THAN YOURS.***
 
-<><><>
+<br><br><br>
 
 
 
