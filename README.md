@@ -1549,6 +1549,16 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 # ***WORLD WITHOUT PRICES-3. Part E. Stopping land USE (WHAT MONEY BUYS!!!!!), with what DOESN'T CARE!!!!! what money buys, except the land under YOUR!!!!! feet, LEGAL INEQUALITY (legal tender).***<br>
 > ## ***ONE-TIME USE dollars, INEQUALITY dollars, HOMELESS dollars, UNEARNED dollars is all I need.***<br><br>***Soon as I own the land under YOUR!!!!! feet, forget the rest.***<br><br>***INEQUALITY dollars can't buy land????? EQUALITY (NOT INTERFERING WITH OTHER PEOPLE) is the price of land?????***<br><br>***No matter how RICH I GET living off (interfering with!!!!!) the land under YOUR feet - I HAVEN'T PAID FOR THAT LAND?????!!!!!***
 
+
+<br><br><br>
+
+
+`4.3f. 37wop3f [Oct5,2026]`
+
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part F.]***<br>
+
+# ***WORLD WITHOUT PRICES-3. Part F. Stopping the CIRCULATION of money. Stopping EQUALITY!!!!!  Money is for HOARDING, for BIG PILES!!!!! DIMMING THE LIGHTS AND CONFUSING PEOPLE, SETTING THE STAGE FOR THE INEQUALITY SHOW¹: 
+
 <><><>
 
 
