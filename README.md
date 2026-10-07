@@ -1,3 +1,5 @@
+[Go to AFTER World Without Prices](#after world without prices)
+
 # **measurevaluenotmoney**<br><br>
 
 > ## **Contents**<br><br>
