@@ -1570,7 +1570,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 # ***WORLD WITHOUT PRICES-3. Part G. QUICK MONEY FROM RENTALS. Any other reason for THE HUGE NEEDLESS HOUSING PROBLEM?????!!!!!  Lowering the STANDARD OF LIVING INSTEAD OF PRICES.***<br>
 >> ### ***"Some tenements were six or seven stories high and poorly constructed of cheap materials, so that the owner might MAKE QUICK MONEY FROM HIS RENTALS without much investment of capital."*** [formatting added]
->>>> ##### ***
+>>>> ##### ***- <ins>Using Latin</ins>, Book One, J. F. Gummere and A. Horn, 1948, 1954. P 90.***<br>
+>> ### ***"Gradually the Romans PERMITTED CORRUPT PRACTICES IN GOVERNMENT, BUSINESS, SOCIETY, AND RELIGION until the Empire crumbled and was no more."***  [formatting added]
+>>>> ##### ***Ibid, p***
 
 <br><br><br>
 
