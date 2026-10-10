@@ -1564,6 +1564,14 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 <br><br><br>
 
+`4.3g. 37wop3g.  [Oct10,2026]`
+
+>>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part G.]***<br>
+
+# ***WORLD WITHOUT PRICES-3. Part G. 
+
+<br><br><br>
+
 
 
 
