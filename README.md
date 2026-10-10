@@ -1568,7 +1568,9 @@ https://youtu.be/R97L-nkgrxo?feature=shared
 
 >>>>> ##### ***[THE HOMELESS (HUNTING AND GATHERING) DOLLAR. Part 37. WORLD WITHOUT PRICES-3. Part G.]***<br>
 
-# ***WORLD WITHOUT PRICES-3. Part G. 
+# ***WORLD WITHOUT PRICES-3. Part G. QUICK MONEY FROM RENTALS. Any other reason for THE HUGE NEEDLESS HOUSING PROBLEM?????!!!!!  Lowering the STANDARD OF LIVING INSTEAD OF PRICES.***<br>
+>> ### ***"Some tenements were six or seven stories high and poorly constructed of cheap materials, so that the owner might MAKE QUICK MONEY FROM HIS RENTALS without much investment of capital."*** [formatting added]
+>>>> ##### ***
 
 <br><br><br>
 
