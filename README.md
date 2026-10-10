@@ -1,3 +1,5 @@
+[[AFTER World Without Prices]]((after_world_without_prices))
+
 # **measurevaluenotmoney**<br><br>
 
 > ## **Contents**<br><br>
