@@ -1,4 +1,4 @@
-[[AFTER World Without Prices]](after_world_without_prices)
+[[AFTER World Without Prices]](after-world-without-prices)
 
 # **measurevaluenotmoney**<br><br>
 
